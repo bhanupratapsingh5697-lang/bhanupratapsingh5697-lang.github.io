@@ -3,7 +3,9 @@ import datetime as dt
 import hashlib
 import html
 import json
+import os
 import re
+from google import genai
 import sys
 import urllib.request
 import xml.etree.ElementTree as ET
@@ -135,7 +137,49 @@ def get_date(item, fallback):
 
     return fallback
 
+def generate_article(title, summary, source, link):
+    api_key = os.environ.get("GEMINI")
 
+    if not api_key or not summary:
+        return None
+
+    try:
+        client = genai.Client(api_key=api_key)
+
+        prompt = f"""
+You are a professional news editor for Today News.
+
+Write an original, detailed news article using only the facts
+available in the information below.
+
+Rules:
+- Do not copy the publisher's original article.
+- Do not invent facts, statistics, quotes, or events.
+- Explain the available information clearly.
+- If details are missing, do not guess.
+- Use simple, natural English.
+- Write a headline followed by 5-7 useful paragraphs.
+- Return Markdown only.
+
+Headline: {title}
+Available information: {summary}
+Publisher: {source}
+Original link: {link}
+"""
+
+        response = client.models.generate_content(
+            model="gemini-2.5-flash",
+            contents=prompt
+        )
+
+        article = (response.text or "").strip()
+        return article if article else None
+
+    except Exception as error:
+        print(f"Gemini generation failed: {error}", file=sys.stderr)
+        return None
+    
+    
 def main():
     POSTS.mkdir(exist_ok=True)
 
@@ -173,14 +217,22 @@ def main():
                     or urlparse(link).scheme not in ("http", "https")
                 ):
                     continue
+                CONTENT = "{http://purl.org/rss/1.0/modules/content/}encoded"
 
                 raw = (
-                    get_text(item, "description")
-                    or get_text(item, f"{ATOM}summary")
-                    or get_text(item, f"{ATOM}content")
-                )
+                    get_text(item, CONTENT)
+                or get_text(item, "description")
+                or get_text(item, f"{ATOM}content")
+                or get_text(item, f"{ATOM}summary")
+                ) 
 
-                summary = clean(raw)[:520]
+                summary = clean(raw)
+                article = generate_article(
+    title,
+    summary,
+    source,
+    link
+)
 
                 date = get_date(
                     item,
@@ -235,7 +287,7 @@ def main():
                     f"source_url: {quote(link)}",
                     "---",
                     "",
-                    summary or "Open the original report for the full story.",
+                    article or summary or "Open the original report for the full story.",
                     "",
                     f"**Original report:** [{host}]({link})",
                     "",
