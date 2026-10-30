@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Claws in the sky: Decoding India's massive drone buys - India Today"
+date: 2026-10-30 08:00:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxOT1ZSdFBBalJ0NmN1b3dIQ1JBLXBxLVhrVXZhRFBfSjhKaXBqeDJ6VTIwSXNvQ0NIODB4RnpTSUljTGN2OS1KUVItOTVJQ3BMRDVBS0R0VGtNWnlsVGNNTU95UTRJYi1NRHlmTVNKcjZHcGNMZmtWVS1aSnVzVVBHRmdnX0M3RlV6dHRESUlzVEFRQUs0dEpNZTNXc281ZWxaOGY3dzF4Q3E5aUlBbFotaWJ30gG3AUFVX3lxTE1fdzExVmd0eFVwa1pJaUE0TU1aNm1VczlYRDBnVEx1OC1PS3VYNTc4T3dNY253QnBzNTd3eldoQ0JVVnFUVUtxRW1Ob3FXRG9XeGVrNHVGbEktNHhBMGpoVmkycWhCY0ZndldtOXNJU3Z4OVVacXFkYk8wdzBPVnhva3RVRThOQlJYbXV2NGp6ZVZSbC1Yc1IzMS1OSHppMjdXMl8xTGgwLXZvUHM5WmY2V0xXRUlHVQ?oc=5"
+---
+
+Claws in the sky: Decoding India's massive drone buys India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxOT1ZSdFBBalJ0NmN1b3dIQ1JBLXBxLVhrVXZhRFBfSjhKaXBqeDJ6VTIwSXNvQ0NIODB4RnpTSUljTGN2OS1KUVItOTVJQ3BMRDVBS0R0VGtNWnlsVGNNTU95UTRJYi1NRHlmTVNKcjZHcGNMZmtWVS1aSnVzVVBHRmdnX0M3RlV6dHRESUlzVEFRQUs0dEpNZTNXc281ZWxaOGY3dzF4Q3E5aUlBbFotaWJ30gG3AUFVX3lxTE1fdzExVmd0eFVwa1pJaUE0TU1aNm1VczlYRDBnVEx1OC1PS3VYNTc4T3dNY253QnBzNTd3eldoQ0JVVnFUVUtxRW1Ob3FXRG9XeGVrNHVGbEktNHhBMGpoVmkycWhCY0ZndldtOXNJU3Z4OVVacXFkYk8wdzBPVnhva3RVRThOQlJYbXV2NGp6ZVZSbC1Yc1IzMS1OSHppMjdXMl8xTGgwLXZvUHM5WmY2V0xXRUlHVQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

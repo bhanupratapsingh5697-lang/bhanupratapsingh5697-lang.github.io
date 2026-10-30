@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Anvay Dravid, Aaryavir Sehwag named in India squad for U19 Asia Cup - The Times of India"
+date: 2026-10-30 17:19:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4gFBVV95cUxQb1RwbUxRekdQSmFseFRNemdBM1FXM19mdVYtS2QyaUpCeVI3YnBzU0tyVlNCLW4xZkg1Z01sbkdhWTgxYzdGdkNrdW54RkhOakJZV2JESVN3Y0pUd0NJNHRFa3d5LU1NTXZOcU1ZNEh6T3hBNEFwejlsNDdUUTQwZFRraThJUFIzc1pOUTN0M2dqekFxMlY3NzhZWDhCTzVnRjAxb05kU3F1MGdwZ2xEaklQZjhCWWpCenViTjBweU9zRkE0SlNGNzdNWG5MQlBUdHpmTGwyLWRyeUtBc1dEemFR0gHnAUFVX3lxTE9xU0NsZVVTUUVtVGJxTmQtUGZ0ZzloMTNicDJPRndZd3d6eGtOa2pnYXo4cFBzZmJyWlpYNGp4eUxoYTVsYWZmeWVwQU1IUS13X3dmWm1Sb3VYbVNySjljZVZTZFNVdGdqbktlc2dxTExCZzFRV29KT0Q5ZXI4R0hRTmcwSVpsTm9NNVpfM0k5UVpDclJrSE0takJsclRlQWNkY2diTE8yNGJ1TWFLRng5anEwcXJpQjRfa05mOVg3Yk82X0ItZXM4T2pheFV6UUhYTm8tZWg2c1hGbmVpZEdmQjRmcVZuUQ?oc=5"
+---
+
+Anvay Dravid, Aaryavir Sehwag named in India squad for U19 Asia Cup The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4gFBVV95cUxQb1RwbUxRekdQSmFseFRNemdBM1FXM19mdVYtS2QyaUpCeVI3YnBzU0tyVlNCLW4xZkg1Z01sbkdhWTgxYzdGdkNrdW54RkhOakJZV2JESVN3Y0pUd0NJNHRFa3d5LU1NTXZOcU1ZNEh6T3hBNEFwejlsNDdUUTQwZFRraThJUFIzc1pOUTN0M2dqekFxMlY3NzhZWDhCTzVnRjAxb05kU3F1MGdwZ2xEaklQZjhCWWpCenViTjBweU9zRkE0SlNGNzdNWG5MQlBUdHpmTGwyLWRyeUtBc1dEemFR0gHnAUFVX3lxTE9xU0NsZVVTUUVtVGJxTmQtUGZ0ZzloMTNicDJPRndZd3d6eGtOa2pnYXo4cFBzZmJyWlpYNGp4eUxoYTVsYWZmeWVwQU1IUS13X3dmWm1Sb3VYbVNySjljZVZTZFNVdGdqbktlc2dxTExCZzFRV29KT0Q5ZXI4R0hRTmcwSVpsTm9NNVpfM0k5UVpDclJrSE0takJsclRlQWNkY2diTE8yNGJ1TWFLRng5anEwcXJpQjRfa05mOVg3Yk82X0ItZXM4T2pheFV6UUhYTm8tZWg2c1hGbmVpZEdmQjRmcVZuUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

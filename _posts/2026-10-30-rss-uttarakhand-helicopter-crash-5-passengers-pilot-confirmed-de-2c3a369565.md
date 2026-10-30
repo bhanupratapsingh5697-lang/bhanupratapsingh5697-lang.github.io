@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Uttarakhand Helicopter Crash: 5 Passengers, Pilot Confirmed Dead; Charred Bodies Found - News18"
+date: 2026-10-30 17:08:40 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxNeERmUmphQk11bzlOc19wMlZzM3Q1QkZIdnhjOTNZQlcyOHYtMW1nRUtlXzJ2ZHJtUEZKVkhKSG9JV3pyUHk5N2M0eWRGX3VEYWhaVlU5N1o2QTlkYjlEWjJKb25xWVpwMzloRGF6b09ta21Na1pSazhTOEdFeTZoVktBQ0t6WDFCVVl6Y0hrU05qbGRacTE0MU1zSmdPUVFRUnRTXzV6X3pkTjZvc2JmQzRvTUpkcnl3VXNTc2w0YWktQjhh0gHKAUFVX3lxTFBLd0dwdXRjX2ZaaGVMUzNKWEhJM0tEeEEtNTdIZjRYZHprb1pjb2pmT1NBbGVSVW1XUm5MQ3hCLWU4bnkwRXFhTVVIYXJKN0hWOHJfckVRTWJkeVZEX1BYeWJya0VJZ0RFQVdvVHJiWFdlSWxFQ0U3SkYya3ZFRjZHb3RwZk9OQlhJSWFWUF9CMHVHVzFTUG1rR2w4QzdkaWpkSnUzVFFfUUVjT05PSWhHbDdxX0FWcDBtYWhGcFRQWWwzYkFiMlh4Z1E?oc=5"
+---
+
+Uttarakhand Helicopter Crash: 5 Passengers, Pilot Confirmed Dead; Charred Bodies Found News18
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxNeERmUmphQk11bzlOc19wMlZzM3Q1QkZIdnhjOTNZQlcyOHYtMW1nRUtlXzJ2ZHJtUEZKVkhKSG9JV3pyUHk5N2M0eWRGX3VEYWhaVlU5N1o2QTlkYjlEWjJKb25xWVpwMzloRGF6b09ta21Na1pSazhTOEdFeTZoVktBQ0t6WDFCVVl6Y0hrU05qbGRacTE0MU1zSmdPUVFRUnRTXzV6X3pkTjZvc2JmQzRvTUpkcnl3VXNTc2w0YWktQjhh0gHKAUFVX3lxTFBLd0dwdXRjX2ZaaGVMUzNKWEhJM0tEeEEtNTdIZjRYZHprb1pjb2pmT1NBbGVSVW1XUm5MQ3hCLWU4bnkwRXFhTVVIYXJKN0hWOHJfckVRTWJkeVZEX1BYeWJya0VJZ0RFQVdvVHJiWFdlSWxFQ0U3SkYya3ZFRjZHb3RwZk9OQlhJSWFWUF9CMHVHVzFTUG1rR2w4QzdkaWpkSnUzVFFfUUVjT05PSWhHbDdxX0FWcDBtYWhGcFRQWWwzYkFiMlh4Z1E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

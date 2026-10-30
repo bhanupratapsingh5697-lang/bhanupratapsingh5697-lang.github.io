@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'BJP rationalising Chinese actions': Congress slams Pema Khandu’s remark on India-China border - Telegraph India"
+date: 2026-10-30 19:49:16 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxPalBpZ3ZLeS16WjYzZFNoNHkwNXpoV2VPTDR5SjlUdW5ZYlhyQU5iaXVyY0JVTTEyeFdldmU2YVBrR2IzR3czV3BHOWVLQm0xS1YwWWhKcVVOQnpPY3RHRi1qMUplbXVDeldJWFNyQVVmQ0hUdmRPa1VSOXJjaGZWcUFNbE5mZUY5UXo2VHlKTVRSdFBfZzNqOUZHeG8wYU1HNGNVOFhHTFhXSVNkaUR3cVhycXdOeFo1VGVMS3NlMElqbHM2U1pwOTVhbkM3cnh0VldSeNIB2gFBVV95cUxNa1Rob1NyODZ0ajAyOFlXdzhuS0VVSFpGREl0Xy1paWdqenFBdDJqU0g0N08xcl9rWG1aaDdrdnBaU2wwa1VUOUoxQUlaUmFoZW1QdE9fdmhxcjJ6WDQ0cWx5YUpicllGR3JLQ3I0c3MzbkV6NDVoQ2FDa2E4TTBNaWQtMVQ0bElfVjBtS0l5bHFlVktCczhxTlNxUl9Vb0tVWE4tc0ZMRDFOVEVpMUxxMV9RczZFZ1U0UXRlMzRtU2I1Y0NOTFdmcjdrNEYwYVZSQTl1N1BpZ1VpQQ?oc=5"
+---
+
+'BJP rationalising Chinese actions': Congress slams Pema Khandu’s remark on India-China border Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPalBpZ3ZLeS16WjYzZFNoNHkwNXpoV2VPTDR5SjlUdW5ZYlhyQU5iaXVyY0JVTTEyeFdldmU2YVBrR2IzR3czV3BHOWVLQm0xS1YwWWhKcVVOQnpPY3RHRi1qMUplbXVDeldJWFNyQVVmQ0hUdmRPa1VSOXJjaGZWcUFNbE5mZUY5UXo2VHlKTVRSdFBfZzNqOUZHeG8wYU1HNGNVOFhHTFhXSVNkaUR3cVhycXdOeFo1VGVMS3NlMElqbHM2U1pwOTVhbkM3cnh0VldSeNIB2gFBVV95cUxNa1Rob1NyODZ0ajAyOFlXdzhuS0VVSFpGREl0Xy1paWdqenFBdDJqU0g0N08xcl9rWG1aaDdrdnBaU2wwa1VUOUoxQUlaUmFoZW1QdE9fdmhxcjJ6WDQ0cWx5YUpicllGR3JLQ3I0c3MzbkV6NDVoQ2FDa2E4TTBNaWQtMVQ0bElfVjBtS0l5bHFlVktCczhxTlNxUl9Vb0tVWE4tc0ZMRDFOVEVpMUxxMV9RczZFZ1U0UXRlMzRtU2I1Y0NOTFdmcjdrNEYwYVZSQTl1N1BpZ1VpQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
