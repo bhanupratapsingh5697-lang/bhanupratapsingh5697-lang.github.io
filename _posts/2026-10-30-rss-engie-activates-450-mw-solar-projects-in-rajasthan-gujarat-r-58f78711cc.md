@@ -1,0 +1,17 @@
+---
+layout: post
+title: "ENGIE Activates 450 MW Solar Projects in Rajasthan & Gujarat - Rediff MoneyWiz"
+date: 2026-10-30 16:17:43 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxQTGQ1WWpmaHpoQzJTRGMzUWNDTGFRYjhBVGdUQk1sSU1rd3JZUzMyVEFoZ0QtOG9KYmtGb2R5N3JXVWFneGZXMElrX090MzRZUDVBbTVVM3JIYnJpc1JaT0JPY0pCYXl5VHRyOHcwenNpUURncmU5a19BN2JoSkhOS1FMc1lJaHUxbWJoSnk1MDljT3ktdUttQWdkRi1meXhWMGlhUlpNWUl0ejIxbmdN0gG0AUFVX3lxTFBYX2hkQ1NuSVF2WENTMzZmTVlSd3dxU3F5eVgyMkpQVVQ2Ym9XQmQtemRQU0Rvb1A1Y2FHX3NodDlkdmVJdXNXZHBRLVpiLUpkZUVPZTJJQ080TWkwcUFZdHVKQ1hPd1FBaDlNbXpzWWlfbkFVZFc3OV9jZHJvUGN4VFg1bnhkdFJCbFdBN1FoYUI3Q2p2bV9EdU5EUW9xMmRDNjBwTS1FRHU5X2NXMnZJYk1uNw?oc=5"
+---
+
+ENGIE Activates 450 MW Solar Projects in Rajasthan & Gujarat Rediff MoneyWiz
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxQTGQ1WWpmaHpoQzJTRGMzUWNDTGFRYjhBVGdUQk1sSU1rd3JZUzMyVEFoZ0QtOG9KYmtGb2R5N3JXVWFneGZXMElrX090MzRZUDVBbTVVM3JIYnJpc1JaT0JPY0pCYXl5VHRyOHcwenNpUURncmU5a19BN2JoSkhOS1FMc1lJaHUxbWJoSnk1MDljT3ktdUttQWdkRi1meXhWMGlhUlpNWUl0ejIxbmdN0gG0AUFVX3lxTFBYX2hkQ1NuSVF2WENTMzZmTVlSd3dxU3F5eVgyMkpQVVQ2Ym9XQmQtemRQU0Rvb1A1Y2FHX3NodDlkdmVJdXNXZHBRLVpiLUpkZUVPZTJJQ080TWkwcUFZdHVKQ1hPd1FBaDlNbXpzWWlfbkFVZFc3OV9jZHJvUGN4VFg1bnhkdFJCbFdBN1FoYUI3Q2p2bV9EdU5EUW9xMmRDNjBwTS1FRHU5X2NXMnZJYk1uNw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

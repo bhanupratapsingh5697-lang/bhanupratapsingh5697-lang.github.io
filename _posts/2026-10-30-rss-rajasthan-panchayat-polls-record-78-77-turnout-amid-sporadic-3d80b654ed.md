@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan panchayat polls record 78.77% turnout amid sporadic violence - India Today"
+date: 2026-10-30 22:36:42 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxPQ0psTDJINHFqRjk5VnFzWEF4bnVQd3V0cE1RSU1Rb2FVMlQ4WHhuZDBnYnFFZVA0S0Zkang2WmVEVm5fNnRDazQ0eV9nSGZYTzhGVG5KSENZdG8yVzQzX21MeDNMSS1CWFhlRjdTNWxWMk9ndGhsMUdHTXpGN0tCcGRyVmtNUWNudzFWUnk4UkhzTkNFckwyTkNpX19iQzNtSEF2NFVISWxreXp0bHctVi0tY2pWZ3lRbzVoQkx5MTVTcTRGd0xNaUNn0gHPAUFVX3lxTE91MTR5bWFrdEdoM0MwT0VSQzVoeDFtSWVjREtGUzNJcHZPQzNMZDB5MmJXTVRJbDYwMFB6RktvQXp1VkVVTG9WNVQybEZKeDV1VHcxemlwaEJGZXRIX2c2WTVSYUhfT0Flb1pWNUVBeUxCMnA5aGN0dThTcFRLRmV4Z1dfU3A3OV9jN3lLdFF3M0JGWFpUbWt3dDl0NFNGZ05LY0hIYmZsN1poTmM3MGkzb0FkZFZqcXZxdHVRZGJaQlhBNnk4SnVKTTZidVV6Yw?oc=5"
+---
+
+Rajasthan panchayat polls record 78.77% turnout amid sporadic violence India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxPQ0psTDJINHFqRjk5VnFzWEF4bnVQd3V0cE1RSU1Rb2FVMlQ4WHhuZDBnYnFFZVA0S0Zkang2WmVEVm5fNnRDazQ0eV9nSGZYTzhGVG5KSENZdG8yVzQzX21MeDNMSS1CWFhlRjdTNWxWMk9ndGhsMUdHTXpGN0tCcGRyVmtNUWNudzFWUnk4UkhzTkNFckwyTkNpX19iQzNtSEF2NFVISWxreXp0bHctVi0tY2pWZ3lRbzVoQkx5MTVTcTRGd0xNaUNn0gHPAUFVX3lxTE91MTR5bWFrdEdoM0MwT0VSQzVoeDFtSWVjREtGUzNJcHZPQzNMZDB5MmJXTVRJbDYwMFB6RktvQXp1VkVVTG9WNVQybEZKeDV1VHcxemlwaEJGZXRIX2c2WTVSYUhfT0Flb1pWNUVBeUxCMnA5aGN0dThTcFRLRmV4Z1dfU3A3OV9jN3lLdFF3M0JGWFpUbWt3dDl0NFNGZ05LY0hIYmZsN1poTmM3MGkzb0FkZFZqcXZxdHVRZGJaQlhBNnk4SnVKTTZidVV6Yw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Polling underway for panch, sarpanch posts in over 3,000 Rajasthan villages - theprint"
+date: 2026-10-30 15:21:20 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirAFBVV95cUxPalRGRVk4bDRfSW1Pdmt2TlZqclZTNG9GQkJrLUY2eTFERDg5TG1Hek4xTU5QRnlhWl91ckptWEdqQXhNZjdSUVFvbVJSY2pOZmlyRWRtak56aTM5WFdhd0Nvd3FXMmtWTnVhN1hBdXZVY2EyR01aVEFDU2ZXdE1UX0l3VW5RcjlJY0JzM0thUURlOHVGTU03Uy1SZGxRVlcxZGpzSTUwakt2b1R30gGyAUFVX3lxTFBjVWNjQ2NzdXF1MlA4ZEN1ZEEyTmVaLXdhUEVFYmdmMXNhQnNOZkN4NWdtSDZrQVNBcXAzanl6V0dFUmhTWl9hUk9ZZjJVci1aYmdkalRDX2JIbU1xMEl0RUxST3diaTh4SmhYLWliRFNTM1EzdVlFY3VHMU9aSHFJUlZoLWs5cS05QnktOEVOVHhwU0s4YS1TRXpnWk5CU3BFckQ0Wm42M1lUTnhnTkV5a1E?oc=5"
+---
+
+Polling underway for panch, sarpanch posts in over 3,000 Rajasthan villages theprint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirAFBVV95cUxPalRGRVk4bDRfSW1Pdmt2TlZqclZTNG9GQkJrLUY2eTFERDg5TG1Hek4xTU5QRnlhWl91ckptWEdqQXhNZjdSUVFvbVJSY2pOZmlyRWRtak56aTM5WFdhd0Nvd3FXMmtWTnVhN1hBdXZVY2EyR01aVEFDU2ZXdE1UX0l3VW5RcjlJY0JzM0thUURlOHVGTU03Uy1SZGxRVlcxZGpzSTUwakt2b1R30gGyAUFVX3lxTFBjVWNjQ2NzdXF1MlA4ZEN1ZEEyTmVaLXdhUEVFYmdmMXNhQnNOZkN4NWdtSDZrQVNBcXAzanl6V0dFUmhTWl9hUk9ZZjJVci1aYmdkalRDX2JIbU1xMEl0RUxST3diaTh4SmhYLWliRFNTM1EzdVlFY3VHMU9aSHFJUlZoLWs5cS05QnktOEVOVHhwU0s4YS1TRXpnWk5CU3BFckQ0Wm42M1lUTnhnTkV5a1E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

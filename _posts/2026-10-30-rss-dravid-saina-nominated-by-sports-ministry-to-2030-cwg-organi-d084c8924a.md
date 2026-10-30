@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Dravid, Saina nominated by Sports Ministry to 2030 CWG Organising Committee - The New Indian Express"
+date: 2026-10-30 22:15:22 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxPNlRNa0t5UUFna1BvNkxrSWI3aUZzTUtkWFJtSUJxT0lockJQOE5aeDIyUnZUUm1VOUwtUldRVU1sYnVPZHp5aVVCWEp5bmFiOHJoUk9FZ05obzJIaGtSTlhUdU5aM1ZMTUJhMHdOVlkwM2EzcGU0UVZSeTFrVzFYRVZjYlhLWVhSX1IzTUtMT3hpbUYzc1lYSzVERHBHWjY3TkxySFlSWG81VGh6SHhITXBuWTU2SW0zajhqNUQyOURwTTFxbTgwblNMOHMwLTJxTDB5Ukt30gHjAUFVX3lxTFBsR2d0aGlLNkJ0MnVzMnFBRlRDZmpKU3ZjQXZJQkRXeVFjazFEN2UzNHh5bVBqT3RkWURnMlk4d3V0SkhONXZFb0d0Tlpkay13UzZDdV9ZMnpKWGRyZHktcVRLejZVQi1WSzNMM2FyOWRSWDVMZjNzckw1MnNiUnFnLVZ1Yzd2akpPazZLWlkxV0lfcU44X0RCV3BxQ3NsUzlzZ2ZiWUtkZDFXRjBYU1EwMmJfbG9oNEo1RmZhLW1Nc2RuekczeloxT0NnNHJvbW9XbzI5QU5EMUE1endlTElZQUpr?oc=5"
+---
+
+Dravid, Saina nominated by Sports Ministry to 2030 CWG Organising Committee The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPNlRNa0t5UUFna1BvNkxrSWI3aUZzTUtkWFJtSUJxT0lockJQOE5aeDIyUnZUUm1VOUwtUldRVU1sYnVPZHp5aVVCWEp5bmFiOHJoUk9FZ05obzJIaGtSTlhUdU5aM1ZMTUJhMHdOVlkwM2EzcGU0UVZSeTFrVzFYRVZjYlhLWVhSX1IzTUtMT3hpbUYzc1lYSzVERHBHWjY3TkxySFlSWG81VGh6SHhITXBuWTU2SW0zajhqNUQyOURwTTFxbTgwblNMOHMwLTJxTDB5Ukt30gHjAUFVX3lxTFBsR2d0aGlLNkJ0MnVzMnFBRlRDZmpKU3ZjQXZJQkRXeVFjazFEN2UzNHh5bVBqT3RkWURnMlk4d3V0SkhONXZFb0d0Tlpkay13UzZDdV9ZMnpKWGRyZHktcVRLejZVQi1WSzNMM2FyOWRSWDVMZjNzckw1MnNiUnFnLVZ1Yzd2akpPazZLWlkxV0lfcU44X0RCV3BxQ3NsUzlzZ2ZiWUtkZDFXRjBYU1EwMmJfbG9oNEo1RmZhLW1Nc2RuekczeloxT0NnNHJvbW9XbzI5QU5EMUE1endlTElZQUpr?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Virat Kohli's Agilitas Stake Rises After One8 Sports Merger - Rediff MoneyWiz"
+date: 2026-10-30 21:01:54 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMisAFBVV95cUxPbV90MHRYZXpZMkNtVFl3SHhVMFU5VktKbEdmajNuWUdrcDNad0dleXR6MnhsU1lKdEpvZ0d5WHVYWlY4aFdDUkVtVmRDUFM1dzBEUnluWVlGQ1p6SFVzaVRKQkk1d3E5X0FEbHdyLWxxWDd2MU90bHNtWVM4RUFfMUN6SzBRLS1lZ3NnT3ZPcUR6RUMzeTRxN3c5Q0huY0tuSDB0T3hBbGRMNE9URXBvOdIBtgFBVV95cUxOanhrdlVkQ29CVUlyWWc2VU10a185V1MxYVlTVHBqUTFEWE40V0xlcmJaVTdIb3lSaDFtSXA5YnNIV3VzcTZPZG9Td2FKTUtRbEtjVXc2U0VldlpQOVlEeG01LWdFdVdpZWFrdHhBMVg5eDhra3NjV2xoNnhlTWNxRmVkeXljeG9qdFM4WG5RTXlDc3BGT3FyZERTVWpEYURWUktucDlLMW9XU0QxTDdNN0dkUnZqdw?oc=5"
+---
+
+Virat Kohli's Agilitas Stake Rises After One8 Sports Merger Rediff MoneyWiz
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisAFBVV95cUxPbV90MHRYZXpZMkNtVFl3SHhVMFU5VktKbEdmajNuWUdrcDNad0dleXR6MnhsU1lKdEpvZ0d5WHVYWlY4aFdDUkVtVmRDUFM1dzBEUnluWVlGQ1p6SFVzaVRKQkk1d3E5X0FEbHdyLWxxWDd2MU90bHNtWVM4RUFfMUN6SzBRLS1lZ3NnT3ZPcUR6RUMzeTRxN3c5Q0huY0tuSDB0T3hBbGRMNE9URXBvOdIBtgFBVV95cUxOanhrdlVkQ29CVUlyWWc2VU10a185V1MxYVlTVHBqUTFEWE40V0xlcmJaVTdIb3lSaDFtSXA5YnNIV3VzcTZPZG9Td2FKTUtRbEtjVXc2U0VldlpQOVlEeG01LWdFdVdpZWFrdHhBMVg5eDhra3NjV2xoNnhlTWNxRmVkeXljeG9qdFM4WG5RTXlDc3BGT3FyZERTVWpEYURWUktucDlLMW9XU0QxTDdNN0dkUnZqdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
