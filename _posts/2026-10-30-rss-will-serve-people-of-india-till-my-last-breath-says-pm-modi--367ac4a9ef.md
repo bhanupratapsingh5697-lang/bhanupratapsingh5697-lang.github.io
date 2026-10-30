@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Will serve people of India till my last breath, says PM Modi days after Kharge's 'baap' remark - The New Indian Express"
+date: 2026-10-30 16:37:18 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxOZUY0NTJGRmh6bUpSMEJXTXJWQk5rRi1RR195OHZ5Z0lsMG4xNVlqVmFyMDQ2aTZDMFU4aTZZMUI3OGgwaG5PMGRxeXphOE1GNFVIX0RZYmV1bGw4enFkRDBJSmV4U0toU1VmX3lPOFVmTEotdjZGblhHN0lHcGluaWVNUEszcERPeEpSLXZhUGpOREtfYTZaTDlQcEFudWlBbS10SDA4TktGM0NkZVVCSWlQcGEzSHEyRjNnNTJLelZCemdOb2tza05FRnJwUTYtLUx2QVNQQTLSAeYBQVVfeXFMTkdDZVBRRFd3MlZyeV9WYkIyUDJZNmFFTGVLYU8zOFg1dmFKZ1RmeFN0MUphdXN1WWZ1Q3g0OVRaNEhpRWp2UEM1OHVFYVQ4Sk81LURGMklaVEVuU1RUbGhocmpBLUdWNk5zaE1NQmpkaHBIZm5STHdqYkFMbTRPOEg4UVlzdW5ENVc4NGk3WFNvQ1NiWHNpdzZDbXBDck5zdFhWc3RBczdKTy1hSUxsdm1yX045dEwyTWpwc0pQOE1raWpkaTYwbmNQR3lnVzUzaUpSMzBUUVpwZjh5Y0duR002YWFpQ3c?oc=5"
+---
+
+Will serve people of India till my last breath, says PM Modi days after Kharge's 'baap' remark The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOZUY0NTJGRmh6bUpSMEJXTXJWQk5rRi1RR195OHZ5Z0lsMG4xNVlqVmFyMDQ2aTZDMFU4aTZZMUI3OGgwaG5PMGRxeXphOE1GNFVIX0RZYmV1bGw4enFkRDBJSmV4U0toU1VmX3lPOFVmTEotdjZGblhHN0lHcGluaWVNUEszcERPeEpSLXZhUGpOREtfYTZaTDlQcEFudWlBbS10SDA4TktGM0NkZVVCSWlQcGEzSHEyRjNnNTJLelZCemdOb2tza05FRnJwUTYtLUx2QVNQQTLSAeYBQVVfeXFMTkdDZVBRRFd3MlZyeV9WYkIyUDJZNmFFTGVLYU8zOFg1dmFKZ1RmeFN0MUphdXN1WWZ1Q3g0OVRaNEhpRWp2UEM1OHVFYVQ4Sk81LURGMklaVEVuU1RUbGhocmpBLUdWNk5zaE1NQmpkaHBIZm5STHdqYkFMbTRPOEg4UVlzdW5ENVc4NGk3WFNvQ1NiWHNpdzZDbXBDck5zdFhWc3RBczdKTy1hSUxsdm1yX045dEwyTWpwc0pQOE1raWpkaTYwbmNQR3lnVzUzaUpSMzBUUVpwZjh5Y0duR002YWFpQ3c?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

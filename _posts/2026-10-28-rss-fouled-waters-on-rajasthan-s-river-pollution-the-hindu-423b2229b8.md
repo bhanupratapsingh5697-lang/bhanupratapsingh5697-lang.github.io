@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Fouled waters: On Rajasthan’s river pollution - The Hindu"
+date: 2026-10-28 00:10:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxNN0dPVU11RV96ODhjUGVkYVQwbVdVcW9rdWJuS25MUHAzUUJOeUc1S0Z3RHg3UXJFUVhoWjB4bTVtM19PSDAwdlVuelBiYktoREZOcmhSWHVWTVR2LVl3LVZueE5RSi1BOEVZSXRmOExnbTYxZEdISkZ2MnVFRENIaHozc2pDTXJaU0wwa1FNc245bmZIbzJaMXR2ZzBNbzc2eUtsNEZ0X1pkd9IBsAFBVV95cUxQZjFSWmFYSjkxd3gtZURfTVBoLUoxU3NsUU9fbGRoREU2MFVVaDItc0hsQlZnSThJQmJKaFYySG9sYTFhMDhEdFg3aHhieHRURGdqSXBvaVdGMkxXV2lHNU9RZ3I4SHRKWUU4dzMwNk9nNDhnaE1sWUJBc21zYmFGYkFMaUtZQXBOWTJSZ0kyb1FYb05zMmhBdmJvY2RTMDhqdFRIeDZYNENyenJrZllCVQ?oc=5"
+---
+
+Fouled waters: On Rajasthan’s river pollution The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNN0dPVU11RV96ODhjUGVkYVQwbVdVcW9rdWJuS25MUHAzUUJOeUc1S0Z3RHg3UXJFUVhoWjB4bTVtM19PSDAwdlVuelBiYktoREZOcmhSWHVWTVR2LVl3LVZueE5RSi1BOEVZSXRmOExnbTYxZEdISkZ2MnVFRENIaHozc2pDTXJaU0wwa1FNc245bmZIbzJaMXR2ZzBNbzc2eUtsNEZ0X1pkd9IBsAFBVV95cUxQZjFSWmFYSjkxd3gtZURfTVBoLUoxU3NsUU9fbGRoREU2MFVVaDItc0hsQlZnSThJQmJKaFYySG9sYTFhMDhEdFg3aHhieHRURGdqSXBvaVdGMkxXV2lHNU9RZ3I4SHRKWUU4dzMwNk9nNDhnaE1sWUJBc21zYmFGYkFMaUtZQXBOWTJSZ0kyb1FYb05zMmhBdmJvY2RTMDhqdFRIeDZYNENyenJrZllCVQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

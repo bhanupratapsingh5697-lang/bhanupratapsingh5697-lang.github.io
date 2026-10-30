@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rahul Gandhi outlines INDIA bloc march; BJP counters him with ‘Pakistan’ jibe, ‘anarchy’ charge - Telegraph India"
+date: 2026-10-30 18:02:49 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxPSjBYcEhCQkd4bzBFN21XYXVZeHVBX3VDRmhqWUpVMjFwa3c2NXN6Z05vSWFxTEVKakZzdnZxcTFIM3F4X2NWblRHNENSZl96UjNyX0R3emxuTVlsUVZmRnpsbWhpSHR6VDZLSXpXTmo3bVpGS2daNk5CTm56Q3QtVE1rNjZuSnByQWREREFxWU9lSFpwTTdwZ1pLYUoyUE4tWVJSUWxyUjFBeG1wM3FqVlhyUUNwUGQ1LUZqUFRoQ1pvZDUyY2MyNVZRdWZVSllKbWRvNdIB2gFBVV95cUxONjBFZDBvQXBsS3R4aS1jTVZ6WjNyVmZ1dGUwY3N0clF1YlA2N0g0Q1RmcUxSTW1YWDNlTS0yTTVfTE1LM3lzbmNnX0dOTHV0VFRVanA1bTNSTTFic3k0OTEtRUNJeUc1d3FpWnI1cXExVHFBT2VVNWNsdVExTjNQNjlzdzVtdmJZU09lWDR0RXlFQTJtR1dHbmdGczk2MlhmWWN2XzlUemtjYUtVMjZDUVBtYXFfWDZmUkg4QlVQb0F4WEt2QU9VOHB6bGhWcENIbG5ydVFkYkdTUQ?oc=5"
+---
+
+Rahul Gandhi outlines INDIA bloc march; BJP counters him with ‘Pakistan’ jibe, ‘anarchy’ charge Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPSjBYcEhCQkd4bzBFN21XYXVZeHVBX3VDRmhqWUpVMjFwa3c2NXN6Z05vSWFxTEVKakZzdnZxcTFIM3F4X2NWblRHNENSZl96UjNyX0R3emxuTVlsUVZmRnpsbWhpSHR6VDZLSXpXTmo3bVpGS2daNk5CTm56Q3QtVE1rNjZuSnByQWREREFxWU9lSFpwTTdwZ1pLYUoyUE4tWVJSUWxyUjFBeG1wM3FqVlhyUUNwUGQ1LUZqUFRoQ1pvZDUyY2MyNVZRdWZVSllKbWRvNdIB2gFBVV95cUxONjBFZDBvQXBsS3R4aS1jTVZ6WjNyVmZ1dGUwY3N0clF1YlA2N0g0Q1RmcUxSTW1YWDNlTS0yTTVfTE1LM3lzbmNnX0dOTHV0VFRVanA1bTNSTTFic3k0OTEtRUNJeUc1d3FpWnI1cXExVHFBT2VVNWNsdVExTjNQNjlzdzVtdmJZU09lWDR0RXlFQTJtR1dHbmdGczk2MlhmWWN2XzlUemtjYUtVMjZDUVBtYXFfWDZmUkg4QlVQb0F4WEt2QU9VOHB6bGhWcENIbG5ydVFkYkdTUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

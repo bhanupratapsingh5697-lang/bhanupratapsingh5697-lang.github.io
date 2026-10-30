@@ -1,0 +1,17 @@
+---
+layout: post
+title: "JSW Sports lands Kajaria, CREX and others as Hong Kong Sixes partners - Business Standard"
+date: 2026-10-30 13:30:40 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxPSzk5N2NFOHFTZnNIYXRBakJvN1BTWDZUWDdBRV9KaEJtYkpKN0NUeFZ5YnlGZnB3ZVJoYnRJRjkzaG5rMldnMEdKaEZ6Q2JTamJfYnFLV3MzRUdEZlVNUkxYd0EzaDhHWUFNVzFCcGxPTWEtQ2VWc0dLSmFLaUd6TWRUbXhleTE1czdvN2M4Wm8zdWMxcFcyb2hUZHREbElLaUllVWFDNmhSdnRfZjhlWlIwcVdSR01uSUd5YlhkQlhPVWNhUlBCQmpHamdaZXJrMVJhMtIB2gFBVV95cUxNY19WeDVGUUVrY01jYVlrVG03eXBRQzk1cWNTV0xFUkZ1R3otSjB6VWUwWmdvdDZYOXFJTmJGVGttVWY5c3NpQzEtTm1UbzdLYzZKeVNJUVc1QkljMk5JTmxFTTN1ZnZrZUxBN3BQakZISlN6OVpYUl9ieVhYckJhMmNZSjFlcjZUaDdfdFd1dG5nRWhfS0tlbGVRcFVVYk5pVjRDeHd3QTg2M0d5Z003T2E2YjA1NFVyM1hNaWtQNG1KMEVLRTRiUG4zU0N6S2pVcjIzRGpINjAyZw?oc=5"
+---
+
+JSW Sports lands Kajaria, CREX and others as Hong Kong Sixes partners Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPSzk5N2NFOHFTZnNIYXRBakJvN1BTWDZUWDdBRV9KaEJtYkpKN0NUeFZ5YnlGZnB3ZVJoYnRJRjkzaG5rMldnMEdKaEZ6Q2JTamJfYnFLV3MzRUdEZlVNUkxYd0EzaDhHWUFNVzFCcGxPTWEtQ2VWc0dLSmFLaUd6TWRUbXhleTE1czdvN2M4Wm8zdWMxcFcyb2hUZHREbElLaUllVWFDNmhSdnRfZjhlWlIwcVdSR01uSUd5YlhkQlhPVWNhUlBCQmpHamdaZXJrMVJhMtIB2gFBVV95cUxNY19WeDVGUUVrY01jYVlrVG03eXBRQzk1cWNTV0xFUkZ1R3otSjB6VWUwWmdvdDZYOXFJTmJGVGttVWY5c3NpQzEtTm1UbzdLYzZKeVNJUVc1QkljMk5JTmxFTTN1ZnZrZUxBN3BQakZISlN6OVpYUl9ieVhYckJhMmNZSjFlcjZUaDdfdFd1dG5nRWhfS0tlbGVRcFVVYk5pVjRDeHd3QTg2M0d5Z003T2E2YjA1NFVyM1hNaWtQNG1KMEVLRTRiUG4zU0N6S2pVcjIzRGpINjAyZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

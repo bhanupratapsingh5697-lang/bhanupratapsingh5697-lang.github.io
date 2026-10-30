@@ -1,0 +1,17 @@
+---
+layout: post
+title: "TN govt inaugurates Rs 42.90-crore Olympic aquatics academy in Ramanathapuram, Rs 20-crore sports complex in Salem - DT Next"
+date: 2026-10-30 17:36:03 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi4wFBVV95cUxOZVZJbUZfLXU4UDR4ODI5V1kwRmFzdDMyT2w1bDQzRE1lelJWSXFWejg3U3V6eXZBeHFqN01KejhRUEdiVk9QUFNSMjdBdU5rLWRYRU5iOWtzbjgzbFdKZEtqeF85Q2FQaURxU2hxWFBzQkI0MTlta2pTamZfQkVBemVvMU5ybXUtY3cybDh0Q3JCN3lET0RGRENOcFQ2NTFrWXcyVnhmbWZ0cHB0QU9JdU9uOXNUR2JsX0F4SFpCdGZOS3E0NTFyaWphQ3RZbnFGRnFvWjdxeXp1Zm1OLWgzN3lxa9IB8AFBVV95cUxQTW1Lbm1xcmFRVlVIT2dCc0FmcncwSjNBWDZEZW1QNWtZQnlvWWlNR2ZSRmlBdjJzOGs5R3hYalVHY3B5NGdKTUZNX1ZfcFh0RXdSem01bDMwWmtrYnA4eURGYThLekRjXzRDbzEtYlUxUzRTT29aNVJmSVNuMXVBNzhIcjlrbHhrNWQ2ZW1YMDhPNHZSaG0weHdUMElVbnhXa283SWp6dHZxa2NEcThDNDJxNEtrNk5GUlBWUWRXU0pNRnZUZnNzbkpBSm9jekhHOE00cTdPSk1zSm9tQzE2N3JsZnkxRHRYSVBHVV9uRGI?oc=5"
+---
+
+TN govt inaugurates Rs 42.90-crore Olympic aquatics academy in Ramanathapuram, Rs 20-crore sports complex in Salem DT Next
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4wFBVV95cUxOZVZJbUZfLXU4UDR4ODI5V1kwRmFzdDMyT2w1bDQzRE1lelJWSXFWejg3U3V6eXZBeHFqN01KejhRUEdiVk9QUFNSMjdBdU5rLWRYRU5iOWtzbjgzbFdKZEtqeF85Q2FQaURxU2hxWFBzQkI0MTlta2pTamZfQkVBemVvMU5ybXUtY3cybDh0Q3JCN3lET0RGRENOcFQ2NTFrWXcyVnhmbWZ0cHB0QU9JdU9uOXNUR2JsX0F4SFpCdGZOS3E0NTFyaWphQ3RZbnFGRnFvWjdxeXp1Zm1OLWgzN3lxa9IB8AFBVV95cUxQTW1Lbm1xcmFRVlVIT2dCc0FmcncwSjNBWDZEZW1QNWtZQnlvWWlNR2ZSRmlBdjJzOGs5R3hYalVHY3B5NGdKTUZNX1ZfcFh0RXdSem01bDMwWmtrYnA4eURGYThLekRjXzRDbzEtYlUxUzRTT29aNVJmSVNuMXVBNzhIcjlrbHhrNWQ2ZW1YMDhPNHZSaG0weHdUMElVbnhXa283SWp6dHZxa2NEcThDNDJxNEtrNk5GUlBWUWRXU0pNRnZUZnNzbkpBSm9jekhHOE00cTdPSk1zSm9tQzE2N3JsZnkxRHRYSVBHVV9uRGI?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

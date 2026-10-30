@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Gujarat, Rajasthan declare drought in 18 districts as rainfall deficit hits farmers - Down To Earth"
+date: 2026-10-27 15:29:21 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxPcjUxbnU0TmJEQnM2a0hIcGRVOU9ZTElyRWM3SVJlYWF0UFlpS3RQVndPRWF2R2t3MU55UjI3d3QzUHBBMG1jN3EyOGxRWVIzeFdNV2dHTHJ6VnE1dUZUeVJzQWdXclJLclpmVU1qZldPbkttam5SckE3QTg2N2VtQ29LZXJORlUtRnFYSFB1YzBkblpxamdndGhERWZOcVJELUh4emQtUGJuc18xUFMwcDg0QV91cHIwTy00VGNPMUoyWmdHTHNF0gHUAUFVX3lxTE4zelJzZXJ1Y0pVb25GZ0gzVnVTN3pIdDczSUhtT010Nko2N05udTFXcEROck5QaWcxYXFVNF8xb2N1NWZWNU1tcFU1aHdWdTAwd19zUXYzNXRMc2Q3TTd1NUFhWHBBbGJLVnBXcUJyaFFCODhlODlTNW5RTDR0ZXY1STNNQnZQVnR6OVVjOWxfclF5QXVLN0hXdENCLUlhZko1OHI4NmlWWTJiazJPTEFReE9yemR5Q1BKN0tfTTA4eHVHdk44OGoxblBNLVJLQllXdmZ4?oc=5"
+---
+
+Gujarat, Rajasthan declare drought in 18 districts as rainfall deficit hits farmers Down To Earth
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxPcjUxbnU0TmJEQnM2a0hIcGRVOU9ZTElyRWM3SVJlYWF0UFlpS3RQVndPRWF2R2t3MU55UjI3d3QzUHBBMG1jN3EyOGxRWVIzeFdNV2dHTHJ6VnE1dUZUeVJzQWdXclJLclpmVU1qZldPbkttam5SckE3QTg2N2VtQ29LZXJORlUtRnFYSFB1YzBkblpxamdndGhERWZOcVJELUh4emQtUGJuc18xUFMwcDg0QV91cHIwTy00VGNPMUoyWmdHTHNF0gHUAUFVX3lxTE4zelJzZXJ1Y0pVb25GZ0gzVnVTN3pIdDczSUhtT010Nko2N05udTFXcEROck5QaWcxYXFVNF8xb2N1NWZWNU1tcFU1aHdWdTAwd19zUXYzNXRMc2Q3TTd1NUFhWHBBbGJLVnBXcUJyaFFCODhlODlTNW5RTDR0ZXY1STNNQnZQVnR6OVVjOWxfclF5QXVLN0hXdENCLUlhZko1OHI4NmlWWTJiazJPTEFReE9yemR5Q1BKN0tfTTA4eHVHdk44OGoxblBNLVJLQllXdmZ4?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

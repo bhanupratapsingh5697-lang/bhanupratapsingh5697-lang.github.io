@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Bought 40 villas and cottages from 1 company': Why IAS officer Shikhar Agrawal is under APO - The Times of India"
+date: 2026-10-30 00:54:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxPMzlIbmZQRjZ5RGp5cVk0d2JoM2tiOVB3c1RXZjJxa0ROeXZPODN0QkxGTnFQSS12U1VYeVJZWGVBb1luRzJCX3I0c3g4R3RIWXNJUUk3M2k5YkVORmw5M056cGpGakw1TC0teXhiSTZPNjJEaVZuSWRkX1ZwTUxKazA3NUU4M1ptWjBCMXg0TGd3OVdkNjg4TlZGT1NHSnktbTVUcGZ6YWdIZ2ktaTBRWkZnWmtTT1VfZExIRDBJUDNjZVJVaG5xVWh4RE5wZ3RyYUZlWHRFMTBnd9IB3wFBVV95cUxNU3JYMFdmSTZGT1BISTFaMkhWcGl4eWphSXBselhFbmFFTWR0TVdLblhnbEtLSmFzdGlTOXU4MFRkTDM1eTNmZkVxM1RCUmNpUnhXUEVvM091T2RENW0xeHB4YVVWbWhmdkdzV0VfcmtuSkFKWDVKSXpxUEhVQU1pbTdxZndxNTdRbGlreWFLRnBNclNwaXhpWC1FT1hPeTMtN181a3I3NGdmd3lLUE4wYzFxMFJCeWVCM0Q4cmF3amRFbnVrOGdpNnVsNGRCak81OFppaVJSRmRpZURsUXBF?oc=5"
+---
+
+'Bought 40 villas and cottages from 1 company': Why IAS officer Shikhar Agrawal is under APO The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPMzlIbmZQRjZ5RGp5cVk0d2JoM2tiOVB3c1RXZjJxa0ROeXZPODN0QkxGTnFQSS12U1VYeVJZWGVBb1luRzJCX3I0c3g4R3RIWXNJUUk3M2k5YkVORmw5M056cGpGakw1TC0teXhiSTZPNjJEaVZuSWRkX1ZwTUxKazA3NUU4M1ptWjBCMXg0TGd3OVdkNjg4TlZGT1NHSnktbTVUcGZ6YWdIZ2ktaTBRWkZnWmtTT1VfZExIRDBJUDNjZVJVaG5xVWh4RE5wZ3RyYUZlWHRFMTBnd9IB3wFBVV95cUxNU3JYMFdmSTZGT1BISTFaMkhWcGl4eWphSXBselhFbmFFTWR0TVdLblhnbEtLSmFzdGlTOXU4MFRkTDM1eTNmZkVxM1RCUmNpUnhXUEVvM091T2RENW0xeHB4YVVWbWhmdkdzV0VfcmtuSkFKWDVKSXpxUEhVQU1pbTdxZndxNTdRbGlreWFLRnBNclNwaXhpWC1FT1hPeTMtN181a3I3NGdmd3lLUE4wYzFxMFJCeWVCM0Q4cmF3amRFbnVrOGdpNnVsNGRCak81OFppaVJSRmRpZURsUXBF?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

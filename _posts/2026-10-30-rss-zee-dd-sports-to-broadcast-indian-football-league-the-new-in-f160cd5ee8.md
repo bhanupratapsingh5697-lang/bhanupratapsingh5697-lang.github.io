@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Zee, DD sports to broadcast Indian football league - The New Indian Express"
+date: 2026-10-30 18:29:33 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxOZ0hJV0tRRXZjQlN0SnU3a1hmWmNtNlZRUGpVTGZhRkJFWjBlenZlbEktTnNubkt4M2RrbHdKd1NUdTBuV0RXZldYRFJXLU9aN0IxSlZxZWlacjcwalBGY3FxYlIzbEZENWlTNEE5TVFKbEJnYW1YVUV0UVNPMFZiOERFem90aDM0a3ZmdVJsWUpMU243dzRkbVNYMkE4NlNpZmg4YkhDcE9RYUdUY3BLZDF30gG_AUFVX3lxTE9RN0x1XzJmM0FlakxERTZNVDBDb1dsUE9WTmtkRzNrbmdWcWp4OVU4dWNZcGpiYlI0QUpYSnpYc2ZlOXdIRXFxalQ0dVNLVWVOYXJzcUlYVDdRZW1uQU5oUlBhcWlZc3dGSjMzeDYzTTg1aEdCNThETVRDTEJrTU5ZOUJLRV91S2lnZzBjRUhKc3ZfZGpjVXhxRmYxdVF1eFppaHB2X3BMVUlNUmJLdkJFb3JobWZIelI1SERob3V3?oc=5"
+---
+
+Zee, DD sports to broadcast Indian football league The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxOZ0hJV0tRRXZjQlN0SnU3a1hmWmNtNlZRUGpVTGZhRkJFWjBlenZlbEktTnNubkt4M2RrbHdKd1NUdTBuV0RXZldYRFJXLU9aN0IxSlZxZWlacjcwalBGY3FxYlIzbEZENWlTNEE5TVFKbEJnYW1YVUV0UVNPMFZiOERFem90aDM0a3ZmdVJsWUpMU243dzRkbVNYMkE4NlNpZmg4YkhDcE9RYUdUY3BLZDF30gG_AUFVX3lxTE9RN0x1XzJmM0FlakxERTZNVDBDb1dsUE9WTmtkRzNrbmdWcWp4OVU4dWNZcGpiYlI0QUpYSnpYc2ZlOXdIRXFxalQ0dVNLVWVOYXJzcUlYVDdRZW1uQU5oUlBhcWlZc3dGSjMzeDYzTTg1aEdCNThETVRDTEJrTU5ZOUJLRV91S2lnZzBjRUhKc3ZfZGpjVXhxRmYxdVF1eFppaHB2X3BMVUlNUmJLdkJFb3JobWZIelI1SERob3V3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Russia back in ice hockey world championships after sport court ruling - Al Jazeera"
+date: 2026-10-30 18:21:22 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxNTEV5STRMQ1dZRjJLQnV6UU9mMmlZdWszM1AteGpqbnRCQ2tMWWpOeXkzTjg3dWUySDRrbXgyWmplblJPOWhKZ2pPZGJTTFFWVWs2Z0dPTGpGcm15djNyMll1Zzh6NmxhUDRMREl6cnZ1LWtsTFhtbGR0WEJRUnV6QlpBR0RwMzk2YmZURll1UmFGZmR5TjFuWWpWV09kQkNfUUVUTTJ6bGRBQ0RrRm11ekdtaGzSAboBQVVfeXFMTktYVGl3NEMyZnRIRm5HbUNnaWVpSWhBTVhiZmVOOEd3MTliczE4cUQ1amNPQ1JENTZfOGR3cEpDSVc2ellDZEFHakhIUzQ0b2pidjk4aktyd3NZR0RzNkNzQjY2SC02VFM2T0FNMkpzcV91MU9hWmRWbkQzTVI2VjhHOHY1R0NWaTlPbjVBV2ZZbEg0M2wyT3RzQ3VOSDNacTNLNDNZOUpNejhfYjV4T2FFS2FSVkZubUhR?oc=5"
+---
+
+Russia back in ice hockey world championships after sport court ruling Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxNTEV5STRMQ1dZRjJLQnV6UU9mMmlZdWszM1AteGpqbnRCQ2tMWWpOeXkzTjg3dWUySDRrbXgyWmplblJPOWhKZ2pPZGJTTFFWVWs2Z0dPTGpGcm15djNyMll1Zzh6NmxhUDRMREl6cnZ1LWtsTFhtbGR0WEJRUnV6QlpBR0RwMzk2YmZURll1UmFGZmR5TjFuWWpWV09kQkNfUUVUTTJ6bGRBQ0RrRm11ekdtaGzSAboBQVVfeXFMTktYVGl3NEMyZnRIRm5HbUNnaWVpSWhBTVhiZmVOOEd3MTliczE4cUQ1amNPQ1JENTZfOGR3cEpDSVc2ellDZEFHakhIUzQ0b2pidjk4aktyd3NZR0RzNkNzQjY2SC02VFM2T0FNMkpzcV91MU9hWmRWbkQzTVI2VjhHOHY1R0NWaTlPbjVBV2ZZbEg0M2wyT3RzQ3VOSDNacTNLNDNZOUpNejhfYjV4T2FFS2FSVkZubUhR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

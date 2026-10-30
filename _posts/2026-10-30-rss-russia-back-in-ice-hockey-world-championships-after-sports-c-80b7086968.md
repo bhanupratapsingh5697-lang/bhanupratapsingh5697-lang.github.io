@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Russia Back in Ice Hockey World Championships After Sports Court Ruling - Deccan Chronicle"
+date: 2026-10-30 17:47:22 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxNWHhkVlFYSktiYTZTRVlmZ1pQY2xsT25kcFZhVUFCNEF0MUJZYUVxZXUxVVFfLVBKaFM4SkplUVJQamRVemFhTjFpWVR6T09MNHFmUnVCd1NhMXpKYmhrYUZHc1FnRzQ0bU9GRlZLRDF0aUFSa3dlcnRzbnRoWldUWEVPZm1Lalc2eDI0VnI5ZUYyTUl1aHZxUUJUUGhXY0NYZkpaLXZmYmVUbDdTcGs2OFd1Y0JKb0ZYNFHSAb8BQVVfeXFMUEV5akdYdUZaalc2MmV4dGItX20zNThhTDBGckw2eHJ1MjJiQ1lBaWlyUC1Nc0hhall3TGlXTUhiZjdrTEc1SXE1aGFhSFI4MHBJenhkcU9QWXF6eW1BcjFfZlp6ZDREUVVKQW1JUkpFeXFjNzhLd2o2V2VWNG01c3ZsWnExMms5X2wxOXhBbS15MVRmdjV6N1dzWERPQU5fQVl0Y1R3SU9iTEhjTGNaM25HbDE2UWdvOVVJOWhOcnc?oc=5"
+---
+
+Russia Back in Ice Hockey World Championships After Sports Court Ruling Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxNWHhkVlFYSktiYTZTRVlmZ1pQY2xsT25kcFZhVUFCNEF0MUJZYUVxZXUxVVFfLVBKaFM4SkplUVJQamRVemFhTjFpWVR6T09MNHFmUnVCd1NhMXpKYmhrYUZHc1FnRzQ0bU9GRlZLRDF0aUFSa3dlcnRzbnRoWldUWEVPZm1Lalc2eDI0VnI5ZUYyTUl1aHZxUUJUUGhXY0NYZkpaLXZmYmVUbDdTcGs2OFd1Y0JKb0ZYNFHSAb8BQVVfeXFMUEV5akdYdUZaalc2MmV4dGItX20zNThhTDBGckw2eHJ1MjJiQ1lBaWlyUC1Nc0hhall3TGlXTUhiZjdrTEc1SXE1aGFhSFI4MHBJenhkcU9QWXF6eW1BcjFfZlp6ZDREUVVKQW1JUkpFeXFjNzhLd2o2V2VWNG01c3ZsWnExMms5X2wxOXhBbS15MVRmdjV6N1dzWERPQU5fQVl0Y1R3SU9iTEhjTGNaM25HbDE2UWdvOVVJOWhOcnc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
