@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Gehlot seeks CBI, ED probe into property deals involving Rajasthan IAS officer - The New Indian Express"
+date: 2026-10-31 01:06:26 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxPNDJ3MzdCQUpoUVhYN1NzNFlLZWRaSW8xRjlETzNQaTVhR1NINDV2VWdNVkdOMGQzb3Z2MkJubXowZXZGR0xMUUZnU2pYZXVYdGc3TzBOTjBBM01TdDFWNFdCQTRwOGNfc0FGQ1lGVDZ6emlqblo4cEptQ2U2ZTJ0M3lqTUdOUkFuWGlaeDBDQktYekl4b2pteFNHQmxITmF3R2pNZ2NucXFCYmI3ZUVtdllsSFk5V1kzS0J2cDdRaTdjUlhSMVpfb0pjMTVLQWJ4bW53dXF30gHjAUFVX3lxTE5KcFVkYW43OWkwUEhHUWJ0QlZwZWVZZ3BVUmtVVVFHVmNrOTFzVnU4ZkxiVElXUi1IRDBRV2k5RWI2dUdobE1kNkE4WE5neDB3djNSZmZOdDR4bXRCYVBwLWpWTDNrSmtlYkR1bjRnbm1xMFJWZXhHWFZJQmhhQU9LZVAwZXA3SEpWQWpENHBGNmxLZGpQWDZCQ2ZNTHY0QWdGMmZkeWdpWEhYMndzc09wdldmNzB6MS1tR0Z4UEJqSFdJN1VjY3Ewb0RRSTBwdzZQNThQZ2FwdDZIVGNONG5mdGZR?oc=5"
+---
+
+Gehlot seeks CBI, ED probe into property deals involving Rajasthan IAS officer The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPNDJ3MzdCQUpoUVhYN1NzNFlLZWRaSW8xRjlETzNQaTVhR1NINDV2VWdNVkdOMGQzb3Z2MkJubXowZXZGR0xMUUZnU2pYZXVYdGc3TzBOTjBBM01TdDFWNFdCQTRwOGNfc0FGQ1lGVDZ6emlqblo4cEptQ2U2ZTJ0M3lqTUdOUkFuWGlaeDBDQktYekl4b2pteFNHQmxITmF3R2pNZ2NucXFCYmI3ZUVtdllsSFk5V1kzS0J2cDdRaTdjUlhSMVpfb0pjMTVLQWJ4bW53dXF30gHjAUFVX3lxTE5KcFVkYW43OWkwUEhHUWJ0QlZwZWVZZ3BVUmtVVVFHVmNrOTFzVnU4ZkxiVElXUi1IRDBRV2k5RWI2dUdobE1kNkE4WE5neDB3djNSZmZOdDR4bXRCYVBwLWpWTDNrSmtlYkR1bjRnbm1xMFJWZXhHWFZJQmhhQU9LZVAwZXA3SEpWQWpENHBGNmxLZGpQWDZCQ2ZNTHY0QWdGMmZkeWdpWEhYMndzc09wdldmNzB6MS1tR0Z4UEJqSFdJN1VjY3Ewb0RRSTBwdzZQNThQZ2FwdDZIVGNONG5mdGZR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

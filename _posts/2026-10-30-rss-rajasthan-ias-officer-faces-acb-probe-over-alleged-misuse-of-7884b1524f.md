@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan IAS Officer Faces ACB Probe Over Alleged Misuse Of Power - Rediff"
+date: 2026-10-30 22:50:18 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMipwFBVV95cUxQOE1VakwyaFRxeE5mYWZPaV92blFoVGR3ZllLbVFINTZZZl9jMG5pSWtmZUdPZG9Bc3lmLS1sN1A1N2J1eG9kbG5laWszOGtxSU5vM2FxUzM3S3l1MUlMQjI0eFdIazNoMUxHMzhNNWZZcmJZZkoya3RJa0MwNnRzLVNJQlRYNWRvU29wZTZJeXJKaDI1SjZwWmhnWmFMMDVjcHhLN09HRdIBqgFBVV95cUxQRk9JNHJIa29hd05XdjE3SVIybmdIVUFsT1hyQUIxSkNVMmdHdzFvSUg5dmc5RkFtcUFKNjZhSXVkcnJNMXZueVZYNzZXaTgxbDE3Z3g0bHNrb0F3c1NQUVNEQU5GMlFYdGE2dExGbkFFM3BydW1oZDVDcG1vaDBLSnJMUkFOY3ZVb0xTblVyZ0NBSlJDVG1pU080bkNXZWNrMlJfaHdZSC00Zw?oc=5"
+---
+
+Rajasthan IAS Officer Faces ACB Probe Over Alleged Misuse Of Power Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipwFBVV95cUxQOE1VakwyaFRxeE5mYWZPaV92blFoVGR3ZllLbVFINTZZZl9jMG5pSWtmZUdPZG9Bc3lmLS1sN1A1N2J1eG9kbG5laWszOGtxSU5vM2FxUzM3S3l1MUlMQjI0eFdIazNoMUxHMzhNNWZZcmJZZkoya3RJa0MwNnRzLVNJQlRYNWRvU29wZTZJeXJKaDI1SjZwWmhnWmFMMDVjcHhLN09HRdIBqgFBVV95cUxQRk9JNHJIa29hd05XdjE3SVIybmdIVUFsT1hyQUIxSkNVMmdHdzFvSUg5dmc5RkFtcUFKNjZhSXVkcnJNMXZueVZYNzZXaTgxbDE3Z3g0bHNrb0F3c1NQUVNEQU5GMlFYdGE2dExGbkFFM3BydW1oZDVDcG1vaDBLSnJMUkFOY3ZVb0xTblVyZ0NBSlJDVG1pU080bkNXZWNrMlJfaHdZSC00Zw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

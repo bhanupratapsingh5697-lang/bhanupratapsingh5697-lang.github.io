@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Two satellite images reveal Cyclone Arnab's unstoppable journey across India - India Today"
+date: 2026-10-30 11:56:40 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxNVTRUa0J3TUZxdHIza2MtbUFPZUZlWEJpRUdvQmV5TVN4dG1ZbjlhM0FNdVVWb3l3TFNJcjZFeG9EODdoS0FzdW5RM3Y1NnAxcHFmYTRNMlBadWhoVVlPRHZuTWtVenZwd2ozbG9aUDhHTXJkOG9aVm9vTzhRamhuMEdLRTJJU1BCUWZZY1FRbU9pRElrVU9OY2FtWHZPajFrQWgxdDBkclhEbzJ2VUZ6enQ3SjJpUFNDYjFpbUtmcG1zejZSZlgwOGI0elZXclHSAdQBQVVfeXFMUGxjaFNUaThOaHUtYUZrVjdsRThkZjZuVWI4bDlsN0NMZDJkNzFuQ2p3czV4bmN0Mk82YzNycFR5c3BzX0pfanR4TlR3anJzRmtXX0lRanpURmNGb3VkZGF4MGR2SDVaR0JPN2RoZnE4Z21jSlI5VnExb1JoQVFpcWlKcjh5VzNodXpHbEJlQWJhcnhiLUJ5NFpTaDZXZE02SDdGM1dyT0pBeGxqZmJnTFNqS1ZXWGZ4WGI4ZlF6Wks5Q3YyWWNBS0lYX21XQXUzZXdhUjg?oc=5"
+---
+
+Two satellite images reveal Cyclone Arnab's unstoppable journey across India India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxNVTRUa0J3TUZxdHIza2MtbUFPZUZlWEJpRUdvQmV5TVN4dG1ZbjlhM0FNdVVWb3l3TFNJcjZFeG9EODdoS0FzdW5RM3Y1NnAxcHFmYTRNMlBadWhoVVlPRHZuTWtVenZwd2ozbG9aUDhHTXJkOG9aVm9vTzhRamhuMEdLRTJJU1BCUWZZY1FRbU9pRElrVU9OY2FtWHZPajFrQWgxdDBkclhEbzJ2VUZ6enQ3SjJpUFNDYjFpbUtmcG1zejZSZlgwOGI0elZXclHSAdQBQVVfeXFMUGxjaFNUaThOaHUtYUZrVjdsRThkZjZuVWI4bDlsN0NMZDJkNzFuQ2p3czV4bmN0Mk82YzNycFR5c3BzX0pfanR4TlR3anJzRmtXX0lRanpURmNGb3VkZGF4MGR2SDVaR0JPN2RoZnE4Z21jSlI5VnExb1JoQVFpcWlKcjh5VzNodXpHbEJlQWJhcnhiLUJ5NFpTaDZXZE02SDdGM1dyT0pBeGxqZmJnTFNqS1ZXWGZ4WGI4ZlF6Wks5Q3YyWWNBS0lYX21XQXUzZXdhUjg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

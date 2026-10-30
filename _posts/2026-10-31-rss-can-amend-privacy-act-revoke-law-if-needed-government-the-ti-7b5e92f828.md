@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Can amend privacy act, revoke law if needed: Government - The Times of India"
+date: 2026-10-31 03:31:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxNR1pwOTBNWDE2YV9ldE1fenRZRmljR3lUczJHV1M5UUdCZEJsWjNHNnYyQVBPdG95aGprNk55OGVYSUFJVS1lN3Vvd3Y4NFVaeXZDbVpMeVpQVHlXSTJkdHJBeVo0cXJKMUs3RFdXOWpFejRxNTVfZ3Q0a1dkdmpyTGpjUlpkVktocGNLTm5WNmpPdXRHSWIwY1dyQ2Vkb190MksxMmJyWnVPNzZMUWhmdTR6N3JwV3FjZUhzLTVB0gHDAUFVX3lxTFBLLTg1TjdkX0ZjOUNLRlNWU2VGX0xQTHJBbUFGak0zbFI3aTdpUkZ4TVRTN3FjWmVoRUJ2TVdfNTZLWUZvVjFtNUt4WkxsdnRtWWQ2R2RSdkR5UG41VlBZQ2wzeHJPejJ6SXBRZzJ3TG9fVWVleEE0eTU3bGdZWUJZVUcyY21mRWg5TVg0cUdFVVhJVTZwWVFHaS04cHRDZURyMVpOYlJhelo3RlhCeEZzNTRjSDNPUTd6b3pxdVpvUU54Zw?oc=5"
+---
+
+Can amend privacy act, revoke law if needed: Government The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxNR1pwOTBNWDE2YV9ldE1fenRZRmljR3lUczJHV1M5UUdCZEJsWjNHNnYyQVBPdG95aGprNk55OGVYSUFJVS1lN3Vvd3Y4NFVaeXZDbVpMeVpQVHlXSTJkdHJBeVo0cXJKMUs3RFdXOWpFejRxNTVfZ3Q0a1dkdmpyTGpjUlpkVktocGNLTm5WNmpPdXRHSWIwY1dyQ2Vkb190MksxMmJyWnVPNzZMUWhmdTR6N3JwV3FjZUhzLTVB0gHDAUFVX3lxTFBLLTg1TjdkX0ZjOUNLRlNWU2VGX0xQTHJBbUFGak0zbFI3aTdpUkZ4TVRTN3FjWmVoRUJ2TVdfNTZLWUZvVjFtNUt4WkxsdnRtWWQ2R2RSdkR5UG41VlBZQ2wzeHJPejJ6SXBRZzJ3TG9fVWVleEE0eTU3bGdZWUJZVUcyY21mRWg5TVg0cUdFVVhJVTZwWVFHaS04cHRDZURyMVpOYlJhelo3RlhCeEZzNTRjSDNPUTd6b3pxdVpvUU54Zw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

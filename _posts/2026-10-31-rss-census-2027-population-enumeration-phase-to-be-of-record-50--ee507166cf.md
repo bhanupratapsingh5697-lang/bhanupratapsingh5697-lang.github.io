@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Census 2027 population enumeration phase to be of record 50 days - The Times of India"
+date: 2026-10-31 02:52:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxOLXFob1laMFBobGQzNHJEbENIV1ZTdlliald2MmhzUnZvMHlIaFFnRWdjWkZINVE2UnFDYllYeFJqSFNOanZWNG9rbW9kLTMwSmMtRTlwU1RzVll5c0JUZUppdTRPRXBKTk1LM0oxZ1JUYTI3V3RleENPTzdueW42dU5OVDJzRzBTdDdMOUpncE5KMzRHY2ItNE1zSUNid2l5NVdCYWphWUh6OWQ4ZHNJeW9JWG1yM3V1WlZzSVVsSW56VHJOZHhNVG9UVEXSAdIBQVVfeXFMTmo1enp0TG5BSlNGTTNmeXZEOTlSODFsMFM0QkQ2YkJSMFFqTGdjTXhaVFpBS0o2aHRzWVl1WGM2NW9oQjBlbUF4YS1EYUVNUGhuUUFoZlFnZ2RHNnFhazQ5WUkxOXpIZUdQcWZWbXI5Z1pBY2FITm9sbmpmOFlvOF9wbFo5LW1sZy0xMklBS3JaOG0tWU45bE5OREliWEJpQm44cGw5bkFtbmt5UFdHRWFHSVA5NzlnZjUwUmFGTWxUZ1dBUVk4UEJuNzBfTHk5SGxB?oc=5"
+---
+
+Census 2027 population enumeration phase to be of record 50 days The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxOLXFob1laMFBobGQzNHJEbENIV1ZTdlliald2MmhzUnZvMHlIaFFnRWdjWkZINVE2UnFDYllYeFJqSFNOanZWNG9rbW9kLTMwSmMtRTlwU1RzVll5c0JUZUppdTRPRXBKTk1LM0oxZ1JUYTI3V3RleENPTzdueW42dU5OVDJzRzBTdDdMOUpncE5KMzRHY2ItNE1zSUNid2l5NVdCYWphWUh6OWQ4ZHNJeW9JWG1yM3V1WlZzSVVsSW56VHJOZHhNVG9UVEXSAdIBQVVfeXFMTmo1enp0TG5BSlNGTTNmeXZEOTlSODFsMFM0QkQ2YkJSMFFqTGdjTXhaVFpBS0o2aHRzWVl1WGM2NW9oQjBlbUF4YS1EYUVNUGhuUUFoZlFnZ2RHNnFhazQ5WUkxOXpIZUdQcWZWbXI5Z1pBY2FITm9sbmpmOFlvOF9wbFo5LW1sZy0xMklBS3JaOG0tWU45bE5OREliWEJpQm44cGw5bkFtbmt5UFdHRWFHSVA5NzlnZjUwUmFGTWxUZ1dBUVk4UEJuNzBfTHk5SGxB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

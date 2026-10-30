@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Month Long Training Programme On Leather Technology Launched By AIC-IIIM - Daily Excelsior"
+date: 2026-10-30 19:26:38 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMipwFBVV95cUxOY0thNlZNbDJKNlVPQS00Y3lGT0p3NGdzRWd2dkFhME5iSTNYQnpEMWdPWWdwNTBHbnRVSThaU3A5R0VhYkNqY2lRZWlaTUVxcTJ5TjI4aEpNSmkwOUloNUZRQU9JLXNwOUVsU2o0MEdQQzFCRFRxOFlTYXBISHdCS2xpZm82VnRVQUt6WmU4bmphOFZGa29DWTluU3djZ3VkWWsxSmwxVdIBqwFBVV95cUxNR3BIUmhjTmpaYUpuRmtuYU1FUFZ5OUN3WDhBNG9lWng5U0VHWVhLeHlyY2kxSVdqU1k0d2FDbG50TkFMU2pHekFOMTlaTE1XbEFKYW9OSUtLdktVZ3FMQTR0clhQYUI0b2FjWGc3bzczdmRMRzNfN01HSllCcW5HT1lkOGVmOGhPbXNxaEFZS2QxTWdoYXkyMVJia3NUOGowN1lKbnlvb0ZTdnM?oc=5"
+---
+
+Month Long Training Programme On Leather Technology Launched By AIC-IIIM Daily Excelsior
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipwFBVV95cUxOY0thNlZNbDJKNlVPQS00Y3lGT0p3NGdzRWd2dkFhME5iSTNYQnpEMWdPWWdwNTBHbnRVSThaU3A5R0VhYkNqY2lRZWlaTUVxcTJ5TjI4aEpNSmkwOUloNUZRQU9JLXNwOUVsU2o0MEdQQzFCRFRxOFlTYXBISHdCS2xpZm82VnRVQUt6WmU4bmphOFZGa29DWTluU3djZ3VkWWsxSmwxVdIBqwFBVV95cUxNR3BIUmhjTmpaYUpuRmtuYU1FUFZ5OUN3WDhBNG9lWng5U0VHWVhLeHlyY2kxSVdqU1k0d2FDbG50TkFMU2pHekFOMTlaTE1XbEFKYW9OSUtLdktVZ3FMQTR0clhQYUI0b2FjWGc3bzczdmRMRzNfN01HSllCcW5HT1lkOGVmOGhPbXNxaEFZS2QxTWdoYXkyMVJia3NUOGowN1lKbnlvb0ZTdnM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
