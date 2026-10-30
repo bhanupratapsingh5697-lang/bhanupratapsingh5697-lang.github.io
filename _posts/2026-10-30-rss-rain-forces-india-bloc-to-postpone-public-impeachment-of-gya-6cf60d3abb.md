@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rain Forces INDIA Bloc To Postpone \"Public Impeachment\" Of Gyanesh Kumar - NDTV"
+date: 2026-10-30 13:24:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxPN0xNVnM4NDREVkdNS3NIMnNVSDJZVThvX0RBbGZoRkNPR3Q3UnVMRlRnNEt3WHZWNElCMmR5TVNTa2E5bzMxWEUwTmhQenk3MVRPVGJUX09fZ1ExMHdTb2E4MXRZZVZSbzlDeUZsQ3JOcTRUOWY3REdBN0tEdGRBZUl6UzViQ2dlZmpubjJFWmZzMDVUMzFUeTdma3NVVUNDakZuNGNpNjRVQ1FRcUVSemJfQ3Vvd9IBvgFBVV95cUxPdXhZb3NNUGhvQVU2U1JTRjlpNzVDX1ZnZm9nTkl3OVJobWI1WjRhNEViekhXNXFEVTdycFlpdVVLZDZoT1VZeWFlT2hpelJnX2prZk9WbXRxX1RrUTN6ZUhUd0hyTHdwYS1wMUVUaFZraExVNFhCbTEzVlVBRjFUUkJSNUE0R1F4S1FrWHcwMG1aLVZ1Z2M2MHdVT2hxWENKZU5FTDVzSWUxSkJDOVpRMHJKU0dkYTExNnR2WW53?oc=5"
+---
+
+Rain Forces INDIA Bloc To Postpone "Public Impeachment" Of Gyanesh Kumar NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxPN0xNVnM4NDREVkdNS3NIMnNVSDJZVThvX0RBbGZoRkNPR3Q3UnVMRlRnNEt3WHZWNElCMmR5TVNTa2E5bzMxWEUwTmhQenk3MVRPVGJUX09fZ1ExMHdTb2E4MXRZZVZSbzlDeUZsQ3JOcTRUOWY3REdBN0tEdGRBZUl6UzViQ2dlZmpubjJFWmZzMDVUMzFUeTdma3NVVUNDakZuNGNpNjRVQ1FRcUVSemJfQ3Vvd9IBvgFBVV95cUxPdXhZb3NNUGhvQVU2U1JTRjlpNzVDX1ZnZm9nTkl3OVJobWI1WjRhNEViekhXNXFEVTdycFlpdVVLZDZoT1VZeWFlT2hpelJnX2prZk9WbXRxX1RrUTN6ZUhUd0hyTHdwYS1wMUVUaFZraExVNFhCbTEzVlVBRjFUUkJSNUE0R1F4S1FrWHcwMG1aLVZ1Z2M2MHdVT2hxWENKZU5FTDVzSWUxSkJDOVpRMHJKU0dkYTExNnR2WW53?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

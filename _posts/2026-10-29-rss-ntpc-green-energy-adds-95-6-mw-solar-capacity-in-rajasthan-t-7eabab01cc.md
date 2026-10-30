@@ -1,0 +1,17 @@
+---
+layout: post
+title: "NTPC Green Energy adds 95.6 MW solar capacity in Rajasthan; total installed capacity rises to 11,424.29 MW - PSU Watch"
+date: 2026-10-29 22:56:39 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxOd2tyRTdNNlJPRFdNaTdhNE5CbGhabDkwajh0X1JhMVp1ZmlWM1NDWEhrNVZRTFotYXNacHlpSXFRX29PX3pVaGd2WFVubGlfS3huc1VtXzEtLUt6WE5qSVIzeWlSUktGOW9aOUdXeVFQdnJCQ2RyVlZxcDlQT0lpY2VETVZObnliYm01Z2JFal90blVJS0NTZ09teFkyU1dvU0hjMGtFNnRnd240cnFUQmRaUGQwNUVjMTRhMDh1TzNXamRqbG9wSnE5YnMyeU400gHeAUFVX3lxTE9EUW9lU1FoMWdBUVZfOTFFZEdOT2UwUzgtQ3NsWURwNW95OGEwVXBsMm54XzBtcUdZSGhacm1Vc01VU3RGZ3huT0JvblJHUm9TLXRhczRjeGcwbXlzbFVyTF9rZG1VMDlPRzE5QmREc0VqbUhQR1MzRTBmTHdYdUVJSTVqalluWHlQT2VuR1ptdVdaZTExZDlXSTFkMGJJSS1lMGU3VS1iRGo5U3VTMDQzaGdxWHE5dmxQUndpNDgxNlZtUUt3OFVqUUFfbHpxSlRHZWtxbjdkcjZBNUZUdw?oc=5"
+---
+
+NTPC Green Energy adds 95.6 MW solar capacity in Rajasthan; total installed capacity rises to 11,424.29 MW PSU Watch
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOd2tyRTdNNlJPRFdNaTdhNE5CbGhabDkwajh0X1JhMVp1ZmlWM1NDWEhrNVZRTFotYXNacHlpSXFRX29PX3pVaGd2WFVubGlfS3huc1VtXzEtLUt6WE5qSVIzeWlSUktGOW9aOUdXeVFQdnJCQ2RyVlZxcDlQT0lpY2VETVZObnliYm01Z2JFal90blVJS0NTZ09teFkyU1dvU0hjMGtFNnRnd240cnFUQmRaUGQwNUVjMTRhMDh1TzNXamRqbG9wSnE5YnMyeU400gHeAUFVX3lxTE9EUW9lU1FoMWdBUVZfOTFFZEdOT2UwUzgtQ3NsWURwNW95OGEwVXBsMm54XzBtcUdZSGhacm1Vc01VU3RGZ3huT0JvblJHUm9TLXRhczRjeGcwbXlzbFVyTF9rZG1VMDlPRzE5QmREc0VqbUhQR1MzRTBmTHdYdUVJSTVqalluWHlQT2VuR1ptdVdaZTExZDlXSTFkMGJJSS1lMGU3VS1iRGo5U3VTMDQzaGdxWHE5dmxQUndpNDgxNlZtUUt3OFVqUUFfbHpxSlRHZWtxbjdkcjZBNUZUdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

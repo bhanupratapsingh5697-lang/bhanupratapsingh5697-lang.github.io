@@ -66,6 +66,42 @@ def get_link(item):
 
     return link.strip()
 
+def get_image(item):
+    # Check RSS media:content and media:thumbnail
+    for tag in (
+    "{http://search.yahoo.com/mrss/}content",
+    "{http://search.yahoo.com/mrss/}thumbnail",
+    ):
+        node = item.find(tag)
+        if node is not None:
+            image_url = node.attrib.get("url", "")
+            if image_url.startswith(("http://", "https://")):
+                return image_url
+
+    # Check image enclosure
+    for node in item.findall("enclosure"):
+        image_url = node.attrib.get("url", "")
+        if image_url.startswith(("http://", "https://")):
+            return image_url
+
+    # Check image inside RSS description
+    raw = (
+        get_text(item, "description")
+        or get_text(item, f"{ATOM}summary")
+        or ""
+    )
+
+    match = re.search(
+    r"""<img[^>]+src=["'](https?://[^"']+)["']""",
+    raw,
+    re.IGNORECASE
+)
+
+    if match:
+        return html.unescape(match.group(1))
+
+    return "/assets/images/news-default.svg"
+
 
 def get_date(item, fallback):
     published = (
@@ -165,7 +201,23 @@ def main():
                     f"{date:%Y-%m-%d}-rss-{slug}-{digest}.md"
                 )
 
+                image_url = get_image(item)
+
+                # Update image in an existing article
                 if path.exists():
+                    if image_url != "/assets/images/news-default.svg":
+                        existing = path.read_text(encoding="utf-8")
+
+                        existing = re.sub(
+                            r'(?m)^image:.*$',
+                            f"image: {quote(image_url)}",
+                            existing,
+                            count=1
+                        )
+
+                        path.write_text(existing, encoding="utf-8")
+                        print(f"Updated image: {title}")
+
                     continue
 
                 host = urlparse(link).netloc.removeprefix("www.")
@@ -178,7 +230,7 @@ def main():
                     f"category: {quote(category)}",
                     'lang: "en"',
                     'author: "Today News Desk (RSS summary)"',
-                    'image: "/assets/images/news-default.svg"',
+                    f"image: {quote(image_url)}",
                     f"source_name: {quote(source)}",
                     f"source_url: {quote(link)}",
                     "---",
@@ -200,6 +252,7 @@ def main():
 
                 made += 1
                 feed_made += 1
+
 
             print(f"{source}: {feed_made} new posts")
 

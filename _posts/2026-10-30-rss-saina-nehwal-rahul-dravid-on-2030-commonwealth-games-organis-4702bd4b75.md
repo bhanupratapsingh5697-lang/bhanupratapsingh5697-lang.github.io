@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Saina Nehwal, Rahul Dravid on 2030 Commonwealth Games Organising Company board - The Indian Express"
+date: 2026-10-30 19:37:22 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxNRk9Bc0RHS0RHRjlXeGtXMF9oSzUyVnB0c3UzOEV0eGdVSHVpTVlLYzN6RkpvT09HQzBsWUNPNDJPcTZYV3dfdnA4bk8wZk1ES1hvYUwzSEpxMVNadXBMZ2w1MWRQS0M5Zi1wZ1B3OWs2VmJTOGpTTHFuWjZUZkJWX3V1T0lxZUNOMDN4Q0JOS0c0emw3N3hNNlZzTTE5LUFPY1V5N0dNeVktOTlDckp6NzRB0gG4AUFVX3lxTE90TVlib0d1YTFrZncxR2FvczRYWU8xX0Uwb2ZNRUFJdTNCVThHc2RPTjhZR0tYM3hXWFpkbmdFVDNPMHVXYkNJai1Vb2JGZW13R25ScXFQLXRzQVRrd2RTS05rQkhOaVpYN1lZREFHeHozNVNWSHUzZEtwWXNzM1FvbnJ0N3ZhX25pNXNxMkN2WEVPS1lxc1FweUZYc2Jqa2N6MEh4TmlpUkFEd2NnM1ZSdFg3RnB5Wms?oc=5"
+---
+
+Saina Nehwal, Rahul Dravid on 2030 Commonwealth Games Organising Company board The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxNRk9Bc0RHS0RHRjlXeGtXMF9oSzUyVnB0c3UzOEV0eGdVSHVpTVlLYzN6RkpvT09HQzBsWUNPNDJPcTZYV3dfdnA4bk8wZk1ES1hvYUwzSEpxMVNadXBMZ2w1MWRQS0M5Zi1wZ1B3OWs2VmJTOGpTTHFuWjZUZkJWX3V1T0lxZUNOMDN4Q0JOS0c0emw3N3hNNlZzTTE5LUFPY1V5N0dNeVktOTlDckp6NzRB0gG4AUFVX3lxTE90TVlib0d1YTFrZncxR2FvczRYWU8xX0Uwb2ZNRUFJdTNCVThHc2RPTjhZR0tYM3hXWFpkbmdFVDNPMHVXYkNJai1Vb2JGZW13R25ScXFQLXRzQVRrd2RTS05rQkhOaVpYN1lZREFHeHozNVNWSHUzZEtwWXNzM1FvbnJ0N3ZhX25pNXNxMkN2WEVPS1lxc1FweUZYc2Jqa2N6MEh4TmlpUkFEd2NnM1ZSdFg3RnB5Wms?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

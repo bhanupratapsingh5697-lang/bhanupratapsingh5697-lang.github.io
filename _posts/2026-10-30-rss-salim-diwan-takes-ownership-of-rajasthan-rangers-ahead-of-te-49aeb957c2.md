@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Salim Diwan Takes Ownership of Rajasthan Rangers Ahead of Tennis Premier League Season 8 - TheWire.in"
+date: 2026-10-30 10:30:05 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxPcGx0OEozUXZnVVQ1RDl3Qy01Q1pPYnhvUmhrX3g1U3lVc1pvZ3JHd3pJR2doZEVJalZLb25rQnJwNldJZlVrRURfN0ZKalhOdjB2Rl9JMmdrVHVOTlFBYlF1bVNpQmxIOHY0WHhwRFhiODNOSlM5dVRYUl9tN0ptbDVCUkQzZkpfQmNIeXkxWktTWU9mTWh5Z1VoclJyblhwOUR2Xzk4UW9NX1hxRXlvQ1lLWDFxaVJNWEo5d01VdWR4SlUtelHSAcsBQVVfeXFMUGtuQjRCY3hzYVh1MC1QcHVWZm9taHc3UTAyXzVXQnJRT2dLMnVUSDRZNDZobjlXU2RKRWllZnRLOUNacmYwdFFsSkZqdFhlelBpZlJaZDhsOFBHcjJGdmlOVklMRW9uX09TZHRXclV6cGUwQzRmZXIzQ2l5eTF0aHl1RHZjc2ZyUDBZdnVnRHJIQlY4cUczNHA5NXkwUTZUZEpFTUN2QnlfSmxvTHRhc3ExLUQ5c19VMTFiNmNDNFNuZGhJRk9TbjU2bkE?oc=5"
+---
+
+Salim Diwan Takes Ownership of Rajasthan Rangers Ahead of Tennis Premier League Season 8 TheWire.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxPcGx0OEozUXZnVVQ1RDl3Qy01Q1pPYnhvUmhrX3g1U3lVc1pvZ3JHd3pJR2doZEVJalZLb25rQnJwNldJZlVrRURfN0ZKalhOdjB2Rl9JMmdrVHVOTlFBYlF1bVNpQmxIOHY0WHhwRFhiODNOSlM5dVRYUl9tN0ptbDVCUkQzZkpfQmNIeXkxWktTWU9mTWh5Z1VoclJyblhwOUR2Xzk4UW9NX1hxRXlvQ1lLWDFxaVJNWEo5d01VdWR4SlUtelHSAcsBQVVfeXFMUGtuQjRCY3hzYVh1MC1QcHVWZm9taHc3UTAyXzVXQnJRT2dLMnVUSDRZNDZobjlXU2RKRWllZnRLOUNacmYwdFFsSkZqdFhlelBpZlJaZDhsOFBHcjJGdmlOVklMRW9uX09TZHRXclV6cGUwQzRmZXIzQ2l5eTF0aHl1RHZjc2ZyUDBZdnVnRHJIQlY4cUczNHA5NXkwUTZUZEpFTUN2QnlfSmxvTHRhc3ExLUQ5c19VMTFiNmNDNFNuZGhJRk9TbjU2bkE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -5,7 +5,7 @@ date: 2026-10-30 16:27:06 +0530
 category: "India"
 lang: "en"
 author: "Today News Desk (RSS summary)"
-image: "/assets/images/news-default.svg"
+image: "https://ichef.bbci.co.uk/ace/ws/240/cpsprodpb/c0aa/live/11d862f0-d3d3-11f1-9c32-1532a6164171.png"
 source_name: "BBC Hindi"
 source_url: "https://www.bbc.com/hindi/articles/cm369r9gy47xo?at_medium=RSS&at_campaign=rss"
 ---

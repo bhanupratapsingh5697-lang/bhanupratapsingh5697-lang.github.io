@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Uttarakhand chopper tragedy: Why the state remains India's helicopter crash hotspot - Firstpost"
+date: 2026-10-30 19:21:09 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxQNHJ1LU13bkVJZkZDUVdMSnRBdU5TZWFRdnZsaTExdklVT19XcDdrX0ZPOXdGOTBrcXFmbzB1dTEzUF9TUEx0UHNSRmhkNnA2WkJSZW80QUF2dGt6amw4ZXduaEtadkxPT2tCSjlQNll5aWFFeFVmcWdveEk2bW8xblJFR1ozYXdVY2ttdVpHeWE2cVROcThwelhWSHFTX096WkszMnY1RkRYNGVvX2h3bXhMMzdqV1M5THN4dVZmckpUdDhuQVNITFllbkHSAdIBQVVfeXFMTi1HQjUxTlNSaTNNcFZnZVpIbzZtTjFXVFpXbVcyR2c3TWU0a1pGUUlnRjlFLWZ3OHNSalVqbGQwc055alIwamY5a2E4Vjh5YkdscGNJNDJoYWp6bmE4Zy04NDBZWGJWdllicHNQbVJkWlJaUml5dHgyYS1hOFF3dUxOZXE1TzV5amlrR2pqWXVVMTE2SDY4MERGTDI3bkdDRldUYUhHVTBLdGI1ZHdQdVJhZ0IycnluNDgxdVdUbkpZakhsUDMxaktVZ2hlRENIeFZR?oc=5"
+---
+
+Uttarakhand chopper tragedy: Why the state remains India's helicopter crash hotspot Firstpost
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxQNHJ1LU13bkVJZkZDUVdMSnRBdU5TZWFRdnZsaTExdklVT19XcDdrX0ZPOXdGOTBrcXFmbzB1dTEzUF9TUEx0UHNSRmhkNnA2WkJSZW80QUF2dGt6amw4ZXduaEtadkxPT2tCSjlQNll5aWFFeFVmcWdveEk2bW8xblJFR1ozYXdVY2ttdVpHeWE2cVROcThwelhWSHFTX096WkszMnY1RkRYNGVvX2h3bXhMMzdqV1M5THN4dVZmckpUdDhuQVNITFllbkHSAdIBQVVfeXFMTi1HQjUxTlNSaTNNcFZnZVpIbzZtTjFXVFpXbVcyR2c3TWU0a1pGUUlnRjlFLWZ3OHNSalVqbGQwc055alIwamY5a2E4Vjh5YkdscGNJNDJoYWp6bmE4Zy04NDBZWGJWdllicHNQbVJkWlJaUml5dHgyYS1hOFF3dUxOZXE1TzV5amlrR2pqWXVVMTE2SDY4MERGTDI3bkdDRldUYUhHVTBLdGI1ZHdQdVJhZ0IycnluNDgxdVdUbkpZakhsUDMxaktVZ2hlRENIeFZR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

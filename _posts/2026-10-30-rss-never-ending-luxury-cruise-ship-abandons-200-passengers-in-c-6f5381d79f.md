@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Never Ending' Luxury Cruise Ship Abandons 200 Passengers In Cambodia Ahead Of India Visit - NDTV"
+date: 2026-10-30 19:54:28 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxPVVd1Zk5pcmJRdjhaaXZTMWtvWXRhQmVLTVdEbXdMbjhTdXZSUHI2OEdDSFl0YkwySVJMdGR5R1g5VVBqZk1uSFk4S3FKajZDWlVKTUpTUlYwR0c3VFhfWk5td3FxUUFjS1FBcUpjM1FYRl93b1JUOWc4QVQ3UjhHYWVNdWwya2dTOE1RS1ppd2JzMlBnZXBfWVN3ZHVuWUdvMWczZ0FhZ3FvQjFXTnVMQUhubXZrUy1sQ0p5VzR3bTljMHkw0gHMAUFVX3lxTE9pNFd3QTRNOUpEaVFGVHd4RDM0X1VvaVI0eGlLbUJyMVpSYjhWMjRMRmpFVHR1U00teHYtQi1Qc3IxXzAwM3pMTUp2M1JqbHhOT2RrRkFuTGxrNW54OFJhM1ZYZ1VrVHZZSzd2ZXN0QVVaMUpfZG9sWWdQT09ReGlSd0oyYnFoZGdkTTVEQjFDeFV5SDhJTENuRTlST2kyeWNpTDNmNEJCa1hDa2hTb3BDVExuc2JIZmtxY2d4cmNYbDJuVGFrcGFyUmlZVg?oc=5"
+---
+
+'Never Ending' Luxury Cruise Ship Abandons 200 Passengers In Cambodia Ahead Of India Visit NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxPVVd1Zk5pcmJRdjhaaXZTMWtvWXRhQmVLTVdEbXdMbjhTdXZSUHI2OEdDSFl0YkwySVJMdGR5R1g5VVBqZk1uSFk4S3FKajZDWlVKTUpTUlYwR0c3VFhfWk5td3FxUUFjS1FBcUpjM1FYRl93b1JUOWc4QVQ3UjhHYWVNdWwya2dTOE1RS1ppd2JzMlBnZXBfWVN3ZHVuWUdvMWczZ0FhZ3FvQjFXTnVMQUhubXZrUy1sQ0p5VzR3bTljMHkw0gHMAUFVX3lxTE9pNFd3QTRNOUpEaVFGVHd4RDM0X1VvaVI0eGlLbUJyMVpSYjhWMjRMRmpFVHR1U00teHYtQi1Qc3IxXzAwM3pMTUp2M1JqbHhOT2RrRkFuTGxrNW54OFJhM1ZYZ1VrVHZZSzd2ZXN0QVVaMUpfZG9sWWdQT09ReGlSd0oyYnFoZGdkTTVEQjFDeFV5SDhJTENuRTlST2kyeWNpTDNmNEJCa1hDa2hTb3BDVExuc2JIZmtxY2d4cmNYbDJuVGFrcGFyUmlZVg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

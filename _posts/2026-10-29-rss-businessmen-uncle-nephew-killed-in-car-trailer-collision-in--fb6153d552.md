@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Businessmen Uncle, nephew killed in car-trailer collision in Rajasthan - ThePrint"
+date: 2026-10-29 18:22:16 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMipwFBVV95cUxNUzRhdlJVaVZFcGRYVFJaZFJac1BCejhUVlJqTjR1eFlfVzdxUzdZWTZoeDNONTNfUjFIQmpETHBIVEhMRG1kcjc3RUFIM2txTE9MLVd6SklyRm5NcjloS1RnM3hBVF96cWd4WkQxaElZSW1hRjc3Tl96R3dMdXVGb0xGcGQ0VVlnenJjczRZQXdLRjRXTkdRSmRzdUJtOS1HUnhfN2xVSdIBrAFBVV95cUxPRjZrSG9RNXIwOFVxdTBQV0pSMWJacEk3RVpqRGxFeGNqUFc3SjFPekJQUVpBdGlTOF9PY3c1UTlpX053ajlsRGNPVl9vMG12SzhhR1pKd1NuX05OLUFzUERzYXRHLTF6enVEa240QkJuWWVJUEJHbDJYZ052cTZWTlhFUmdBTjcwWi1pMmJNcVJYcEUtZzRwU3hUWGVucDg5ZnJZRTBWVk1iQ3hw?oc=5"
+---
+
+Businessmen Uncle, nephew killed in car-trailer collision in Rajasthan ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUzRhdlJVaVZFcGRYVFJaZFJac1BCejhUVlJqTjR1eFlfVzdxUzdZWTZoeDNONTNfUjFIQmpETHBIVEhMRG1kcjc3RUFIM2txTE9MLVd6SklyRm5NcjloS1RnM3hBVF96cWd4WkQxaElZSW1hRjc3Tl96R3dMdXVGb0xGcGQ0VVlnenJjczRZQXdLRjRXTkdRSmRzdUJtOS1HUnhfN2xVSdIBrAFBVV95cUxPRjZrSG9RNXIwOFVxdTBQV0pSMWJacEk3RVpqRGxFeGNqUFc3SjFPekJQUVpBdGlTOF9PY3c1UTlpX053ajlsRGNPVl9vMG12SzhhR1pKd1NuX05OLUFzUERzYXRHLTF6enVEa240QkJuWWVJUEJHbDJYZ052cTZWTlhFUmdBTjcwWi1pMmJNcVJYcEUtZzRwU3hUWGVucDg5ZnJZRTBWVk1iQ3hw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

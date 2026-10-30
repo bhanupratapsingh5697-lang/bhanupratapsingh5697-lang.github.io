@@ -5,7 +5,7 @@ date: 2026-10-30 16:53:06 +0530
 category: "World"
 lang: "en"
 author: "Today News Desk (RSS summary)"
-image: "/assets/images/news-default.svg"
+image: "https://ichef.bbci.co.uk/ace/standard/240/cpsprodpb/13b1/live/6aa032d0-d44d-11f1-bfc7-afe23fc6cf5b.jpg"
 source_name: "BBC World"
 source_url: "https://www.bbc.co.uk/news/articles/cmewepdr109do?at_medium=RSS&at_campaign=rss"
 ---
