@@ -1,0 +1,4 @@
+---
+layout: default
+---
+<article class="article"><a class="crumb" href="{{ '/' | relative_url }}">Home</a><header><small>{{ page.category | default: "NEWS" }} · {{ page.date | date: "%d %B %Y" }}</small><h1>{{ page.title }}</h1><p>By {{ page.author | default: "Today News Desk" }}</p></header>{% if page.image %}<img class="cover" src="{{ page.image | relative_url }}" alt="{{ page.title | escape }}">{% endif %}<div class="article-body">{{ content }}{% if page.source_url %}<aside class="source"><b>Source / स्रोत: {{ page.source_name }}</b><br>This is a short news summary. <a href="{{ page.source_url }}" target="_blank" rel="noopener">Read the original report ↗</a></aside>{% endif %}<button id="share-story">Share this story ↗</button></div></article>

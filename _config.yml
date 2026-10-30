@@ -1,0 +1,28 @@
+title: "Today News"
+description: "आज की ताज़ा खबरें | Latest news from India and around the world."
+url: "https://bhanupratapsingh5697-lang.github.io"
+baseurl: ""
+lang: "hi"
+timezone: Asia/Kolkata
+markdown: kramdown
+permalink: /news/:year/:month/:day/:title/
+plugins:
+  - jekyll-feed
+  - jekyll-seo-tag
+  - jekyll-sitemap
+feed:
+  path: feed.xml
+defaults:
+  - scope:
+      path: ""
+      type: posts
+    values:
+      layout: post
+      image: /assets/images/news-default.svg
+exclude:
+  - README.md
+  - scripts/
+  - .github/
+  - Gemfile
+  - Gemfile.lock
+  - vendor

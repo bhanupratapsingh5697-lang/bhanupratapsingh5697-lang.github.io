@@ -1,0 +1,18 @@
+---
+layout: default
+title: Latest News
+description: Hindi and English news from India and around the world.
+---
+<div class="breaking"><b>BREAKING NEWS</b><span>ताज़ा खबरें · Latest updates from India and around the world</span></div>
+{% assign featured = site.posts | where: "featured", true | first %}
+{% if featured == nil %}{% assign featured = site.posts.first %}{% endif %}
+<section class="hero">
+{% if featured %}<a href="{{ featured.url | relative_url }}"><img src="{{ featured.image | default: '/assets/images/news-default.svg' | relative_url }}" alt="{{ featured.title | escape }}"></a><div><small>{{ featured.category }} · TOP STORY</small><h1><a href="{{ featured.url | relative_url }}">{{ featured.title }}</a></h1><p>{{ featured.excerpt | strip_html | truncate: 220 }}</p><a class="read" href="{{ featured.url | relative_url }}">Read full story →</a></div>
+{% else %}<div><small>WELCOME TO TODAY NEWS</small><h1>खबरों की दुनिया, आपकी भाषा में।</h1><p>भारत और दुनिया की ताज़ा खबरें — हिंदी और English में।</p></div>{% endif %}
+</section>
+<section id="latest"><div class="section-title"><div><small>THE NEWSROOM</small><h2>Latest News / ताज़ा खबरें</h2></div><span>{{ site.posts.size }} stories</span></div>
+<div class="tools"><input id="news-search" type="search" placeholder="Search news / खबर खोजें..."><div class="filters"><button class="active" data-filter="all">All</button>{% assign cats = site.posts | map: "category" | uniq | sort %}{% for c in cats %}{% if c %}<button data-filter="{{ c | slugify }}">{{ c }}</button>{% endif %}{% endfor %}</div></div>
+<div class="grid" id="news-grid">{% for post in site.posts %}<article class="card" data-category="{{ post.category | slugify }}" data-search="{{ post.title | downcase | escape }} {{ post.excerpt | strip_html | downcase | escape }}"><a href="{{ post.url | relative_url }}"><img src="{{ post.image | default: '/assets/images/news-default.svg' | relative_url }}" alt="{{ post.title | escape }}" loading="lazy"></a><div class="card-content"><small>{{ post.category | default: "News" }} · {{ post.date | date: "%d %b %Y" }}</small><h3><a href="{{ post.url | relative_url }}">{{ post.title }}</a></h3><p>{{ post.excerpt | strip_html | truncate: 130 }}</p><a class="read" href="{{ post.url | relative_url }}">Read more →</a></div></article>{% endfor %}</div>
+<p id="no-results" hidden>No matching stories found. कोई खबर नहीं मिली।</p>
+{% if site.posts.size == 0 %}<div class="empty"><h3>Your newsroom is ready!</h3><p>Add a Markdown article to the _posts folder or run the RSS import workflow in GitHub Actions.</p></div>{% endif %}
+</section>
