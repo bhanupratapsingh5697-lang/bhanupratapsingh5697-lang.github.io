@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Air India, Air India Express suspend Saudi flights till Nov 14 amid Houthi attacks - India Today"
+date: 2026-10-30 18:52:16 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxQVkVHLW96eFBCLUFpWVlMb2NqN29nSXVmRnFPaXB5VDgzeDRmd0g2c0FqMzBvcldRQXZDR3g5R0lRRzZSWE9rVHBTTGpvQlVqMTlReFQ2UEVwNnV4QlhNaUM3RGtpSG84QWx3UzJwdm5sUVAzYV81Rk51S0JZWC1tUEo1aW1TRENjS1U5ZWNvLVZreWpsS1FaTTYwTGpLZVQ1MDE1dllvakREOElmd3lzQXlPR1BHQm9ramRHRmtfRHg0M0xKOU56Snh30gHPAUFVX3lxTFBTQ01BVTdPVGJ0ZTB5bi13aElxMmUwUFJvUl93aTBxNXluMTNVcWgzajd6TVRUcTFkTzc2dVdrdktsaldlTTlNZE5mZllhM0w4NVNRaWtuTnk5X0NPcHZfN2dGVHVuOFV4RE1ST3dZNjY0MW0ycmwzeXZ1QncxVEZkZDVIUm5NMDlRUjAwWEV0aEdQYlVwNzBmRVFyRlhzZ1haYW1vekNQenY1MGtCbzFjc1FpUkNQd3o1LTRwcm84cGdzT0tJcjFEY3R4X3dQUQ?oc=5"
+---
+
+Air India, Air India Express suspend Saudi flights till Nov 14 amid Houthi attacks India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxQVkVHLW96eFBCLUFpWVlMb2NqN29nSXVmRnFPaXB5VDgzeDRmd0g2c0FqMzBvcldRQXZDR3g5R0lRRzZSWE9rVHBTTGpvQlVqMTlReFQ2UEVwNnV4QlhNaUM3RGtpSG84QWx3UzJwdm5sUVAzYV81Rk51S0JZWC1tUEo1aW1TRENjS1U5ZWNvLVZreWpsS1FaTTYwTGpLZVQ1MDE1dllvakREOElmd3lzQXlPR1BHQm9ramRHRmtfRHg0M0xKOU56Snh30gHPAUFVX3lxTFBTQ01BVTdPVGJ0ZTB5bi13aElxMmUwUFJvUl93aTBxNXluMTNVcWgzajd6TVRUcTFkTzc2dVdrdktsaldlTTlNZE5mZllhM0w4NVNRaWtuTnk5X0NPcHZfN2dGVHVuOFV4RE1ST3dZNjY0MW0ycmwzeXZ1QncxVEZkZDVIUm5NMDlRUjAwWEV0aEdQYlVwNzBmRVFyRlhzZ1haYW1vekNQenY1MGtCbzFjc1FpUkNQd3o1LTRwcm84cGdzT0tJcjFEY3R4X3dQUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

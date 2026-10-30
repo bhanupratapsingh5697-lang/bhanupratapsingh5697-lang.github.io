@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Ahmedabad's 2036 Olympic Bid Faces Rival as Durban Enters Race - Rediff"
+date: 2026-10-30 09:49:58 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMisAFBVV95cUxNVjU5TU9LWF93dWV0UDBqWFJLcHBmal91TnYwNUhWZ3RuNGVQenJOWUp1THoyTnVsOFdlSVV4bUZoNzJ3bV9yTGhoRHRUVWloWmliU1lxeFhlVTNhSjA3cTFSTWhkdWh3dTk0RVNXdkZIaURDbVo0UlcxQ0NFaUhUQms3YkE0aE5fbEQ3eUZDUV9Ub2N4MW81VUtYX25CUUp4RmhqNjJmc3MtS1d4Vl82c9IBswFBVV95cUxQVUVEQy0tT0c5TlpQN3dNUlI1eXBFOWlYa01NdndXTEVJWmN3VUx6VDA5cG4yRnp3ZE13YzlSejNNX1Ixcl9XUVhXOU9UTTJGaU4wMno2R1pVbThOYWE3U3Q2Y2xJbDdMZHh3QmRhVGZuM2E0ZjFidVNjcWtDbTNLUEhIUmh3T3ZETzN5Wi1FZUw5ZlNXOTZRU0EtSlZDV0dDd0MwVW93SEs4WVI5OGVKSmJBQQ?oc=5"
+---
+
+Ahmedabad's 2036 Olympic Bid Faces Rival as Durban Enters Race Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisAFBVV95cUxNVjU5TU9LWF93dWV0UDBqWFJLcHBmal91TnYwNUhWZ3RuNGVQenJOWUp1THoyTnVsOFdlSVV4bUZoNzJ3bV9yTGhoRHRUVWloWmliU1lxeFhlVTNhSjA3cTFSTWhkdWh3dTk0RVNXdkZIaURDbVo0UlcxQ0NFaUhUQms3YkE0aE5fbEQ3eUZDUV9Ub2N4MW81VUtYX25CUUp4RmhqNjJmc3MtS1d4Vl82c9IBswFBVV95cUxQVUVEQy0tT0c5TlpQN3dNUlI1eXBFOWlYa01NdndXTEVJWmN3VUx6VDA5cG4yRnp3ZE13YzlSejNNX1Ixcl9XUVhXOU9UTTJGaU4wMno2R1pVbThOYWE3U3Q2Y2xJbDdMZHh3QmRhVGZuM2E0ZjFidVNjcWtDbTNLUEhIUmh3T3ZETzN5Wi1FZUw5ZlNXOTZRU0EtSlZDV0dDd0MwVW93SEs4WVI5OGVKSmJBQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

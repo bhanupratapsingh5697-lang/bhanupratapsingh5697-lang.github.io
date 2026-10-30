@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Air India, AI Express extend cancellation of Saudi Arabia flights till Nov 14 - The New Indian Express"
+date: 2026-10-30 17:54:10 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxOd2hQZDN5aUNFT3lqaTlYSmE2eUJUbUVxM2NMODB6NUs5QnotNEN0LVc3OUZld3BDQ1NBSnBpemVPbm1xY3pxbXFpZ0RkSndhc1JpUmItcGQxTkxmblFhUS1yLU44TExaWUVaSldyZ1lqejFfdHBNYXVaQlg1bHlRNmRuQllXaHpzX0FDelVxZlJLWW52OE1Cem5HaTFGNkg4MmZadWhidnNxbjhxMzVfYWpWdkNDSWtWQ0hyOU1CQlpuV1hWaXFladIB1gFBVV95cUxNcjFpS1ROSVB3VDlhS1pIS09ZV0RSR0g0SWsyRUtkbjlHajNmMkZhR3JobHRNOWpjUTZaOC03N1NCcXB2QlhwTnlnVkdSUXB2b2dTcjRVNkNnX2U3bTFyTFZDcFNfNkFQTGtYQlFpdHNvOEJPbzBBeVlJdjZISzg4M0pyTC1HWkhreGp6VlROdllOZmtJYjk2QjNqcUNQcHpIUGNmT3NiWnd6cTJaR3oxNldyWU4yOWg1eHRMMElQSkFKcDd5QURWbUFrcHljNTBzUkZLWkZR?oc=5"
+---
+
+Air India, AI Express extend cancellation of Saudi Arabia flights till Nov 14 The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOd2hQZDN5aUNFT3lqaTlYSmE2eUJUbUVxM2NMODB6NUs5QnotNEN0LVc3OUZld3BDQ1NBSnBpemVPbm1xY3pxbXFpZ0RkSndhc1JpUmItcGQxTkxmblFhUS1yLU44TExaWUVaSldyZ1lqejFfdHBNYXVaQlg1bHlRNmRuQllXaHpzX0FDelVxZlJLWW52OE1Cem5HaTFGNkg4MmZadWhidnNxbjhxMzVfYWpWdkNDSWtWQ0hyOU1CQlpuV1hWaXFladIB1gFBVV95cUxNcjFpS1ROSVB3VDlhS1pIS09ZV0RSR0g0SWsyRUtkbjlHajNmMkZhR3JobHRNOWpjUTZaOC03N1NCcXB2QlhwTnlnVkdSUXB2b2dTcjRVNkNnX2U3bTFyTFZDcFNfNkFQTGtYQlFpdHNvOEJPbzBBeVlJdjZISzg4M0pyTC1HWkhreGp6VlROdllOZmtJYjk2QjNqcUNQcHpIUGNmT3NiWnd6cTJaR3oxNldyWU4yOWg1eHRMMElQSkFKcDd5QURWbUFrcHljNTBzUkZLWkZR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

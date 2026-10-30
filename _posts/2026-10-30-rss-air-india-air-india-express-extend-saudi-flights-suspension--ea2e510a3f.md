@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Air India, Air India Express Extend Saudi Flights Suspension Till November 14 - NDTV"
+date: 2026-10-30 20:28:40 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxNQlA4WUFaWWdDcWxqbHp5RHB1dERxNlVuMFdPdDItcWt4VkNKZTJ5TVlQbTRFd0UyZkpwb0VKclBRcS0xcjZEdms4MjYzWUNPN3RPUGF3TklQeFF6MW9nWlJuWkl0Tndsc0tteVR1ZEM5SXVPVlVJR2NlQWx3bU9pUjYzN2drYWxIRHJXUENOeE5PUUZ3bW5tbF9BTFRKdTdMMS01ZXJzc3ZWSWh0aWJCaFM3Z1JQd3JEZ0ZCakJGWTNoZ9IBygFBVV95cUxNXzdwY04zd09GOVRickNHYUNRYVo1VTRfc2pjb2VwZjRZT1R6alBYQm5jTGdNSkZpeXh4TFRlVHRQb09RbUVMeHpReUQwNGp3bC1rNXNiZ01ma2Q0SzZKM1BHbldORjlFeWxmejcwOXBmU1lkX1Z5ZHpWRUk0YWJmOW1ndXVoX1BvZ1RLVExRMGFhSVhxdXZYUm9BY1ZfS01Od1RSRm9SeFYyX1pYdkt2OEROSWNrMklPb3lHc2hNa3FqMklyN0N2MXFR?oc=5"
+---
+
+Air India, Air India Express Extend Saudi Flights Suspension Till November 14 NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNQlA4WUFaWWdDcWxqbHp5RHB1dERxNlVuMFdPdDItcWt4VkNKZTJ5TVlQbTRFd0UyZkpwb0VKclBRcS0xcjZEdms4MjYzWUNPN3RPUGF3TklQeFF6MW9nWlJuWkl0Tndsc0tteVR1ZEM5SXVPVlVJR2NlQWx3bU9pUjYzN2drYWxIRHJXUENOeE5PUUZ3bW5tbF9BTFRKdTdMMS01ZXJzc3ZWSWh0aWJCaFM3Z1JQd3JEZ0ZCakJGWTNoZ9IBygFBVV95cUxNXzdwY04zd09GOVRickNHYUNRYVo1VTRfc2pjb2VwZjRZT1R6alBYQm5jTGdNSkZpeXh4TFRlVHRQb09RbUVMeHpReUQwNGp3bC1rNXNiZ01ma2Q0SzZKM1BHbldORjlFeWxmejcwOXBmU1lkX1Z5ZHpWRUk0YWJmOW1ndXVoX1BvZ1RLVExRMGFhSVhxdXZYUm9BY1ZfS01Od1RSRm9SeFYyX1pYdkt2OEROSWNrMklPb3lHc2hNa3FqMklyN0N2MXFR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
