@@ -198,7 +198,7 @@ def main():
     made = 0
     gemini_count = 0
     gemini_attempts = 0
-    MAX_GEMINI_ARTICLES = 5 
+    MAX_GEMINI_ARTICLES = 2 
 
     for source, url, category in FEEDS:
         try:
