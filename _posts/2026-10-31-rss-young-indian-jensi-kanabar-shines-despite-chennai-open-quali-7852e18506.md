@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Young Indian Jensi Kanabar Shines Despite Chennai Open Qualifiers Loss - Rediff"
+date: 2026-10-31 23:18:39 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxOdzF5NkJqY2NwYVNfUG1yX1hXSnlaTTRpQlFReUZ6Z2hmUDFBREFPcW9ydmlWQlAwUHJQY0swVVBKSXItU3pRaUd5WmxuSl9xNWEtX3h3T2dPcVEwNWhKRDJxZzhMSklESmpzMXVvTVpKWmFJdzJLN05aam5IRDI5MzZYeFpzZUphdlZkMmNQQ1BQVC13TlM0QktJYkJ1YWJfX2hGTllJd3pic1hZX004OU96cmVhTFBsTEHSAbwBQVVfeXFMTWFFclotU0pxczh5aWY2cHA5Y0FYVkdqdDhqejEzeUxVUVJuTTVzeHg4NGJoaXRITkVBOXBCMHJEWm85Y2V2YnpBMFBaTFlqclhmTkhSRHU0ZE0zMXM5TWx4V0U1TXAtQlNPX2VZNmp5eFFfcGR4UGpsRUV0QzhuVXFnX0ZGTVVQSTlDc1ZYYlJRQU5wTDVreTctekY0OEt2LWF5ODFKRGdTM3o0d3l1QUdRMk1UNGZDc2p5OVo?oc=5"
+---
+
+Young Indian Jensi Kanabar Shines Despite Chennai Open Qualifiers Loss Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdzF5NkJqY2NwYVNfUG1yX1hXSnlaTTRpQlFReUZ6Z2hmUDFBREFPcW9ydmlWQlAwUHJQY0swVVBKSXItU3pRaUd5WmxuSl9xNWEtX3h3T2dPcVEwNWhKRDJxZzhMSklESmpzMXVvTVpKWmFJdzJLN05aam5IRDI5MzZYeFpzZUphdlZkMmNQQ1BQVC13TlM0QktJYkJ1YWJfX2hGTllJd3pic1hZX004OU96cmVhTFBsTEHSAbwBQVVfeXFMTWFFclotU0pxczh5aWY2cHA5Y0FYVkdqdDhqejEzeUxVUVJuTTVzeHg4NGJoaXRITkVBOXBCMHJEWm85Y2V2YnpBMFBaTFlqclhmTkhSRHU0ZE0zMXM5TWx4V0U1TXAtQlNPX2VZNmp5eFFfcGR4UGpsRUV0QzhuVXFnX0ZGTVVQSTlDc1ZYYlJRQU5wTDVreTctekY0OEt2LWF5ODFKRGdTM3o0d3l1QUdRMk1UNGZDc2p5OVo?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

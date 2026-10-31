@@ -1,0 +1,17 @@
+---
+layout: post
+title: "40 villas, Rs 1.8 crore rent: Rajasthan IAS-IPS couple faces corruption probe - India Today"
+date: 2026-10-31 23:32:35 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxQTTdLcFBjTjAzaG96MEtGZm1NeTl4NFlxNWFTQ1kxU0YyN2ZHYlJtM2dWdlVUN2FiSk5sb09KTzQzRnBqOHR3Um5RMTd1eFhXekR0eFNTUGFpN0ctX2NkY1htdWNhLVd6Q2FiNVZFdjR5dEtQLWZQdXBCZFpXTkdvdGlaZzNwLUNjVkdsNTlzalU3Y05mNU1QWHk3T2NfZ2tZZEplU0pUNzdjelJxRmlTSzI2c3Bodzc3elhsb0duNNIBxAFBVV95cUxOd0dDdnU4MWhKTmN3NG1ybldUczN1N2wxLUc1T21pR1dIYmcyRDdzT2QtbkZYbGtORWlWTzRTV202VnVsbnRZc2Nta1ZfR21zenVzSVRLaXlZSVctS0s3VVFuc25UekNCY19UbkM3UEZGeURfdTdYNkVLUWRON25HM29PLUZGUmlGdHNiV0ZUaTh1SkFmUGxuSk51eGtlcG5WQ2tYYmZPZHA1N1Z4UzQyZThBLW9QQVpkV3VKMlFGYWhTV1B6?oc=5"
+---
+
+40 villas, Rs 1.8 crore rent: Rajasthan IAS-IPS couple faces corruption probe India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxQTTdLcFBjTjAzaG96MEtGZm1NeTl4NFlxNWFTQ1kxU0YyN2ZHYlJtM2dWdlVUN2FiSk5sb09KTzQzRnBqOHR3Um5RMTd1eFhXekR0eFNTUGFpN0ctX2NkY1htdWNhLVd6Q2FiNVZFdjR5dEtQLWZQdXBCZFpXTkdvdGlaZzNwLUNjVkdsNTlzalU3Y05mNU1QWHk3T2NfZ2tZZEplU0pUNzdjelJxRmlTSzI2c3Bodzc3elhsb0duNNIBxAFBVV95cUxOd0dDdnU4MWhKTmN3NG1ybldUczN1N2wxLUc1T21pR1dIYmcyRDdzT2QtbkZYbGtORWlWTzRTV202VnVsbnRZc2Nta1ZfR21zenVzSVRLaXlZSVctS0s3VVFuc25UekNCY19UbkM3UEZGeURfdTdYNkVLUWRON25HM29PLUZGUmlGdHNiV0ZUaTh1SkFmUGxuSk51eGtlcG5WQ2tYYmZPZHA1N1Z4UzQyZThBLW9QQVpkV3VKMlFGYWhTV1B6?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

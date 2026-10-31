@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Central Park walkers oppose JDA sports complex plan - The Times of India"
+date: 2026-10-31 22:44:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxOWWxGUDlnUl9fZEFqU2pHQU90b0lOOGhfSDdRczd0a0VVbnU5YzZSQU9oSjJxVUFyZlVRQjdfLWc1ZDZiQUp0TlQ5aE9tM3Rjd0xhSG8wNnpwUVRBWDA3Zm5fekZJaDg3elI5dU1Zd0dYV0dxbzBlSjVraThISnNlSDdFMEpxWGZHRlNaU3FuLWVQM3dLQ0kyekpEbnFTU0E1ckVvTGZTREdLSlNBTVg1R3UySjJOR0xtTzJNRl95WkFuWmfSAcgBQVVfeXFMTXFLTmpXYkVzTlNDcUc0VHhNS0hpa1k0SUpoSUZzY0V0bTJ3c1ItZ0pYdk11a2VHaUMxcExRakVBc3MtOEpOakhFdnYyQW5oTTlzR0NUYVU5TEZsTng1NEtPRWVkSGoyMTRMcV82dEc4MUdzd0dUTXRVUUFBNFRTZUJ5YS1sUmdMcnBNVDNDZG5JX0RQN3k5c1hsd2ZrbjFTeGVRT054NHE4WHFHdmhDR0dSbTk5V0NmMENPYUNpS2ZhcEhPV0xvR0I?oc=5"
+---
+
+Central Park walkers oppose JDA sports complex plan The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOWWxGUDlnUl9fZEFqU2pHQU90b0lOOGhfSDdRczd0a0VVbnU5YzZSQU9oSjJxVUFyZlVRQjdfLWc1ZDZiQUp0TlQ5aE9tM3Rjd0xhSG8wNnpwUVRBWDA3Zm5fekZJaDg3elI5dU1Zd0dYV0dxbzBlSjVraThISnNlSDdFMEpxWGZHRlNaU3FuLWVQM3dLQ0kyekpEbnFTU0E1ckVvTGZTREdLSlNBTVg1R3UySjJOR0xtTzJNRl95WkFuWmfSAcgBQVVfeXFMTXFLTmpXYkVzTlNDcUc0VHhNS0hpa1k0SUpoSUZzY0V0bTJ3c1ItZ0pYdk11a2VHaUMxcExRakVBc3MtOEpOakhFdnYyQW5oTTlzR0NUYVU5TEZsTng1NEtPRWVkSGoyMTRMcV82dEc4MUdzd0dUTXRVUUFBNFRTZUJ5YS1sUmdMcnBNVDNDZG5JX0RQN3k5c1hsd2ZrbjFTeGVRT054NHE4WHFHdmhDR0dSbTk5V0NmMENPYUNpS2ZhcEhPV0xvR0I?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

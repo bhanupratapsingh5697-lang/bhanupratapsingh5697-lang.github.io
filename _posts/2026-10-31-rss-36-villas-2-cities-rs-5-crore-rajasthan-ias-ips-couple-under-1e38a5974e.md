@@ -1,0 +1,17 @@
+---
+layout: post
+title: "36 Villas, 2 Cities, Rs 5 Crore: Rajasthan IAS-IPS Couple Under Probe - NDTV"
+date: 2026-10-31 21:39:09 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi4AFBVV95cUxOV0xnMzZvZUVKNG5jVHlvQ2ZGWW0ycy0ya3VMSHd0ZTZhdHh6TUxlOHp0WW5wbEJ0Q0pUSjQtTjZDWm9iYlJYZGtzd1FXaXVCTlR6anVya1pLN1pBd0RhY0NNTVo1RHF0cFZubUtDeTk1R0F6RzlsQ0Mxd0dqemtLTmVBUFZHV0NNQlVfRkhMcHRuVm9QUzFwQnZKRWMyWEFMb3BlZ0oydFlpMHFLbTI1NC03dVh5NVFWSVBQdjBaSjNvbjlxM2I3cUM1VHo1MklNYURxUXlFRUJ4V1pXWktredIB6AFBVV95cUxNTXp2RU1HQVQ1dVJ3Ym8xWkVJQjE2bkJKN1BiSG1TWUJlQmtwc2hGVzBwSUpaMGdWdDdDS2NhYmE3dlFQS0JiUWtudk9IeXJVcEtEdWt2WjZhVXoyV2FJNDZoWEZYRWZBRWZHcnpVSEZ6YUV2N3lHSTdSV0JtekNjY0pjNW43bk1SSW9oUVZ5MW1jOWFvZ0hnRGNiSWgwLWdfV01EQ3lSQ1BUcTRGR1VXcnVxejExZ1lkMXlTeXZfaEJsVzk1elFVQUUta0tXQWlTM05EUHNXSldoU2F5Wjcxc045alZVaDE5?oc=5"
+---
+
+36 Villas, 2 Cities, Rs 5 Crore: Rajasthan IAS-IPS Couple Under Probe NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4AFBVV95cUxOV0xnMzZvZUVKNG5jVHlvQ2ZGWW0ycy0ya3VMSHd0ZTZhdHh6TUxlOHp0WW5wbEJ0Q0pUSjQtTjZDWm9iYlJYZGtzd1FXaXVCTlR6anVya1pLN1pBd0RhY0NNTVo1RHF0cFZubUtDeTk1R0F6RzlsQ0Mxd0dqemtLTmVBUFZHV0NNQlVfRkhMcHRuVm9QUzFwQnZKRWMyWEFMb3BlZ0oydFlpMHFLbTI1NC03dVh5NVFWSVBQdjBaSjNvbjlxM2I3cUM1VHo1MklNYURxUXlFRUJ4V1pXWktredIB6AFBVV95cUxNTXp2RU1HQVQ1dVJ3Ym8xWkVJQjE2bkJKN1BiSG1TWUJlQmtwc2hGVzBwSUpaMGdWdDdDS2NhYmE3dlFQS0JiUWtudk9IeXJVcEtEdWt2WjZhVXoyV2FJNDZoWEZYRWZBRWZHcnpVSEZ6YUV2N3lHSTdSV0JtekNjY0pjNW43bk1SSW9oUVZ5MW1jOWFvZ0hnRGNiSWgwLWdfV01EQ3lSQ1BUcTRGR1VXcnVxejExZ1lkMXlTeXZfaEJsVzk1elFVQUUta0tXQWlTM05EUHNXSldoU2F5Wjcxc045alZVaDE5?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

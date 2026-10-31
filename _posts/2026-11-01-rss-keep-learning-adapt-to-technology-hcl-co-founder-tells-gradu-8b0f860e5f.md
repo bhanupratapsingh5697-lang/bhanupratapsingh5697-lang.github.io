@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Keep learning & adapt to technology, HCL co-founder tells graduates - The Times of India"
+date: 2026-11-01 00:25:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxNdmNkb1cxOE9WUHFSUnk5aDRCZ1VidmctSVEyMGFxYk5HYXJpOExqWWJnZlZMcFBoc1MtUjRaOC16OVRDSnMzVUF2RkpnNWV3WGZQeDdMcm50cmpBRlpOLVRwR1BTWExTUTlfTnFxUTl2LUd4dF9tQW1FVzQ4NmtxS1AtanlINGRTS2Fxd2xObGNmMzlDcVNhYTJONjhXOXpBenAxbWtvSWNBOXAwMExMZkVvR04tM2ZmZC1EeGFsVTBtVmhUcXZCU1BZRmdRRzc1MWxxeldwTnLSAd4BQVVfeXFMTUVVSS1LTUlXcm1sa1FKdWFjUGsySUswVG1xYTFyZGI4U1d6d3lGbHJ6LXhLaHhVdkRDaTFTMkRrLUJRc0R2V1dxUTFpbFp4emlHUU1aUjVEWHNXa2JUNDlJYl9MWFF2Mk84M1ByV1IxTkg5TzBLbVdTVTlMejJsRTNVNGNCZThkT2JLbmRuTlFleWFWWG1YTDVfNUlmN19XMXZwRVRTQVVRM1ZCcy16OXlYU0IxeEk1dHA5dXJpa25QbklLUUljLURCS1pFUlB2QzBfazVaNEhvTEpzeG1B?oc=5"
+---
+
+Keep learning & adapt to technology, HCL co-founder tells graduates The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxNdmNkb1cxOE9WUHFSUnk5aDRCZ1VidmctSVEyMGFxYk5HYXJpOExqWWJnZlZMcFBoc1MtUjRaOC16OVRDSnMzVUF2RkpnNWV3WGZQeDdMcm50cmpBRlpOLVRwR1BTWExTUTlfTnFxUTl2LUd4dF9tQW1FVzQ4NmtxS1AtanlINGRTS2Fxd2xObGNmMzlDcVNhYTJONjhXOXpBenAxbWtvSWNBOXAwMExMZkVvR04tM2ZmZC1EeGFsVTBtVmhUcXZCU1BZRmdRRzc1MWxxeldwTnLSAd4BQVVfeXFMTUVVSS1LTUlXcm1sa1FKdWFjUGsySUswVG1xYTFyZGI4U1d6d3lGbHJ6LXhLaHhVdkRDaTFTMkRrLUJRc0R2V1dxUTFpbFp4emlHUU1aUjVEWHNXa2JUNDlJYl9MWFF2Mk84M1ByV1IxTkg5TzBLbVdTVTlMejJsRTNVNGNCZThkT2JLbmRuTlFleWFWWG1YTDVfNUlmN19XMXZwRVRTQVVRM1ZCcy16OXlYU0IxeEk1dHA5dXJpa25QbklLUUljLURCS1pFUlB2QzBfazVaNEhvTEpzeG1B?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

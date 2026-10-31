@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Technology educator wins 5th Rohini Nayyar Prize for contribution to rural development - ThePrint"
+date: 2026-10-31 20:16:24 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxNYzVZZTNXdmotMkViQ1UwLUZncEF6NDI2eUx0OS1jNHQxZ2xEblpFWUY0cWdxRWpLWGhudnJNc0N4ZmE0N1o2Zl9YVTZzRkM5QnNObXAzMlQzQVZRYV9tMHFUblEzNXZTcVMzQUxuS1NVaXdmbGhkMzRsUi04RldlUU0xMjNLRFM5STJlaTNQOE14ck0wQ3oxSm96cFBndkp1d1pwbFBybG13QjF5REVkVDJMN2c2STdKTVVzOGpB0gHDAUFVX3lxTE1ybXlyY2hiTF9FRXlNQjh2VGR4OXFfQlB1X1ctVHo3cDFrU3ptR0FrNElXVkpYamd4bWROUVdVTm05UUJBNjR5QmN1ZmRhM09JeFRpd1I0VlphQ1JvOW05aWtmWFBQaVhoZVFFZzFKTmU3QVV5RjRyMk5INmdNR0QyTVlvTkdCWHVUZElXdG5TaU5oWEJMemV6MVhfZlRZUnE3YVlyNFJTVkFKWmR0UnBlSmItQ1VzTy1ZUWJWd1owZXluWQ?oc=5"
+---
+
+Technology educator wins 5th Rohini Nayyar Prize for contribution to rural development ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxNYzVZZTNXdmotMkViQ1UwLUZncEF6NDI2eUx0OS1jNHQxZ2xEblpFWUY0cWdxRWpLWGhudnJNc0N4ZmE0N1o2Zl9YVTZzRkM5QnNObXAzMlQzQVZRYV9tMHFUblEzNXZTcVMzQUxuS1NVaXdmbGhkMzRsUi04RldlUU0xMjNLRFM5STJlaTNQOE14ck0wQ3oxSm96cFBndkp1d1pwbFBybG13QjF5REVkVDJMN2c2STdKTVVzOGpB0gHDAUFVX3lxTE1ybXlyY2hiTF9FRXlNQjh2VGR4OXFfQlB1X1ctVHo3cDFrU3ptR0FrNElXVkpYamd4bWROUVdVTm05UUJBNjR5QmN1ZmRhM09JeFRpd1I0VlphQ1JvOW05aWtmWFBQaVhoZVFFZzFKTmU3QVV5RjRyMk5INmdNR0QyTVlvTkdCWHVUZElXdG5TaU5oWEJMemV6MVhfZlRZUnE3YVlyNFJTVkFKWmR0UnBlSmItQ1VzTy1ZUWJWd1owZXluWQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "INDIA bloc holds symbolic ‘public impeachment’ of CEC Gyanesh Kumar on six charges - The Hindu"
+date: 2026-10-31 22:47:53 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxOY20xMUFROEt3Zy1VMHl3SG1lZHhURk13Wm4wcTh4OG9PU3FYNlotZngtZHJENnR2bTBBenpBNnliODZMRGUxVURpcXR6eG9CdklkaC01QVFpdk9EUmZTX2NRZk9UbVQxeHRiTzhaNjBVU3o1OWpyMmRjb2hfZTVFaXV3eVRQUHFUR0tKMV93ZmYwSDF5aHJqb1pBSFpadGNxUUh5b1JJOGk4cXU0WnVsNUVNOGZLUzZPQ3hDNTFXYTNMejVLQTloU3hRem42SDhjenFvVzFn0gHcAUFVX3lxTE5NN3I2ZGdob1E4NC10WU9fNTA3V1NUX3pZaGFhYU0wTzFVVVpteDRNc3dSdXl3MXFxMjZIeF9pc1Z5M3Z0QXlYd3VmaHNsZHJhLUJoWmFNcGdfc1htaV9KTjlNRkkweW9kS2hNUGtyN1lvUkllb0xoenJnM3VmdjJaWEpMajVnOWxvbjNTRmF3Nm1wUzN3SEpTUGRFQmR1M2xmYWhxMTI0SFVxT1VCeHVULXdGZDVCMjJ4SFlrV1ZvN3NHanFCc2hHb3VES3BQT0hGMzlMVDFBSGJXaWw?oc=5"
+---
+
+INDIA bloc holds symbolic ‘public impeachment’ of CEC Gyanesh Kumar on six charges The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOY20xMUFROEt3Zy1VMHl3SG1lZHhURk13Wm4wcTh4OG9PU3FYNlotZngtZHJENnR2bTBBenpBNnliODZMRGUxVURpcXR6eG9CdklkaC01QVFpdk9EUmZTX2NRZk9UbVQxeHRiTzhaNjBVU3o1OWpyMmRjb2hfZTVFaXV3eVRQUHFUR0tKMV93ZmYwSDF5aHJqb1pBSFpadGNxUUh5b1JJOGk4cXU0WnVsNUVNOGZLUzZPQ3hDNTFXYTNMejVLQTloU3hRem42SDhjenFvVzFn0gHcAUFVX3lxTE5NN3I2ZGdob1E4NC10WU9fNTA3V1NUX3pZaGFhYU0wTzFVVVpteDRNc3dSdXl3MXFxMjZIeF9pc1Z5M3Z0QXlYd3VmaHNsZHJhLUJoWmFNcGdfc1htaV9KTjlNRkkweW9kS2hNUGtyN1lvUkllb0xoenJnM3VmdjJaWEpMajVnOWxvbjNTRmF3Nm1wUzN3SEpTUGRFQmR1M2xmYWhxMTI0SFVxT1VCeHVULXdGZDVCMjJ4SFlrV1ZvN3NHanFCc2hHb3VES3BQT0hGMzlMVDFBSGJXaWw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
