@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Why INDIA bloc wants Gyanesh Kumar removed: Six allegations at ‘public impeachment’ meet - Telegraph India"
+date: 2026-10-31 17:22:13 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxQMVRkZFNobmNlSTRnQWg1OTZtN3NGdG9IRGl2NWVZelFxZWNSNmlPS3pFMUJ2Sm5ycWhXQjRMODdmb0dSOG1xUmVRYUJ0Wkd3ZXFvY0pHckl4NE1QRm5QRjVFOGZZaGxpNUtCeE16a3RsdUF6MnN1RS1qVTdta3d2UmZjUVZvX0QyeGMxYkFyTkNVMlJKSFdRREY4SFo3bDZxX2s0Ulp0WGQxY3lEQW9PdG0xa1Vxdm16RGIyODM1REhQUzYyRExmSVFJM1BTM2l2ZjhQUzhoX3U0SWfSAeABQVVfeXFMT3BrQk1yeTY2NGZwRFI1dG1kSFktN0gxVkw5alBfcjBpcGRodGZwV3d2bzBUWWNHQUoxdUNnVkFiXzZFVDIzN2JZREhmTVZKS2lPZk5CMGdNX0FBUXBTb2NvU0NNZnQ1U1lEc2dIMXY1c24zSmx1aXZlMDVsTUxVQm1DVGhhV1YwdG50S3NfcHA2VWstQUN4YzAzR1UybHZXRnREVVBHenJ4LWpyemlZalQ2cHYyWjltY3hyUmNBQ0FvZTI5UFE1X3d5UEcyR3NWd29XbFFmQ3o5dy1GRWc1UG8?oc=5"
+---
+
+Why INDIA bloc wants Gyanesh Kumar removed: Six allegations at ‘public impeachment’ meet Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQMVRkZFNobmNlSTRnQWg1OTZtN3NGdG9IRGl2NWVZelFxZWNSNmlPS3pFMUJ2Sm5ycWhXQjRMODdmb0dSOG1xUmVRYUJ0Wkd3ZXFvY0pHckl4NE1QRm5QRjVFOGZZaGxpNUtCeE16a3RsdUF6MnN1RS1qVTdta3d2UmZjUVZvX0QyeGMxYkFyTkNVMlJKSFdRREY4SFo3bDZxX2s0Ulp0WGQxY3lEQW9PdG0xa1Vxdm16RGIyODM1REhQUzYyRExmSVFJM1BTM2l2ZjhQUzhoX3U0SWfSAeABQVVfeXFMT3BrQk1yeTY2NGZwRFI1dG1kSFktN0gxVkw5alBfcjBpcGRodGZwV3d2bzBUWWNHQUoxdUNnVkFiXzZFVDIzN2JZREhmTVZKS2lPZk5CMGdNX0FBUXBTb2NvU0NNZnQ1U1lEc2dIMXY1c24zSmx1aXZlMDVsTUxVQm1DVGhhV1YwdG50S3NfcHA2VWstQUN4YzAzR1UybHZXRnREVVBHenJ4LWpyemlZalQ2cHYyWjltY3hyUmNBQ0FvZTI5UFE1X3d5UEcyR3NWd29XbFFmQ3o5dy1GRWc1UG8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

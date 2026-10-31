@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan pays ₹345 crore in pending crop insurance claims to farmers - ET Government"
+date: 2026-10-31 00:33:58 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxOSHV1Z0hydW1nQXdQUzV6MzNkdl91dzk2SVRjWFhVYTUyN0p6dzA3ZXEzQzVCSUlpSDlJN1VWUG0wMkVQOW9HQ3ltMVU0V0p4UG05Ym1HRy1GN29LUFZnLW5sT3k0MGI5ek9yYXBnV2FZRHRZbXhfZElFUGJBdzZaVmhvemdNcFFnT3gxNlV1d2dpRVRURjM2LUVFN0tCQ0hVV0wzYW8tV2w0TzR4YWc2NHpqSjRsZEFqdUdCUkRoUmdZRWJrdVoydmtxOTU1eUhySmZVU9IB2AFBVV95cUxQU04wQ0FyNU1pOGhjdTdyMFRWeDZWMjBhanByaXI3anFVSnI2VTNSVHkwbHotajRVcmJaWnoteHFlSFV1Z2kta1B6bVZKVVJZV2ZvenY0NEt5WEdpaWRxekpRZHZpZ3ZtZzh0SkVYSW5zMHRWdU5ONU1iWXpTb1pJN3VtaE90R01OU0ZJT3g0TlZMbjdNenF6SnM1NV9HWU9LaTZiNWhIRVZTRklCeVozM25oak5NLVZYcE9KQjgxM01OcnRhY3BnSjdwREpKTlJHSFdkNHNKZUE?oc=5"
+---
+
+Rajasthan pays ₹345 crore in pending crop insurance claims to farmers ET Government
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOSHV1Z0hydW1nQXdQUzV6MzNkdl91dzk2SVRjWFhVYTUyN0p6dzA3ZXEzQzVCSUlpSDlJN1VWUG0wMkVQOW9HQ3ltMVU0V0p4UG05Ym1HRy1GN29LUFZnLW5sT3k0MGI5ek9yYXBnV2FZRHRZbXhfZElFUGJBdzZaVmhvemdNcFFnT3gxNlV1d2dpRVRURjM2LUVFN0tCQ0hVV0wzYW8tV2w0TzR4YWc2NHpqSjRsZEFqdUdCUkRoUmdZRWJrdVoydmtxOTU1eUhySmZVU9IB2AFBVV95cUxQU04wQ0FyNU1pOGhjdTdyMFRWeDZWMjBhanByaXI3anFVSnI2VTNSVHkwbHotajRVcmJaWnoteHFlSFV1Z2kta1B6bVZKVVJZV2ZvenY0NEt5WEdpaWRxekpRZHZpZ3ZtZzh0SkVYSW5zMHRWdU5ONU1iWXpTb1pJN3VtaE90R01OU0ZJT3g0TlZMbjdNenF6SnM1NV9HWU9LaTZiNWhIRVZTRklCeVozM25oak5NLVZYcE9KQjgxM01OcnRhY3BnSjdwREpKTlJHSFdkNHNKZUE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

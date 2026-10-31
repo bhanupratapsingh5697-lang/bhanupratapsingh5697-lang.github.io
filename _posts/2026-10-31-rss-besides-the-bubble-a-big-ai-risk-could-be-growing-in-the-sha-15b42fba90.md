@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Besides the bubble, a big AI risk could be growing in the shadows - The Economic Times"
+date: 2026-10-31 15:18:10 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxQWTZ4aHJZVHpHY2llRl85OXpqTlRlenhfYmpkX0Z5TXpYSHNTSzh2OURDeHAwUzB1aDNMbmxPMEhGek8xa05zb1NpUGl1TkNKUFliaXFQdkwxandzTDhvNThvYlVVTjNmaTlDM2FfTndFQzgzV0lrNEJBNTZ5elB0M1FPd1hJU25WZkFaS1A3Ynl3YTI5RUxyMHppS05PY3kxa2gxbk5FUi13a09uRU1FMlVKc3lLSHFySmRicUdrMkhhOGhnaDA1eGRfNTZyZ9IB0wFBVV95cUxQZ2ZGcTByX1ZhcExmTmxYNmxTVnhQMmdTVzJVWjFJSEo5dENUVjZONk9pTDJQdHpncWZzeE1yWFljbzdRMXJTS2pJbVY2LVRJd0hoeVktYzJfVXJsMXgxOHY4ZUNhOXplc2VOd0V2eGZXT2QzS0JMRFBmS3k3Y0x0dGRvakJ1VHlvNVdCYlRpM01WRnBqaHFfSFA4enVsREE2M0RoNW5RelBnbzVFM0F1bFlVM0RTY3dJNlpQbXM5cnJINUk1WXl4eXo1M1M5RHFKWUVJ?oc=5"
+---
+
+Besides the bubble, a big AI risk could be growing in the shadows The Economic Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxQWTZ4aHJZVHpHY2llRl85OXpqTlRlenhfYmpkX0Z5TXpYSHNTSzh2OURDeHAwUzB1aDNMbmxPMEhGek8xa05zb1NpUGl1TkNKUFliaXFQdkwxandzTDhvNThvYlVVTjNmaTlDM2FfTndFQzgzV0lrNEJBNTZ5elB0M1FPd1hJU25WZkFaS1A3Ynl3YTI5RUxyMHppS05PY3kxa2gxbk5FUi13a09uRU1FMlVKc3lLSHFySmRicUdrMkhhOGhnaDA1eGRfNTZyZ9IB0wFBVV95cUxQZ2ZGcTByX1ZhcExmTmxYNmxTVnhQMmdTVzJVWjFJSEo5dENUVjZONk9pTDJQdHpncWZzeE1yWFljbzdRMXJTS2pJbVY2LVRJd0hoeVktYzJfVXJsMXgxOHY4ZUNhOXplc2VOd0V2eGZXT2QzS0JMRFBmS3k3Y0x0dGRvakJ1VHlvNVdCYlRpM01WRnBqaHFfSFA4enVsREE2M0RoNW5RelBnbzVFM0F1bFlVM0RTY3dJNlpQbXM5cnJINUk1WXl4eXo1M1M5RHFKWUVJ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

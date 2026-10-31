@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Zakir Naik Defends Taliban On Girls' Education, Gets Slammed By 3 Countries - NDTV"
+date: 2026-10-31 17:16:17 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxObEZCV053eDRmMkl1Zkd3MWZfUTVsVHpNeVFIak5zOXBRWXQwVldlbG0wQ2g4TElhVXdjNVJZTUh3M0pvanBrcUpLdm40eUNEYkNXMFoxNkhGa0NxN2xlc2Rwak5mdlNHeVpBSnpUZGFIOV9Cb3d5OTdLeFE3SGVaVXJfd2NaNFlzam4zY1ZoamdPU016VEI1ZFFUdlplN1BRenFqV0M1ZXFOWHIwRFRSZWVER0FUbDBHcFFLc0VEV0sxNksyQTItN9IB0AFBVV95cUxNVEJ6MEctOTFma2JBdUNqMG4tdjZHQUFXLWxWQjVFM3Y4VkZ3ZTJzMlQ3d2gwS29NbjMya19VTkVmbTRyTVRReUFYOXFKczRrV0FOQm9FQmJuRjBDVkVpRjRmSkpodVhiSGtzZV9kTGxESW9HbTNPekFLRnRNYTFxWXNSTk51dGRuSXl2Z2RUZmJQal9rMjZCWWI2OWhOaVR2eXZKb2ZIa3NVYjJ5XzVhUl9WMjF6WlZSTi1kOVFDdFIySWQ2WV9taEpac3JGcWhI?oc=5"
+---
+
+Zakir Naik Defends Taliban On Girls' Education, Gets Slammed By 3 Countries NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxObEZCV053eDRmMkl1Zkd3MWZfUTVsVHpNeVFIak5zOXBRWXQwVldlbG0wQ2g4TElhVXdjNVJZTUh3M0pvanBrcUpLdm40eUNEYkNXMFoxNkhGa0NxN2xlc2Rwak5mdlNHeVpBSnpUZGFIOV9Cb3d5OTdLeFE3SGVaVXJfd2NaNFlzam4zY1ZoamdPU016VEI1ZFFUdlplN1BRenFqV0M1ZXFOWHIwRFRSZWVER0FUbDBHcFFLc0VEV0sxNksyQTItN9IB0AFBVV95cUxNVEJ6MEctOTFma2JBdUNqMG4tdjZHQUFXLWxWQjVFM3Y4VkZ3ZTJzMlQ3d2gwS29NbjMya19VTkVmbTRyTVRReUFYOXFKczRrV0FOQm9FQmJuRjBDVkVpRjRmSkpodVhiSGtzZV9kTGxESW9HbTNPekFLRnRNYTFxWXNSTk51dGRuSXl2Z2RUZmJQal9rMjZCWWI2OWhOaVR2eXZKb2ZIa3NVYjJ5XzVhUl9WMjF6WlZSTi1kOVFDdFIySWQ2WV9taEpac3JGcWhI?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
