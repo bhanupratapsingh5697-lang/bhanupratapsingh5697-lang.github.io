@@ -197,7 +197,8 @@ def main():
     ist = dt.timezone(dt.timedelta(hours=5, minutes=30))
     made = 0
     gemini_count = 0
-    MAX_GEMINI_ARTICLES = 5
+    gemini_attempts = 0
+    MAX_GEMINI_ARTICLES = 5 
 
     for source, url, category in FEEDS:
         try:
@@ -240,18 +241,6 @@ def main():
                 ) 
 
                 summary = clean(raw)
-                article = None
-
-                if gemini_count < MAX_GEMINI_ARTICLES:
-                    article = generate_article(
-                        title,
-                        summary,
-                        source,
-                        link
-                    )
-
-                    if article:
-                        gemini_count += 1
 
                 date = get_date(
                     item,
@@ -290,6 +279,20 @@ def main():
                         print(f"Updated image: {title}")
 
                     continue
+                    article = None
+
+                if gemini_attempts < MAX_GEMINI_ARTICLES:
+                    gemini_attempts += 1
+
+                    article = generate_article(
+                        title,
+                        summary,
+                        source,
+                        link
+                    )
+
+                    if article:
+                        gemini_count += 1
 
                 host = urlparse(link).netloc.removeprefix("www.")
 
@@ -300,7 +303,11 @@ def main():
                     f"date: {date.strftime('%Y-%m-%d %H:%M:%S %z')}",
                     f"category: {quote(category)}",
                     'lang: "en"',
-                    'author: "Today News Desk (RSS summary)"',
+                    (
+                        'author: "Today News Desk (AI-assisted)"'
+                        if article
+                        else 'author: "Today News Desk (RSS summary)"'
+                    ),
                     f"image: {quote(image_url)}",
                     f"source_name: {quote(source)}",
                     f"source_url: {quote(link)}",
@@ -310,12 +317,18 @@ def main():
                     "",
                     f"**Original report:** [{host}]({link})",
                     "",
-                    "> Short automatically generated RSS summary. "
-                    "The original publisher owns the source reporting. "
-                    "Visit the source for full context and updates.",
+                    (
+                        "> This is an original AI-assisted article based on "
+                        "available source information. "
+                        "Visit the original publisher for further updates."
+                        if article
+                        else
+                        "> Short automatically generated RSS summary. "
+                        "The original publisher owns the source reporting. "
+                        "Visit the source for full context and updates."
+                    ),
                     ""
                 ]
-
                 path.write_text(
                     "\n".join(body),
                     encoding="utf-8"
