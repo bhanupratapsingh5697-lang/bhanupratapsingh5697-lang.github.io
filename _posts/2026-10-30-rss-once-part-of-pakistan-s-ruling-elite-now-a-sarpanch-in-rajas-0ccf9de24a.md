@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Once part of Pakistan’s ruling elite, now a sarpanch in Rajasthan - The Indian Express"
+date: 2026-10-30 05:48:12 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxQUTBpWWd5NzFJU1hUSE9NVjJoWU1Uc2lXWG4zV1UxUks0eDkzQmJJaDZ0QzRBSkMtbDFpX1dYSjB6OC0xZ0ExZ28wUUxuZkRuWlpHbVVIUnA5enRURldkTWFKTC1hMUlZSXEtSk9uYzNaWWpHbDlNRTNXanB5UFJRNnQ2ZFdXOG9mZjAxOTh1Tzc2RmN4LWtyeHBob0x2WXFCV2J0ZkwtcUtDd0NwR1pGbk03MXNtem9HZlo0MFpuM0YwcTZQakhB0gHOAUFVX3lxTE16bG41R3pRUzl0dThqNGFSYms5cS1HTGZKZHNNNFJyOTBaMloySjE5QWlQUGo1U01QOXI1Ulk0bFc5dWNySUlDZHRlYWJZYW1HVHVPWDZENEdNdUpQdDhNc05NZC1haEt2WDdaWVpTZ2lycWhYWmktOE43clhJSHZVWU1XN0llbHdfdlBhODNsYzVrYjdhbl9CX1pmYTZmazZYSkhaUTJjM3dGam5CQlEwMFVUd3dudXVMZ28zaTB2YWxXNkFWbHh5Mm91MGp3?oc=5"
+---
+
+Once part of Pakistan’s ruling elite, now a sarpanch in Rajasthan The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxQUTBpWWd5NzFJU1hUSE9NVjJoWU1Uc2lXWG4zV1UxUks0eDkzQmJJaDZ0QzRBSkMtbDFpX1dYSjB6OC0xZ0ExZ28wUUxuZkRuWlpHbVVIUnA5enRURldkTWFKTC1hMUlZSXEtSk9uYzNaWWpHbDlNRTNXanB5UFJRNnQ2ZFdXOG9mZjAxOTh1Tzc2RmN4LWtyeHBob0x2WXFCV2J0ZkwtcUtDd0NwR1pGbk03MXNtem9HZlo0MFpuM0YwcTZQakhB0gHOAUFVX3lxTE16bG41R3pRUzl0dThqNGFSYms5cS1HTGZKZHNNNFJyOTBaMloySjE5QWlQUGo1U01QOXI1Ulk0bFc5dWNySUlDZHRlYWJZYW1HVHVPWDZENEdNdUpQdDhNc05NZC1haEt2WDdaWVpTZ2lycWhYWmktOE43clhJSHZVWU1XN0llbHdfdlBhODNsYzVrYjdhbl9CX1pmYTZmazZYSkhaUTJjM3dGam5CQlEwMFVUd3dudXVMZ28zaTB2YWxXNkFWbHh5Mm91MGp3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

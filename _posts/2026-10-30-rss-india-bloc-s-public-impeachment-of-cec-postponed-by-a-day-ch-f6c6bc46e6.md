@@ -1,0 +1,17 @@
+---
+layout: post
+title: "INDIA bloc’s ‘public impeachment’ of CEC postponed by a day; Chalo Dilli march on November 1 - The Hindu"
+date: 2026-10-30 13:29:57 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxOanlENmNhQWI3bU5QV1pNNm1PSUhRdWlWTlhxeTVtc0c3RUo4aEE0enA0M202LTBDeU82YVRkSGNwbkd6dmVDdWxNX05IcUpLaS1OeUpDU3JPbWdwZ2xNRjJSYUdhUWx4NkVWeEVoNmx1RGRQOGZZOFExSTlmaFUta29SMmdXbkhPT1Z0THR4UnRMWFlEY25qNFM2bDZUNmloRkdReEthQUFYSnBDM0F6S1NQSW9FX2xBMzh1YzFsb0ZBS3l4cEQydFN3TjlaZTBZ0gHXAUFVX3lxTE1SWUhsOHIzV3FXMVpIVG9OUFJEODlLaW1CRWZsRC1OaVRUU0ZiYzBwQUM1bVJWSmRFMGxqbC1HV2FfNmt5QXhVanBfY09jVGhKeW5vc3ZLRUdZcE5vZkxndmhDdkh4cFd4YUMxeGphcnJITmxQSVFSWFRKUjJoeGZ2SXhmRmdUemtvc0lxcXY2aWhOb1BZTlRUU1djZFF2R2ZpZnFDS2JZMG8tOGtVZ1dScGVFaXJlOTQ0cnhjWFVPR3VfS1UxUEZLSDFYZlllbmxPV3lGbU5v?oc=5"
+---
+
+INDIA bloc’s ‘public impeachment’ of CEC postponed by a day; Chalo Dilli march on November 1 The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOanlENmNhQWI3bU5QV1pNNm1PSUhRdWlWTlhxeTVtc0c3RUo4aEE0enA0M202LTBDeU82YVRkSGNwbkd6dmVDdWxNX05IcUpLaS1OeUpDU3JPbWdwZ2xNRjJSYUdhUWx4NkVWeEVoNmx1RGRQOGZZOFExSTlmaFUta29SMmdXbkhPT1Z0THR4UnRMWFlEY25qNFM2bDZUNmloRkdReEthQUFYSnBDM0F6S1NQSW9FX2xBMzh1YzFsb0ZBS3l4cEQydFN3TjlaZTBZ0gHXAUFVX3lxTE1SWUhsOHIzV3FXMVpIVG9OUFJEODlLaW1CRWZsRC1OaVRUU0ZiYzBwQUM1bVJWSmRFMGxqbC1HV2FfNmt5QXhVanBfY09jVGhKeW5vc3ZLRUdZcE5vZkxndmhDdkh4cFd4YUMxeGphcnJITmxQSVFSWFRKUjJoeGZ2SXhmRmdUemtvc0lxcXY2aWhOb1BZTlRUU1djZFF2R2ZpZnFDS2JZMG8tOGtVZ1dScGVFaXJlOTQ0cnhjWFVPR3VfS1UxUEZLSDFYZlllbmxPV3lGbU5v?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
