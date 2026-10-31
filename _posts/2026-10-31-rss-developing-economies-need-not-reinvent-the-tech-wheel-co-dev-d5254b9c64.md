@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Developing economies need not reinvent the tech wheel: Co-Develop’s CEO Madhukar - The Indian Express"
+date: 2026-10-31 07:30:47 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxOQVQ3VTA1RWkybThNZnp3X0hDa2t6UHF4NWhsazBFZXgtbnRtRUVndG5UcEd1X1J2VnFEZjJ6dFdoSjZKMUNIT29HaEtoWjdhb0hnckdibVk3Q0JuYlh4UWN4c1F1VHppMlkwbEt6c2Y2eE9TNXVKT05iUERhcFdXRWU5LTJnMlRub2VvSWF0aWhRY250NndmNmIxXzVSZW04bnhiRXU2UU02cHc5WkHSAbQBQVVfeXFMTWZDSlp2TUFtdTZGdEp5X3RFTUI4bk1sWVhVOWg4cWNELUcwbzhnZlhBYm8wYlpoRkdVak9Vei1ETGt4S0F3NC1PVTM0bGczLWdvN3V5YWVGdFlMbHV6TW8tbkcxMFRYT01NaWpEWmhtMG4zbFlNV0w5eVpRM0M0NjdLM0x2amVBYlQ4RnpjVnRpUXhYbnl1Z1hjdWVGbVBPRkFYRXJIOGdXQkE2UTd2XzZwZzhZ?oc=5"
+---
+
+Developing economies need not reinvent the tech wheel: Co-Develop’s CEO Madhukar The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxOQVQ3VTA1RWkybThNZnp3X0hDa2t6UHF4NWhsazBFZXgtbnRtRUVndG5UcEd1X1J2VnFEZjJ6dFdoSjZKMUNIT29HaEtoWjdhb0hnckdibVk3Q0JuYlh4UWN4c1F1VHppMlkwbEt6c2Y2eE9TNXVKT05iUERhcFdXRWU5LTJnMlRub2VvSWF0aWhRY250NndmNmIxXzVSZW04bnhiRXU2UU02cHc5WkHSAbQBQVVfeXFMTWZDSlp2TUFtdTZGdEp5X3RFTUI4bk1sWVhVOWg4cWNELUcwbzhnZlhBYm8wYlpoRkdVak9Vei1ETGt4S0F3NC1PVTM0bGczLWdvN3V5YWVGdFlMbHV6TW8tbkcxMFRYT01NaWpEWmhtMG4zbFlNV0w5eVpRM0M0NjdLM0x2amVBYlQ4RnpjVnRpUXhYbnl1Z1hjdWVGbVBPRkFYRXJIOGdXQkE2UTd2XzZwZzhZ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

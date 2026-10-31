@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Keep an eye on Karakoram - Telegraph India"
+date: 2026-10-31 07:58:40 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxQRXV5d0h6NEVha2x0RkR4VWRFRklndTkzV2dUWmViWWRBbVZOZUttU2NVbVgySVU1UnA1bU53dEJTbEdOb2ZPaGVBS05UVVREWDdQVHRoQTk0SDkwZDF2eUpwdkZ5RTZQaXRXSGR2TVVyam9jdGNRS19qWmpjMkFfb3JVbnlNNmgxYS1nckJRdXVKaHo4cjJjMXdRRGp5czVnVEI2Um50TVE3d0NJczlaX0NPay1Iam05UUtOM1o2RFQ0Rmw5WmhXS3ZPa9IB0AFBVV95cUxPc2F0WlJIclRPVjhaUGMxRUdfNVNERUVsZ290c1dLbWRzWndIWmFmTVU5V2JidmVoRld2a0IwV0ZxS25uWTV2SGRkNGRMZmZnUnVxby1fUFFnMWhMQ1FZU3VEUGVyeXpLRFFRb0w1d0otT1k4SFNkNXdJdThUeE5xMWpVX0V0ZV9ra29UemFJaFNNeEtkMmZyRGxYZUdEd2FoQ0t5RG9XSUFJZGdzeFFuaTNpN05BUHRGdm5faWs0SW9OVEd1eTQyMTJGYzJMYmEx?oc=5"
+---
+
+Keep an eye on Karakoram Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxQRXV5d0h6NEVha2x0RkR4VWRFRklndTkzV2dUWmViWWRBbVZOZUttU2NVbVgySVU1UnA1bU53dEJTbEdOb2ZPaGVBS05UVVREWDdQVHRoQTk0SDkwZDF2eUpwdkZ5RTZQaXRXSGR2TVVyam9jdGNRS19qWmpjMkFfb3JVbnlNNmgxYS1nckJRdXVKaHo4cjJjMXdRRGp5czVnVEI2Um50TVE3d0NJczlaX0NPay1Iam05UUtOM1o2RFQ0Rmw5WmhXS3ZPa9IB0AFBVV95cUxPc2F0WlJIclRPVjhaUGMxRUdfNVNERUVsZ290c1dLbWRzWndIWmFmTVU5V2JidmVoRld2a0IwV0ZxS25uWTV2SGRkNGRMZmZnUnVxby1fUFFnMWhMQ1FZU3VEUGVyeXpLRFFRb0w1d0otT1k4SFNkNXdJdThUeE5xMWpVX0V0ZV9ra29UemFJaFNNeEtkMmZyRGxYZUdEd2FoQ0t5RG9XSUFJZGdzeFFuaTNpN05BUHRGdm5faWs0SW9OVEd1eTQyMTJGYzJMYmEx?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

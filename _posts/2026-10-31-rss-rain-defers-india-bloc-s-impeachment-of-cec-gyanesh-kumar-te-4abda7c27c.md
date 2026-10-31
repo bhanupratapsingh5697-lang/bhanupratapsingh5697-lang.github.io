@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rain defers INDIA bloc’s ‘impeachment’ of CEC Gyanesh Kumar - Telegraph India"
+date: 2026-10-31 07:50:11 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxQOG5iUlhReGIyTUd3bTdsa0Y2ZHBtQ2hRaE9Bd3JYU3gzSWFGTWhQQ2hJZlhXNFZyaXdqZ3RpOGJXSl9aNF9yY1J0YkNtdThmbThMVFZGT3R2YTZQRUI5VWdST203b2xyemQ3YWdFY3Z0eVotdGNBRXF4bnZrZkhjZlBiN3NGelREX3BPN2NGUDd1M3NSdDNDUThnQmJFSnMtOVl3WlV2Q2V2ZmMwcmd30gG0AUFVX3lxTE9pbExYaWxmVUZickl1SzU3VTNVMEhELURhcXFVaUotM2FleVJDOVdJMVVBck9ZUVFzSklBN2VaZ055OTRhTHhmcWRyUDVwQjRiN3JTU1RaVDQzVVNxUmdZMlA1V2thTXhWcTVPX0tkNjZpUkN1bmM1YUN6SEE2RmxnRS1aRnhWM2tHaWdkdUplamhyRk1HMGNZeUFRY1lvMDhsYlNqa1pYc1RobUIzWXBoWV94Wg?oc=5"
+---
+
+Rain defers INDIA bloc’s ‘impeachment’ of CEC Gyanesh Kumar Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxQOG5iUlhReGIyTUd3bTdsa0Y2ZHBtQ2hRaE9Bd3JYU3gzSWFGTWhQQ2hJZlhXNFZyaXdqZ3RpOGJXSl9aNF9yY1J0YkNtdThmbThMVFZGT3R2YTZQRUI5VWdST203b2xyemQ3YWdFY3Z0eVotdGNBRXF4bnZrZkhjZlBiN3NGelREX3BPN2NGUDd1M3NSdDNDUThnQmJFSnMtOVl3WlV2Q2V2ZmMwcmd30gG0AUFVX3lxTE9pbExYaWxmVUZickl1SzU3VTNVMEhELURhcXFVaUotM2FleVJDOVdJMVVBck9ZUVFzSklBN2VaZ055OTRhTHhmcWRyUDVwQjRiN3JTU1RaVDQzVVNxUmdZMlA1V2thTXhWcTVPX0tkNjZpUkN1bmM1YUN6SEE2RmxnRS1aRnhWM2tHaWdkdUplamhyRk1HMGNZeUFRY1lvMDhsYlNqa1pYc1RobUIzWXBoWV94Wg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
