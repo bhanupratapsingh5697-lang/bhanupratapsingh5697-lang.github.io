@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Asian Champions Trophy: India beat Japan 4-1, make it 3 out of 3 in Jalandhar - India Today"
+date: 2026-10-31 00:04:46 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxNYmJKdHF6ajlFR1ZoTXhLMGZmNWgxbEd0RnVIUE9tY2NpWmRUcnZBY3VDcHgwNVJwSDl6bG9vSXl5M2ZkTEFSWWVBN3lwS2xBdGNTQUVuT0t0SVBlREhGcU1DTi1KNXVpMTloLWZDb3VXNUt0QjJsU2ZXYzNmVEVIRE5vNUt1MnE0d3c3WG5ocXdHMlkxV1pBRmNnLUp4ZXZXaDR6bmUxMklGVkF0ZnQxT2lpQUxsVEd1WHBIdjdsM2ZCOFBSS1F0WjlR0gHPAUFVX3lxTE50Q2VjNVZsVG9QZ3dYdFd4TXNnbnA2MnRpNFpNRGFJZzdNbXk4MUJxMzFMRzgzaEwtQWZpeVpldkdOMFZGNmNIdE96Y2tzbUhOUVgxeTZGMjJoRmxlcnQxQkxWQm1IRER2UTV4NWdnWUwxYU8wNXV0ZzZROVZna1F4dGpHWm5ESEZVNGV2Q056QUoyR2NRVDBheVRzRng0VlVfT05ONnNtcXBXaDdueWd6Y1JjXzVJUm9oN3NwaHhIY0lJZm15elhaT0FnMHJLSQ?oc=5"
+---
+
+Asian Champions Trophy: India beat Japan 4-1, make it 3 out of 3 in Jalandhar India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxNYmJKdHF6ajlFR1ZoTXhLMGZmNWgxbEd0RnVIUE9tY2NpWmRUcnZBY3VDcHgwNVJwSDl6bG9vSXl5M2ZkTEFSWWVBN3lwS2xBdGNTQUVuT0t0SVBlREhGcU1DTi1KNXVpMTloLWZDb3VXNUt0QjJsU2ZXYzNmVEVIRE5vNUt1MnE0d3c3WG5ocXdHMlkxV1pBRmNnLUp4ZXZXaDR6bmUxMklGVkF0ZnQxT2lpQUxsVEd1WHBIdjdsM2ZCOFBSS1F0WjlR0gHPAUFVX3lxTE50Q2VjNVZsVG9QZ3dYdFd4TXNnbnA2MnRpNFpNRGFJZzdNbXk4MUJxMzFMRzgzaEwtQWZpeVpldkdOMFZGNmNIdE96Y2tzbUhOUVgxeTZGMjJoRmxlcnQxQkxWQm1IRER2UTV4NWdnWUwxYU8wNXV0ZzZROVZna1F4dGpHWm5ESEZVNGV2Q056QUoyR2NRVDBheVRzRng0VlVfT05ONnNtcXBXaDdueWd6Y1JjXzVJUm9oN3NwaHhIY0lJZm15elhaT0FnMHJLSQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
