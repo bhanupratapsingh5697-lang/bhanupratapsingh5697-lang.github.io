@@ -137,28 +137,36 @@ def get_date(item, fallback):
 
     return fallback
 
+
 def generate_article(title, summary, source, link):
     api_key = os.environ.get("GEMINI")
 
     if not api_key or not summary:
         return None
 
+    # Avoid spending API calls on very short RSS summaries.
+    if len(summary.strip()) < 100:
+        return None
+
     try:
-        client = genai.Client(api_key=api_key)
+        client = genai.Client(
+            api_key=api_key,
+            http_options={
+                "timeout": 20000
+            }
+        )
 
         prompt = f"""
 You are a professional news editor for Today News.
 
-Write an original, detailed news article using only the facts
-available in the information below.
+Write an original, informative article using only the facts below.
 
 Rules:
 - Do not copy the publisher's original article.
-- Do not invent facts, statistics, quotes, or events.
-- Explain the available information clearly.
-- If details are missing, do not guess.
+- Never invent facts, statistics, quotes, or events.
+- Explain only what the supplied information supports.
 - Use simple, natural English.
-- Write a headline followed by 5-7 useful paragraphs.
+- Write a headline and 3-4 useful paragraphs.
 - Return Markdown only.
 
 Headline: {title}
@@ -176,7 +184,10 @@ Original link: {link}
         return article if article else None
 
     except Exception as error:
-        print(f"Gemini generation failed: {error}", file=sys.stderr)
+        print(
+            f"Gemini skipped for this article: {error}",
+            file=sys.stderr
+        )
         return None
     
     
@@ -185,6 +196,8 @@ def main():
 
     ist = dt.timezone(dt.timedelta(hours=5, minutes=30))
     made = 0
+    gemini_count = 0
+    MAX_GEMINI_ARTICLES = 5
 
     for source, url, category in FEEDS:
         try:
@@ -227,12 +240,18 @@ def main():
                 ) 
 
                 summary = clean(raw)
-                article = generate_article(
-    title,
-    summary,
-    source,
-    link
-)
+                article = None
+
+                if gemini_count < MAX_GEMINI_ARTICLES:
+                    article = generate_article(
+                        title,
+                        summary,
+                        source,
+                        link
+                    )
+
+                    if article:
+                        gemini_count += 1
 
                 date = get_date(
                     item,
@@ -315,7 +334,7 @@ def main():
             )
 
     print(f"RSS import complete. New posts: {made}")
-
+    print(f"Gemini articles generated: {gemini_count}")
 
 if __name__ == "__main__":
     main()
