@@ -1,0 +1,17 @@
+---
+layout: post
+title: "The rise of Digital Humanities and new careers at the crossroads of tech and culture - The Hindu"
+date: 2026-11-01 08:00:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxQMWYtSExBaTdvSTR1cm9MbXQ1dG5BUWtfalhwcGFjTE01MXdFWGNCRjVIR01Qc2U1OFowWnZSNTVEVkVabnEzTVc3RzFtR3NnUDhsa3JtZlBNQW9RMDZrZ045VlI1by1yRlNqTTJycWlMMENkUmJYWmp4SGh3UkxjdkU2QmF6cG9TbUlGSXV4NkU4WU1qMlMyLXZwYWktLUdobkxlUkkxSkJxTFNSdWh3YUt0S1ZpYkloR0s2VEstbVZaMzYzNy1FZEpjNjBEenlFR0VnTW1n0gHcAUFVX3lxTE14NzNRX1ZCTnQtRWo1dFZidmpLX1RuSUdFTzJyM2cyUkxvQ0YzdVVRVjVJTWVXOHFLS2xJSktjYnJ5SXA5clpwZTV2OUd0U1FPcDF0TmZMMC1TQ1ZQWnpPNnZjdm9WTjdZTmdLRzh5alF0QVgyZm5UYlRQZ2NmamdRbjVMQ1ZyRl9PNmdzOU5qVXJHNEs0MjlCVURyMV90bDlxVV9BRnRnMmEwTHlLdzJRNk9qQnRSWkx4Mkk0N0tHNXhPanR1ZXhRVF9NalFsX0IxT25TSERQaHZsWVo?oc=5"
+---
+
+The rise of Digital Humanities and new careers at the crossroads of tech and culture The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQMWYtSExBaTdvSTR1cm9MbXQ1dG5BUWtfalhwcGFjTE01MXdFWGNCRjVIR01Qc2U1OFowWnZSNTVEVkVabnEzTVc3RzFtR3NnUDhsa3JtZlBNQW9RMDZrZ045VlI1by1yRlNqTTJycWlMMENkUmJYWmp4SGh3UkxjdkU2QmF6cG9TbUlGSXV4NkU4WU1qMlMyLXZwYWktLUdobkxlUkkxSkJxTFNSdWh3YUt0S1ZpYkloR0s2VEstbVZaMzYzNy1FZEpjNjBEenlFR0VnTW1n0gHcAUFVX3lxTE14NzNRX1ZCTnQtRWo1dFZidmpLX1RuSUdFTzJyM2cyUkxvQ0YzdVVRVjVJTWVXOHFLS2xJSktjYnJ5SXA5clpwZTV2OUd0U1FPcDF0TmZMMC1TQ1ZQWnpPNnZjdm9WTjdZTmdLRzh5alF0QVgyZm5UYlRQZ2NmamdRbjVMQ1ZyRl9PNmdzOU5qVXJHNEs0MjlCVURyMV90bDlxVV9BRnRnMmEwTHlLdzJRNk9qQnRSWkx4Mkk0N0tHNXhPanR1ZXhRVF9NalFsX0IxT25TSERQaHZsWVo?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

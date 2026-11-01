@@ -1,0 +1,17 @@
+---
+layout: post
+title: "After Rajasthan IAS officer, IPS wife removed from post amid corruption probe - The Indian Express"
+date: 2026-11-01 04:41:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxPYWZTcEoycDhManh6OHdhSlFiTnk1MGtQLXMxMHYwTzRRY1BwNzczZWVmM0s1bV91SjVmallOY0xXeGgzTVlyaXkyeXl1NWk5ZmNMaVFwb1NhdHlOT1lfT0dkQUk2WVR6bkJ0bGR4ZU5aend0RTJlVThFSWRsNEhMYXhhZnhYYW5UcUZuU3RnSjNFcFdrYTZCTGxjTE16MExVUWhpeVR6alRIYi1YSFRWR2ZNa2d3Sm1QZ0xiclFNYmZ4VzA0OVNMNHB1NmRXWVpBalVpdtIB2wFBVV95cUxOMzV0X2ZyQ1hIZFdHLTFfS1gwN0pSLVJQbVp5NW1mN0hmX0dCZjdDeDhHRUotMmtRbnZLSmtFSU5IUG52dHZhbnoxZVRfY001V09yc0ItR3I4WTF6ZkV3aFRqVWVWNkpObnRBQ0F4MDZ3WVpDZXJBaEdBZ21jNkpTLVFNbVd0VGlWX0dJaVFoVjBfbzQ4Yi1WcDU2UENhVmNBRFd0T1RmbGpJcTA2Rldxa1pEUUFEeXNuY3JsNHR5NE9XTzFyOVJVSXAxSmZtejlFU09pZmZacnBiVjA?oc=5"
+---
+
+After Rajasthan IAS officer, IPS wife removed from post amid corruption probe The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPYWZTcEoycDhManh6OHdhSlFiTnk1MGtQLXMxMHYwTzRRY1BwNzczZWVmM0s1bV91SjVmallOY0xXeGgzTVlyaXkyeXl1NWk5ZmNMaVFwb1NhdHlOT1lfT0dkQUk2WVR6bkJ0bGR4ZU5aend0RTJlVThFSWRsNEhMYXhhZnhYYW5UcUZuU3RnSjNFcFdrYTZCTGxjTE16MExVUWhpeVR6alRIYi1YSFRWR2ZNa2d3Sm1QZ0xiclFNYmZ4VzA0OVNMNHB1NmRXWVpBalVpdtIB2wFBVV95cUxOMzV0X2ZyQ1hIZFdHLTFfS1gwN0pSLVJQbVp5NW1mN0hmX0dCZjdDeDhHRUotMmtRbnZLSmtFSU5IUG52dHZhbnoxZVRfY001V09yc0ItR3I4WTF6ZkV3aFRqVWVWNkpObnRBQ0F4MDZ3WVpDZXJBaEdBZ21jNkpTLVFNbVd0VGlWX0dJaVFoVjBfbzQ4Yi1WcDU2UENhVmNBRFd0T1RmbGpJcTA2Rldxa1pEUUFEeXNuY3JsNHR5NE9XTzFyOVJVSXAxSmZtejlFU09pZmZacnBiVjA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

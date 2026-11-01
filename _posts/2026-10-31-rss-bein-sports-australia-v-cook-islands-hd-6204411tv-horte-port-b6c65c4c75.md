@@ -1,0 +1,17 @@
+---
+layout: post
+title: "beIN Sports: AUSTRALIA V COOK ISLANDS 𝐋𝐈𝐕𝐄 ＳＴＲＥＡＭＳ ＦＲＥＥ ＯＮ ＴＶ HD*6204411TV*HORTE - Port of Rotterdam"
+date: 2026-10-31 20:54:04 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi7gJBVV95cUxOODZ5S2ZQR3h2M2RGMm8tTFlkNXpJTG8tXzl3VVBBajY2MWNtUWowbWV1QTVhNGRCY0U0aE1hcmV5U29rRHg4QVZRSTRDLTg4X0l0SUlQX3NmWk1SR0VsRXJZTE9pODVZLWREN1RRU0xsdmw2WkppNDJKMVdsQXZkTUlLMW5tb1V6Yzc2Rmd1RXlrdWw4allIeVlVOC1ON1hXMVl1ei1mbXdfLTFLVjFpcUd5cktpbVJfOEVtbDlsVlJfMDFJSldJQzhkVFVEWGJfM1FmUHJDMTQtSEZxZzJCblNpZm9CTUtoMzB1a2R1TE5FTlhsM1hPTXVCb3VENGc1d3dUM25YS04tLTFTTnBEQURmUzJoZ0VRcWZUYmFpOEFfSEZxWnBRc1dsSVJ4Y1V5TEM4MElvNUlFcy1qV2x5aWdXTExvUmNJdWNxUU1BOWRDLURGZmRDTkJTbk45TXl3LU5rZkxNYWM4ajRaZnc?oc=5"
+---
+
+beIN Sports: AUSTRALIA V COOK ISLANDS 𝐋𝐈𝐕𝐄 ＳＴＲＥＡＭＳ ＦＲＥＥ ＯＮ ＴＶ HD*6204411TV*HORTE Port of Rotterdam
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi7gJBVV95cUxOODZ5S2ZQR3h2M2RGMm8tTFlkNXpJTG8tXzl3VVBBajY2MWNtUWowbWV1QTVhNGRCY0U0aE1hcmV5U29rRHg4QVZRSTRDLTg4X0l0SUlQX3NmWk1SR0VsRXJZTE9pODVZLWREN1RRU0xsdmw2WkppNDJKMVdsQXZkTUlLMW5tb1V6Yzc2Rmd1RXlrdWw4allIeVlVOC1ON1hXMVl1ei1mbXdfLTFLVjFpcUd5cktpbVJfOEVtbDlsVlJfMDFJSldJQzhkVFVEWGJfM1FmUHJDMTQtSEZxZzJCblNpZm9CTUtoMzB1a2R1TE5FTlhsM1hPTXVCb3VENGc1d3dUM25YS04tLTFTTnBEQURmUzJoZ0VRcWZUYmFpOEFfSEZxWnBRc1dsSVJ4Y1V5TEM4MElvNUlFcy1qV2x5aWdXTExvUmNJdWNxUU1BOWRDLURGZmRDTkJTbk45TXl3LU5rZkxNYWM4ajRaZnc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
