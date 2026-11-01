@@ -1,0 +1,17 @@
+---
+layout: post
+title: "PT Usha, Saina Nehwal, Gagan Narang among sporting greats in IOA election fray - India Today"
+date: 2026-11-01 08:26:42 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxQZmw0Sm95VUtCbnU2dUdFVzNuQlFKa1RIcTE5MWRzSDVXb2t1aDVuODdBcElqTXViamotSXh5SjFRVjJRcFA3ckxNUDJZb00waDhZdG92d01UZzhvTi11VVRHNnZYLXA5ZllGLVlRUXpGMnpyTmlSMGowQXFUTjh5aTBsTzVGQmU4cXRkYkI3U1o3aVFoa21heXd1anFZQkhjaFIyd0RiNURiXzhPb3pxMFB5cDZfVm1ORHcwMGljWGhfUWdtTkZRNksxZHdWSU9Ta1Rv0gHYAUFVX3lxTE0wbDBJZlNUX1BtTERVeG9sdDVjMzNQbEp0ZVIzZmVONkRJYWRubFdRZzRITk9LQ0VmWWhQYlJNT1U5S2xXQWstM2Y0aFZTTEI2WF84eE0tLU1XTWZ0ZDFTaTJ3VkFwMTFIZ01XQ1BLc0JMN1dqWDk3T1I0ZEtMN0JuME54VDg0U0NWMi1DUXJOemZGSWhRdDZ6Mml3MTJSTEFLUW50SFVab2VTbU94WlpkbHk2S3B2TG5GMTBxalkyMWJhbHMxQTktakpCRlpSNXJ2bDVGbkt3Vg?oc=5"
+---
+
+PT Usha, Saina Nehwal, Gagan Narang among sporting greats in IOA election fray India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQZmw0Sm95VUtCbnU2dUdFVzNuQlFKa1RIcTE5MWRzSDVXb2t1aDVuODdBcElqTXViamotSXh5SjFRVjJRcFA3ckxNUDJZb00waDhZdG92d01UZzhvTi11VVRHNnZYLXA5ZllGLVlRUXpGMnpyTmlSMGowQXFUTjh5aTBsTzVGQmU4cXRkYkI3U1o3aVFoa21heXd1anFZQkhjaFIyd0RiNURiXzhPb3pxMFB5cDZfVm1ORHcwMGljWGhfUWdtTkZRNksxZHdWSU9Ta1Rv0gHYAUFVX3lxTE0wbDBJZlNUX1BtTERVeG9sdDVjMzNQbEp0ZVIzZmVONkRJYWRubFdRZzRITk9LQ0VmWWhQYlJNT1U5S2xXQWstM2Y0aFZTTEI2WF84eE0tLU1XTWZ0ZDFTaTJ3VkFwMTFIZ01XQ1BLc0JMN1dqWDk3T1I0ZEtMN0JuME54VDg0U0NWMi1DUXJOemZGSWhRdDZ6Mml3MTJSTEFLUW50SFVab2VTbU94WlpkbHk2S3B2TG5GMTBxalkyMWJhbHMxQTktakpCRlpSNXJ2bDVGbkt3Vg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

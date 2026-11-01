@@ -1,0 +1,17 @@
+---
+layout: post
+title: "‘Chalo Delhi’ posters dominate as INDIA bloc prepares for mega rally at Ramlila Maidan | LIVE - The Hindu"
+date: 2026-11-01 11:10:31 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMigAJBVV95cUxPLTZLLUNHUGpmZDUyNEF5TUhvM1J5QVdmdmtEZHNkbWJBRHNHeVo4YUFZMm82WlkzaFJYMXp4TFgzRWIzZFdYMFMtYzNWU1llWWJHVDJBYWFFZVRfSGk2RmpyZ1M2Sko0QXlsMW52QjZqV3ZKMEtoWXV0VFZFTTRzNTVEY2Nrb2NTX05FMWtxS2FRZE5fRjZ1X3E2WkJ2cjFGbUQ1V1FoXzhZWDZ5WGFRNG5LaTlfcXlCZ3pkRUZ5RDJNa0ZFS0VRZXBuQXdJQU5lY1hKZ1kzNWhWY0Z5NDNWblMtTk5KaEUzZy1KaVJMbl9CdWNoTlF1b09BZmZlWUEt0gGHAkFVX3lxTFBCeENKcEJqU1c0YWdSenItQ1d0NkQ1NG9Ya3c4UmNVUlJGLW5fdG5sS2JlNEZjN1JmN0JlRmZRRWFjZFJBT25FeHZIN094NjdMVG5aQ2h5Yk1Ed1o5OVVwLXZpR1IzTHczOUpEWG9PNDVnRDdXbXEwbFJfbmdqNXdyZU5XNFJvb2F3OE5CYTNMOXFFeHJlWi1nMTJCYVBrWEU0WUc4RDBXSUxpN2FQTUdYSGRFNnlHOHdMUnI2SEJvNjEyMFZkM3pfcUNIb2c3WDlua1BZWTVobnl6LVZVYUg1UERPbDhETWQydWxxZjVFYTJTUnYtWEZxc3VCQTl1LXM0S2tjbkJr?oc=5"
+---
+
+‘Chalo Delhi’ posters dominate as INDIA bloc prepares for mega rally at Ramlila Maidan | LIVE The Hindu INDIA bloc rally LIVE: Protesters begin arriving at Ramlila Maidan; Opposition march to begin at 12pm | Hindustan Times Hindustan Times INDIA Bloc Rally, BJP Protest March LIVE Updates: Rahul Gandhi's 'Chalo Dilli' Rally, BJP's March To Begin Shortly NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMigAJBVV95cUxPLTZLLUNHUGpmZDUyNEF5TUhvM1J5QVdmdmtEZHNkbWJBRHNHeVo4YUFZMm82WlkzaFJYMXp4TFgzRWIzZFdYMFMtYzNWU1llWWJHVDJBYWFFZVRfSGk2RmpyZ1M2Sko0QXlsMW52QjZqV3ZKMEtoWXV0VFZFTTRzNTVEY2Nrb2NTX05FMWtxS2FRZE5fRjZ1X3E2WkJ2cjFGbUQ1V1FoXzhZWDZ5WGFRNG5LaTlfcXlCZ3pkRUZ5RDJNa0ZFS0VRZXBuQXdJQU5lY1hKZ1kzNWhWY0Z5NDNWblMtTk5KaEUzZy1KaVJMbl9CdWNoTlF1b09BZmZlWUEt0gGHAkFVX3lxTFBCeENKcEJqU1c0YWdSenItQ1d0NkQ1NG9Ya3c4UmNVUlJGLW5fdG5sS2JlNEZjN1JmN0JlRmZRRWFjZFJBT25FeHZIN094NjdMVG5aQ2h5Yk1Ed1o5OVVwLXZpR1IzTHczOUpEWG9PNDVnRDdXbXEwbFJfbmdqNXdyZU5XNFJvb2F3OE5CYTNMOXFFeHJlWi1nMTJCYVBrWEU0WUc4RDBXSUxpN2FQTUdYSGRFNnlHOHdMUnI2SEJvNjEyMFZkM3pfcUNIb2c3WDlua1BZWTVobnl6LVZVYUg1UERPbDhETWQydWxxZjVFYTJTUnYtWEZxc3VCQTl1LXM0S2tjbkJr?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
