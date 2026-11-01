@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India is betting big on electric buses. Infrastructure, finances could hit the brakes - ThePrint"
+date: 2026-11-01 13:10:59 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxQQWlTMXVZMnZKU0RMajdDd1VBN01iTF9JdzhCSjlpRDJnTzFKY3p3bXJTNGVuYXVlZzhjcENFRzh2TDMyX09sa05mc0FxOWtZN2M4aXEwZ1ExaUtHaTQ5S2poaGdURGN5NWRFeXJrenlhYTlpZjVHLXRjZ09MM1BVWlpmOWJiYXVSa3dHQlRuNHJONVk4SEwzOENtQVJwRFdEa25aSnhNZG55V3k2cWh1bkp2b3lIaDRSWlFPY9IBwgFBVV95cUxQWDJkeU1lb0JqdmVFREs5REEyR0JYTFJGQWpBN2JpSENnUHdlVmJHNUlrdDJfWFhWNEF4Wm9iSHZLVS1RbllNRW1LYURONVNyMHo2bE1qQmUxbFMxMWdzcS1iS1JiZTVIOE5GVFprVnhycHlKZlVScDVJT21Xa1ZXdjZyUkdEcGR6SHRsY0ZLM04yOTJpNzB4Tmxpa0t2eHlIRWpma3hVZWVyRWZkcVZ1OUNuc09VTC0wZTl6QzlQUU1pUQ?oc=5"
+---
+
+India is betting big on electric buses. Infrastructure, finances could hit the brakes ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxQQWlTMXVZMnZKU0RMajdDd1VBN01iTF9JdzhCSjlpRDJnTzFKY3p3bXJTNGVuYXVlZzhjcENFRzh2TDMyX09sa05mc0FxOWtZN2M4aXEwZ1ExaUtHaTQ5S2poaGdURGN5NWRFeXJrenlhYTlpZjVHLXRjZ09MM1BVWlpmOWJiYXVSa3dHQlRuNHJONVk4SEwzOENtQVJwRFdEa25aSnhNZG55V3k2cWh1bkp2b3lIaDRSWlFPY9IBwgFBVV95cUxQWDJkeU1lb0JqdmVFREs5REEyR0JYTFJGQWpBN2JpSENnUHdlVmJHNUlrdDJfWFhWNEF4Wm9iSHZLVS1RbllNRW1LYURONVNyMHo2bE1qQmUxbFMxMWdzcS1iS1JiZTVIOE5GVFprVnhycHlKZlVScDVJT21Xa1ZXdjZyUkdEcGR6SHRsY0ZLM04yOTJpNzB4Tmxpa0t2eHlIRWpma3hVZWVyRWZkcVZ1OUNuc09VTC0wZTl6QzlQUU1pUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

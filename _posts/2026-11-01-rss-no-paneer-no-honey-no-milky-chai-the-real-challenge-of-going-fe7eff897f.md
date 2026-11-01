@@ -1,0 +1,17 @@
+---
+layout: post
+title: "No paneer, no honey, no milky chai? The real challenge of going vegan in India - The Times of India"
+date: 2026-11-01 18:26:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxPRi1PWlN3QjdabXNscjZHdDVpUGFmdkR1cTNGRXV1cXhRWGtxZ2R4dDFjYTNXWDV4WDJGS2xsUnpnd0kyTDZXUHhGQXgtUTkzRkpmSS1FTnhoQlJyLXowRGhpa3QzNHdHd0FkV0hGdlNQZm5qa1JtcGJiYko1Q0NqbnNBcGNpM25pN0ZzMjIwTFJLVGVVNEhGSHJxb2dISW9WR2Z6MDBhbm5wakN0UE5BemRzQzNleThtWV9UeTlCaW5GTE5xT1pfeElsSVNveFVRd1hqZVBGNHJmLTjSAeABQVVfeXFMT1NUcDNfdG5uQVpPRndTNDRsZXF6WXU5WXZ5SnJiNDRmSEdmS1FlOXZCb0FCQ0MzeGMycVMtSU8xUVQ2UE5fX3hpT3YtN0QyVUJBbmFVN1l6MEFNWXBQc0hMNEJuTVpoVHV5QXExNWhGcjZ5VWhiU2VUeWJuUnNQMmd4ZjA3QjN1SFZHT1IwRjh6NlJZUFk4YzRwSjNPWmYtVWx0WEZxcjhHTk1GOVRPRHFuMXUxcnNzVHBtTWR6ZTNycmpia1ZUSDJYSmswOXJyYV9WMWdFd1NZcTR4R3o3bTU?oc=5"
+---
+
+No paneer, no honey, no milky chai? The real challenge of going vegan in India The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxPRi1PWlN3QjdabXNscjZHdDVpUGFmdkR1cTNGRXV1cXhRWGtxZ2R4dDFjYTNXWDV4WDJGS2xsUnpnd0kyTDZXUHhGQXgtUTkzRkpmSS1FTnhoQlJyLXowRGhpa3QzNHdHd0FkV0hGdlNQZm5qa1JtcGJiYko1Q0NqbnNBcGNpM25pN0ZzMjIwTFJLVGVVNEhGSHJxb2dISW9WR2Z6MDBhbm5wakN0UE5BemRzQzNleThtWV9UeTlCaW5GTE5xT1pfeElsSVNveFVRd1hqZVBGNHJmLTjSAeABQVVfeXFMT1NUcDNfdG5uQVpPRndTNDRsZXF6WXU5WXZ5SnJiNDRmSEdmS1FlOXZCb0FCQ0MzeGMycVMtSU8xUVQ2UE5fX3hpT3YtN0QyVUJBbmFVN1l6MEFNWXBQc0hMNEJuTVpoVHV5QXExNWhGcjZ5VWhiU2VUeWJuUnNQMmd4ZjA3QjN1SFZHT1IwRjh6NlJZUFk4YzRwSjNPWmYtVWx0WEZxcjhHTk1GOVRPRHFuMXUxcnNzVHBtTWR6ZTNycmpia1ZUSDJYSmswOXJyYV9WMWdFd1NZcTR4R3o3bTU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

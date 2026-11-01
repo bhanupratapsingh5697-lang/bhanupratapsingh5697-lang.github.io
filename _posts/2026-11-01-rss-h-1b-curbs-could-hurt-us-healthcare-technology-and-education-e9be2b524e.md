@@ -1,0 +1,17 @@
+---
+layout: post
+title: "H-1B curbs could hurt US healthcare, technology and education sectors, warns Indian diaspora group | Hindustan Times - Hindustan Times"
+date: 2026-11-01 14:46:51 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi5gFBVV95cUxNaVZ4YVJzVVJlZ3ZwcEJ5Y1hOVTN1NGFZLWFYSHlfRHBGWm1xRS1GX0hLUi12Z0FpTktXVmJpaXBwMERjXzB3M1VvX0E5c1hzRmlVbDNUeFd2b045bG9jbTRrQUp5UWtyZ3FEMlpXRVFmNVVHUWtKcEtUTXVHTUZXWXdfNHF3dFItbWJzLTcxbjh4VGtRNVBTYkNZWU4wRXFLeEJfZmZtYnliVkF2aDliOTlQZmNsSi02dkdWQmI4Q3pJUmprU3FlclA4cFlsQ2hGbUxzSVZpbmJoSkZvRVoxS05UUVV5QdIB6wFBVV95cUxNYnE2enVVWGRoVWJMYThzdVRNX1JCSnpXOWZlZ1YwS016SllHS0ZVWjN1T2w5VHR2VUtOMjBKbHRQWFI1bjN0bW9lbHhNNEFTejZJb05kZHNVd0dkTHFxSkwwT2xteWxGVjdOcmZFS25aNThzNkZ3QWNYQzN3M0JuZHdVUW9sQkl5WllJRVFLa3ZreWJUVmZvRENVNVpNX3pURERJYmtvWThucG42a3QxdDJvSGlQM1FCYnlfOHNvaFJjeVZXYVgwN1U5a1lHWm1kRkJQQUZsMFZyYWdSTjBNR2pDWWllNnFwS3Fv?oc=5"
+---
+
+H-1B curbs could hurt US healthcare, technology and education sectors, warns Indian diaspora group | Hindustan Times Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5gFBVV95cUxNaVZ4YVJzVVJlZ3ZwcEJ5Y1hOVTN1NGFZLWFYSHlfRHBGWm1xRS1GX0hLUi12Z0FpTktXVmJpaXBwMERjXzB3M1VvX0E5c1hzRmlVbDNUeFd2b045bG9jbTRrQUp5UWtyZ3FEMlpXRVFmNVVHUWtKcEtUTXVHTUZXWXdfNHF3dFItbWJzLTcxbjh4VGtRNVBTYkNZWU4wRXFLeEJfZmZtYnliVkF2aDliOTlQZmNsSi02dkdWQmI4Q3pJUmprU3FlclA4cFlsQ2hGbUxzSVZpbmJoSkZvRVoxS05UUVV5QdIB6wFBVV95cUxNYnE2enVVWGRoVWJMYThzdVRNX1JCSnpXOWZlZ1YwS016SllHS0ZVWjN1T2w5VHR2VUtOMjBKbHRQWFI1bjN0bW9lbHhNNEFTejZJb05kZHNVd0dkTHFxSkwwT2xteWxGVjdOcmZFS25aNThzNkZ3QWNYQzN3M0JuZHdVUW9sQkl5WllJRVFLa3ZreWJUVmZvRENVNVpNX3pURERJYmtvWThucG42a3QxdDJvSGlQM1FCYnlfOHNvaFJjeVZXYVgwN1U5a1lHWm1kRkJQQUZsMFZyYWdSTjBNR2pDWWllNnFwS3Fv?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

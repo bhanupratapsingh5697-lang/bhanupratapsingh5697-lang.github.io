@@ -1,0 +1,17 @@
+---
+layout: post
+title: "IIT Guwahati To Introduce Diploma, BTech Courses In Semiconductor Technology - NDTV"
+date: 2026-11-01 13:09:45 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxQcldQWkJLZjhITllCVndwWHd2MWFqYTE1MEstcmp3cjZYcDhLQ1pnbTB2bmhBczZPSXBkdm42M0p6bV9aNGVhOGgtNkdoTmdOcGhJR05mTTkxTjFSTnFKcDJReDkwSkF3MDlMcmFzanFoSW41OVpUQzhKNF9VWEJoWW85VTdvWHl4QXduaHpjT3RaZk91V1BRalJlYk91Mi1LUmZKU2lmMHNOOV9jZFdSbVJ0QlNCUdIBvgFBVV95cUxOa21jOVlBc1ItUHhTWWJ4RkdRRVBLWE56dENzcnBLd3dMRER0Z1lwV05sX19uSlhzSmIyOGN4SW5walFyNWFJUDN0MXFyWk9tek1FVm1ULTRGMkpmdTdMMVZ4VGJOMmtfallRNlhPajlxczM1akd5QkNWVVllOWtvUldqSnU1SHVhWEZ6blJNa3FZQWl3alZfdkh5S3dhZTN6V3lwTjBUU3I1ZndNQzR2TjBLdXg5NHBNd01Eb0RB?oc=5"
+---
+
+IIT Guwahati To Introduce Diploma, BTech Courses In Semiconductor Technology NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxQcldQWkJLZjhITllCVndwWHd2MWFqYTE1MEstcmp3cjZYcDhLQ1pnbTB2bmhBczZPSXBkdm42M0p6bV9aNGVhOGgtNkdoTmdOcGhJR05mTTkxTjFSTnFKcDJReDkwSkF3MDlMcmFzanFoSW41OVpUQzhKNF9VWEJoWW85VTdvWHl4QXduaHpjT3RaZk91V1BRalJlYk91Mi1LUmZKU2lmMHNOOV9jZFdSbVJ0QlNCUdIBvgFBVV95cUxOa21jOVlBc1ItUHhTWWJ4RkdRRVBLWE56dENzcnBLd3dMRER0Z1lwV05sX19uSlhzSmIyOGN4SW5walFyNWFJUDN0MXFyWk9tek1FVm1ULTRGMkpmdTdMMVZ4VGJOMmtfallRNlhPajlxczM1akd5QkNWVVllOWtvUldqSnU1SHVhWEZ6blJNa3FZQWl3alZfdkh5S3dhZTN6V3lwTjBUU3I1ZndNQzR2TjBLdXg5NHBNd01Eb0RB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

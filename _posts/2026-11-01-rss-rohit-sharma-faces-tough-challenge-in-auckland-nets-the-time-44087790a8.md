@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rohit Sharma faces tough challenge in Auckland nets - The Times of India"
+date: 2026-11-01 15:30:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxPNzBoakh0anB3QklPWHVHa0pUcUdZSHlFQ2hoZXZ4X3VuOW91bUN4WDlFdGNrcEd4dFJLQW01ZURtZTJaXzNCRHlpSmtHLUQ5a2JYX2hTQ3BQejJhZktYa3dpRVhXUDcyZUNkMW90V24xeVU5a1Y2aVlEenoyUTlmcmdMWVZUS0ZSaXJPbm8zbzF6QTlHTlBtb2FSME15Rnl2cmUzRHhHOFRQOHdraTY5ZjNabDk0LXN3TC00aWZWYWpPdC1aeWI2UnFyVWRTd9IB0wFBVV95cUxNNkxPQ3JYTnFUVWdFcW1udFpGaVVCWkIwZlVhb0sxX0ZxT0VEcDd3YkNTVmhjdnVtVFBjYWZTY3NBYmpqaGhWTENZaVU2aUlVRmwxaUNMRE92S0FuaWw2S3Q2VXA3TjJWNGphRWRvS2RNbU1JcE5ocVZPVXI0VFFPdUtjMzMzdGlKYTJQWWN6dUlQYVZFZzh2SENOc3ZleThKMzJXSWlaTFZPdnBWZUpDZXVJWldSeWt6WU1sb2ZiTVozcDRkTHMxY2N3WkdyQVJOdVpR?oc=5"
+---
+
+Rohit Sharma faces tough challenge in Auckland nets The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxPNzBoakh0anB3QklPWHVHa0pUcUdZSHlFQ2hoZXZ4X3VuOW91bUN4WDlFdGNrcEd4dFJLQW01ZURtZTJaXzNCRHlpSmtHLUQ5a2JYX2hTQ3BQejJhZktYa3dpRVhXUDcyZUNkMW90V24xeVU5a1Y2aVlEenoyUTlmcmdMWVZUS0ZSaXJPbm8zbzF6QTlHTlBtb2FSME15Rnl2cmUzRHhHOFRQOHdraTY5ZjNabDk0LXN3TC00aWZWYWpPdC1aeWI2UnFyVWRTd9IB0wFBVV95cUxNNkxPQ3JYTnFUVWdFcW1udFpGaVVCWkIwZlVhb0sxX0ZxT0VEcDd3YkNTVmhjdnVtVFBjYWZTY3NBYmpqaGhWTENZaVU2aUlVRmwxaUNMRE92S0FuaWw2S3Q2VXA3TjJWNGphRWRvS2RNbU1JcE5ocVZPVXI0VFFPdUtjMzMzdGlKYTJQWWN6dUlQYVZFZzh2SENOc3ZleThKMzJXSWlaTFZPdnBWZUpDZXVJWldSeWt6WU1sb2ZiTVozcDRkTHMxY2N3WkdyQVJOdVpR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

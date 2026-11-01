@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Seifert, Milne star as New Zealand down India by 7 wickets in 5th T20I - Rediff"
+date: 2026-11-01 14:55:32 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxPWUV5M2tQdGxtR0Jkd0RWSWladXpRZGlCYm52b1pmZGJNV2paU1hsTkNtN3hKaG9COElBZElTOVZCaDdYaDBmVnZPLWhaNXVOenV2a2lyZjNwSVRqdGNhUDlVemtOR2Q4bGk1LV9oUlJDYlMwb1RLelo5TFlnVm9SR3o4czdiXzQ1cW1hY2RveThUWjNmU3Q0aGpzcU95Y2VfLWw1Y3pSMzU1a2dlU2NBVjh6WGVFQ3pHSGFmX2l4UWpEcTUxcms4aXU1X2wzLU8x0gHTAUFVX3lxTE5LYUgyb2pmdFpTLVZNX0d4aFJyeFVEaEVUYVF2MVQySVNQUFhnN0tQbEtVX1BGeXlBX1lCT2ZQTVFmUlN5UTdSdUNWLTFsQm1JSXBMZ0FBMUJncEN2cC1ZTEtGTms0cnJGbzhlSmppOWstRkItLUJnQmQ0NDVRSmVNWHphb01lTU56bm5xOHRWWmxvQm8waXl6ZHdZMFNna3ZIY0YxYTdqR1VaYi01WkZCS3lpOFdJTmU3aDJnV1E4TVBpeldqWWpsUFZjUWpwb2dBTW8?oc=5"
+---
+
+Seifert, Milne star as New Zealand down India by 7 wickets in 5th T20I Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPWUV5M2tQdGxtR0Jkd0RWSWladXpRZGlCYm52b1pmZGJNV2paU1hsTkNtN3hKaG9COElBZElTOVZCaDdYaDBmVnZPLWhaNXVOenV2a2lyZjNwSVRqdGNhUDlVemtOR2Q4bGk1LV9oUlJDYlMwb1RLelo5TFlnVm9SR3o4czdiXzQ1cW1hY2RveThUWjNmU3Q0aGpzcU95Y2VfLWw1Y3pSMzU1a2dlU2NBVjh6WGVFQ3pHSGFmX2l4UWpEcTUxcms4aXU1X2wzLU8x0gHTAUFVX3lxTE5LYUgyb2pmdFpTLVZNX0d4aFJyeFVEaEVUYVF2MVQySVNQUFhnN0tQbEtVX1BGeXlBX1lCT2ZQTVFmUlN5UTdSdUNWLTFsQm1JSXBMZ0FBMUJncEN2cC1ZTEtGTms0cnJGbzhlSmppOWstRkItLUJnQmQ0NDVRSmVNWHphb01lTU56bm5xOHRWWmxvQm8waXl6ZHdZMFNna3ZIY0YxYTdqR1VaYi01WkZCS3lpOFdJTmU3aDJnV1E4TVBpeldqWWpsUFZjUWpwb2dBTW8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

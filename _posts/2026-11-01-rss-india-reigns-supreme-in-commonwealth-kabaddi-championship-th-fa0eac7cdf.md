@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India reigns supreme in Commonwealth kabaddi championship - The Hindu"
+date: 2026-11-01 18:22:36 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirAFBVV95cUxNelJuR0JkYjhyaFZfc0VsVjF2NnRad0QxYWNlSXliSVV3aUJjeUZfSTRnUTlvZE5JaXJIRnpXYklDNWo5NXM2aWIyb3ZIbzlnaldLNWQwOVFpcjRLeUxxS1hOdmp3alowVmVkQlZ2c2V4cTJzSGtreFdJeElLSkh1YWFvRlZ4YzlnRHhwOFBYNWV1R21ZWHMxVS1QM0hvQ19TbnZ6Z3FSNVhtbE5r0gGzAUFVX3lxTE4xdkdhaE91Y3RyaEVUZ1d0akpudWxVeDF0bV9VNS1xVEY5TmRVWGFTRkhjR1E4ei1ObHNITTJucUo5bVp4T3BYWXAyZC1ObzhSblhsb0Z5MWtYME5XLUhjbTFUNm9mOTlYNWJvbUpON0xLa2Ftc0RwaVJvRlZEM0dueUtMUEl2VmlMaUFIdk5lWkdXN1FKNlI0NVBUVll1Y2p3OXJUeEhoZ2daUS1ENEhJUDN3?oc=5"
+---
+
+India reigns supreme in Commonwealth kabaddi championship The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirAFBVV95cUxNelJuR0JkYjhyaFZfc0VsVjF2NnRad0QxYWNlSXliSVV3aUJjeUZfSTRnUTlvZE5JaXJIRnpXYklDNWo5NXM2aWIyb3ZIbzlnaldLNWQwOVFpcjRLeUxxS1hOdmp3alowVmVkQlZ2c2V4cTJzSGtreFdJeElLSkh1YWFvRlZ4YzlnRHhwOFBYNWV1R21ZWHMxVS1QM0hvQ19TbnZ6Z3FSNVhtbE5r0gGzAUFVX3lxTE4xdkdhaE91Y3RyaEVUZ1d0akpudWxVeDF0bV9VNS1xVEY5TmRVWGFTRkhjR1E4ei1ObHNITTJucUo5bVp4T3BYWXAyZC1ObzhSblhsb0Z5MWtYME5XLUhjbTFUNm9mOTlYNWJvbUpON0xLa2Ftc0RwaVJvRlZEM0dueUtMUEl2VmlMaUFIdk5lWkdXN1FKNlI0NVBUVll1Y2p3OXJUeEhoZ2daUS1ENEhJUDN3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
