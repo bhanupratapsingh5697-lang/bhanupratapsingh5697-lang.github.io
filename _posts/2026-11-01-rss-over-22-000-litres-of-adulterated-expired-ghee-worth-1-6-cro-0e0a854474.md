@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Over 22,000 litres of ‘adulterated’, expired ghee worth ₹1.6 crore seized in Rajasthan; 3 arrested | India News - Hindustan Times"
+date: 2026-11-01 22:45:29 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxPZ3NrUHZXcTZWWVpfZ3BYYjJSaWU0Wl8xRkN5ejJoWnd6dW9Ja1p2dXdNSUtuZU5Kc0d4OUJDWU1sS2xmRU81Znpzb2p6a1JDT3BsNmduNVpwSGdGVXJzTkhaLU5jbE54ampKbUJGZTkwZkdFRlNRSXdOWHdSS2dLbTJTU1N4ZXhaeG5IRmx4UF9SSi1DakVRWEN6Z1NCLVJ5aXIxdjF6TXFaRG9IX1l4Q3FiT2FsRnRIRFNFRjFKdXFoSEJzSVd4SG43dUt2OXNNalRoajJIRdIB3AFBVV95cUxOMFEzbkR2dEQwQlRxUGhkRkYxU1p5dFRuTVgxUDZWb25tUWtReDd2Z181a3htY2g4eW51TWlNVnJBT1VOUEJjZHhvU1dlS1Jwb2pIV1VvdE1vcWloZDRhMFFqZW5WNjQ1ZmM5Z0FUREtwcjFLTS1odlJ3LUFqbXBmaU82Vl9TT1ViS3lidk1FRldzQS1kUDRxaDJCd01RRnV1UDQ2cmxpMTJERVhRS2NUMnUwbHdub0tPME9YYTJvQUkzZUxnRlZTU3J2dkx1UHNyX2ZhZEgzU1NkWjZw?oc=5"
+---
+
+Over 22,000 litres of ‘adulterated’, expired ghee worth ₹1.6 crore seized in Rajasthan; 3 arrested | India News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPZ3NrUHZXcTZWWVpfZ3BYYjJSaWU0Wl8xRkN5ejJoWnd6dW9Ja1p2dXdNSUtuZU5Kc0d4OUJDWU1sS2xmRU81Znpzb2p6a1JDT3BsNmduNVpwSGdGVXJzTkhaLU5jbE54ampKbUJGZTkwZkdFRlNRSXdOWHdSS2dLbTJTU1N4ZXhaeG5IRmx4UF9SSi1DakVRWEN6Z1NCLVJ5aXIxdjF6TXFaRG9IX1l4Q3FiT2FsRnRIRFNFRjFKdXFoSEJzSVd4SG43dUt2OXNNalRoajJIRdIB3AFBVV95cUxOMFEzbkR2dEQwQlRxUGhkRkYxU1p5dFRuTVgxUDZWb25tUWtReDd2Z181a3htY2g4eW51TWlNVnJBT1VOUEJjZHhvU1dlS1Jwb2pIV1VvdE1vcWloZDRhMFFqZW5WNjQ1ZmM5Z0FUREtwcjFLTS1odlJ3LUFqbXBmaU82Vl9TT1ViS3lidk1FRldzQS1kUDRxaDJCd01RRnV1UDQ2cmxpMTJERVhRS2NUMnUwbHdub0tPME9YYTJvQUkzZUxnRlZTU3J2dkx1UHNyX2ZhZEgzU1NkWjZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

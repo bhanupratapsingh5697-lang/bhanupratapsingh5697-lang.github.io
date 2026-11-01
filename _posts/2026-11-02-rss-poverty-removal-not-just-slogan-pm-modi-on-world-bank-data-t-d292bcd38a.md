@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Poverty removal not just slogan: PM Modi on World Bank data - The Times of India"
+date: 2026-11-02 02:50:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxQaWZwamlZemZCVmE1YWlNbDd5Qy1tZW1GOWMtanJ4U0FkSWs3RmtyV2IwOFhKT0JPbldMOWRMN2VoNFBPWGRzYy1YQlllTHE1Q05mZ2pWQU5nVGlCWVZ2ZEk3SnYzb0ZZVHJEQTJFWTlXSjR4emlKTGw0TWZkeFBURXlIMGw4WDk0TUJOWkw2dThyMkI4Y3QycEVfNTlJMFpNd0F6OWtsOVNVakNCRjdaeHF5cHRNRjFUQnBvSUFhdXpsS09z0gHKAUFVX3lxTE1YQU9yaTcxZjBoNlFDNzNaMjFlWEl3TWlTU1ZLLTcyZkRkX0VNZDJFZzlfMDB3U3F4Qi1ib1U2NDVkMWVVa1ozdldCaW9GZ0QtdXM1aE9HQ0U1Zllob3BqNThVTWNKcVVqckI4S0NyZEdpN1JDeWloRC11dk4xNHlvSVI4WDVERmVyamxzU1ZTaFFJX0FzamY4ZllJVW8xU2Y2QVVrNWwtTm8zSDVLczdIcVFDSkNiNEVYaE14RG9SVlBfNUc5M0Q0VHc?oc=5"
+---
+
+Poverty removal not just slogan: PM Modi on World Bank data The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxQaWZwamlZemZCVmE1YWlNbDd5Qy1tZW1GOWMtanJ4U0FkSWs3RmtyV2IwOFhKT0JPbldMOWRMN2VoNFBPWGRzYy1YQlllTHE1Q05mZ2pWQU5nVGlCWVZ2ZEk3SnYzb0ZZVHJEQTJFWTlXSjR4emlKTGw0TWZkeFBURXlIMGw4WDk0TUJOWkw2dThyMkI4Y3QycEVfNTlJMFpNd0F6OWtsOVNVakNCRjdaeHF5cHRNRjFUQnBvSUFhdXpsS09z0gHKAUFVX3lxTE1YQU9yaTcxZjBoNlFDNzNaMjFlWEl3TWlTU1ZLLTcyZkRkX0VNZDJFZzlfMDB3U3F4Qi1ib1U2NDVkMWVVa1ozdldCaW9GZ0QtdXM1aE9HQ0U1Zllob3BqNThVTWNKcVVqckI4S0NyZEdpN1JDeWloRC11dk4xNHlvSVI4WDVERmVyamxzU1ZTaFFJX0FzamY4ZllJVW8xU2Y2QVVrNWwtTm8zSDVLczdIcVFDSkNiNEVYaE14RG9SVlBfNUc5M0Q0VHc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

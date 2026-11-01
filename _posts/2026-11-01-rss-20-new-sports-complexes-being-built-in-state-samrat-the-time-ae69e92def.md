@@ -1,0 +1,17 @@
+---
+layout: post
+title: "20 new sports complexes being built in state: Samrat - The Times of India"
+date: 2026-11-01 23:15:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxQUDl3TC1ISXA5VUxXSDZUTTR6aVpWazAyVXVFSS1IS2Y1ZzZiVk9Gb1ZxZGJENWVOSzJGSG5CWGc5eC1IZURYTlRVb0hIeXA5ZWcxRkt0OFduNmJzRkNiX3BldHRuRDZKdnB1ZEZ1VTMzbFVsUW1ZV2VySXFmbDFZM1FFQU8xZjN6S0I1M3Q2enpidXc1MVdlRVpuYmlyeFpIbnp3cGt0VHdHS0JPSG9zZFIweUFESUxWbkVwd3pBN0dmUdIBxwFBVV95cUxPYkR4MU5YRWQzN3pFZUF3cUxUcEFhZHNsNlB2UkNnUENEcWlOcnBETXhnWWRpV1U0YW41M0I4NHJiZldWVmRIa0p3YnlnVnFybk1NOG5sY2Foc1NwNTVfUXJCVHF2aDZiaFloemRGMUdTTWRZN2ZpdVNuN1Rxem1hWWVsclpqazNJNUwzblQ0TzJQTy1teG9hbzdyeUptOEpuajZnNVVUTUw3ZklEZEwwZzZzSmN6cXREMWJKeDBSOGJ2VFMteWJ3?oc=5"
+---
+
+20 new sports complexes being built in state: Samrat The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxQUDl3TC1ISXA5VUxXSDZUTTR6aVpWazAyVXVFSS1IS2Y1ZzZiVk9Gb1ZxZGJENWVOSzJGSG5CWGc5eC1IZURYTlRVb0hIeXA5ZWcxRkt0OFduNmJzRkNiX3BldHRuRDZKdnB1ZEZ1VTMzbFVsUW1ZV2VySXFmbDFZM1FFQU8xZjN6S0I1M3Q2enpidXc1MVdlRVpuYmlyeFpIbnp3cGt0VHdHS0JPSG9zZFIweUFESUxWbkVwd3pBN0dmUdIBxwFBVV95cUxPYkR4MU5YRWQzN3pFZUF3cUxUcEFhZHNsNlB2UkNnUENEcWlOcnBETXhnWWRpV1U0YW41M0I4NHJiZldWVmRIa0p3YnlnVnFybk1NOG5sY2Foc1NwNTVfUXJCVHF2aDZiaFloemRGMUdTTWRZN2ZpdVNuN1Rxem1hWWVsclpqazNJNUwzblQ0TzJQTy1teG9hbzdyeUptOEpuajZnNVVUTUw3ZklEZEwwZzZzSmN6cXREMWJKeDBSOGJ2VFMteWJ3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

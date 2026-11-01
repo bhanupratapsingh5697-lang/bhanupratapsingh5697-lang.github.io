@@ -1,0 +1,17 @@
+---
+layout: post
+title: "1984 survivors, Sikh groups question timing of INDIA bloc rally on Nov 1, seek apology - The Times of India"
+date: 2026-11-02 02:41:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi5wFBVV95cUxNNG5sSTVfeG96dWdQT1pjVUJCc3J5Zm9zTkZRc2NXLVBldUxMY1JnaGJCam5WRjVlMmh4MVNGN2F2LUY4Uk00YmRvdDR4bXZ5RzBJa2hyeFNXeTR1bzZNejlqSDRTNERGaDZhSFgzZFFVNzJtZ3RpZDJUcjJrVGU2RGdjUmZaSXRRcmE4VXlUalA4WHNjNjJjc0h1cG9QMWE4XzZDRW5OX29lWnRpaFlhZThYalBIU1E3SnBtM1lYRWk4WHUxVWxRaGlDUkh1NmQzaWkwSG5IUTBrZmZhRUkzWi1RYTRReUHSAewBQVVfeXFMTm1iQm91QWhlLVBRb1Zfc3JzMmYwLTNnY2kyTC1TR3RxQzR1clhmTVdzZF90enNjNWJCTk1RYmdlUGxKMndQdjlMZUlIZEVxOEZFTzVIczEteEpmLUNzMjJlTGEzMGNRVzNkbDZmcTNkbTR5Rm84QnNUdGhnTUh0MG9UOVlZRHdoak1pamoxYlYyTkQ4U3B5SXVtZWRhZGVUMTEzX2lHQmVZY3FKdmsydDBCQ0lFSGZMQXFRN3c5NzRCNDRaeTdVNjU3NlF0R1Y0RnJUQUpfQ21CejNoREhiUVRuSE56UWdCZlBBREM?oc=5"
+---
+
+1984 survivors, Sikh groups question timing of INDIA bloc rally on Nov 1, seek apology The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5wFBVV95cUxNNG5sSTVfeG96dWdQT1pjVUJCc3J5Zm9zTkZRc2NXLVBldUxMY1JnaGJCam5WRjVlMmh4MVNGN2F2LUY4Uk00YmRvdDR4bXZ5RzBJa2hyeFNXeTR1bzZNejlqSDRTNERGaDZhSFgzZFFVNzJtZ3RpZDJUcjJrVGU2RGdjUmZaSXRRcmE4VXlUalA4WHNjNjJjc0h1cG9QMWE4XzZDRW5OX29lWnRpaFlhZThYalBIU1E3SnBtM1lYRWk4WHUxVWxRaGlDUkh1NmQzaWkwSG5IUTBrZmZhRUkzWi1RYTRReUHSAewBQVVfeXFMTm1iQm91QWhlLVBRb1Zfc3JzMmYwLTNnY2kyTC1TR3RxQzR1clhmTVdzZF90enNjNWJCTk1RYmdlUGxKMndQdjlMZUlIZEVxOEZFTzVIczEteEpmLUNzMjJlTGEzMGNRVzNkbDZmcTNkbTR5Rm84QnNUdGhnTUh0MG9UOVlZRHdoak1pamoxYlYyTkQ4U3B5SXVtZWRhZGVUMTEzX2lHQmVZY3FKdmsydDBCQ0lFSGZMQXFRN3c5NzRCNDRaeTdVNjU3NlF0R1Y0RnJUQUpfQ21CejNoREhiUVRuSE56UWdCZlBBREM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

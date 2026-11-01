@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan raids net 22,000 litres of suspected adulterated ghee before Diwali, 3 held - India Today"
+date: 2026-11-01 21:10:34 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxQaE9XTk9ZZ0hNVVIyVmFJYU5LS1ZmTVBKV01Hd2ZHNnB3U1dSLUtzRFo1Y0pBTVVxUHlka0N3bzdzeElzZHVpNVBvSTRUWGVIUUN4ekZzamZramc3TWtZamxNdWVPYVYtc3BkVEhwLXlNQjRTdlBZbV9nb2FmQy1VOXBhR0c3VDF6NWl1bTBLenkwbWR4bW9pVU1sZ1dZRW1IRXBsUWJGX1B2VE1TRnEtbFBqSjVOU2djRnMtak9HUzI3a0RmZmpDQVU3N1MyVl91b1B5WW1BSzdOMFHSAeABQVVfeXFMTkZ4OHJnbWNwcU9WY21CWnliLVJqNFZvams3YzE2SVlBZkpCRW02QzZBVmV0NE5Mbmd5Sk0zRDVBd1llRWJzRGFPTWMtTUtpS3lLN3FLYjEybmhiYlRpOXhBM1MxbGQzX1FaR2c2VG5YZXVHNlFfTkx6NnpqdWJubEFsZmdHbVVpRTRLTGk5OHhIYUxNa3k0WGRpMHU0SS1OTjV4VHhWbm9zZnA0czhlRUxfRldHTzk3aHd4eExjR1p4RXJyQ0ZoZXR1dVEwWV93Z2VVVWxuZmM4SW9temJUUFY?oc=5"
+---
+
+Rajasthan raids net 22,000 litres of suspected adulterated ghee before Diwali, 3 held India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQaE9XTk9ZZ0hNVVIyVmFJYU5LS1ZmTVBKV01Hd2ZHNnB3U1dSLUtzRFo1Y0pBTVVxUHlka0N3bzdzeElzZHVpNVBvSTRUWGVIUUN4ekZzamZramc3TWtZamxNdWVPYVYtc3BkVEhwLXlNQjRTdlBZbV9nb2FmQy1VOXBhR0c3VDF6NWl1bTBLenkwbWR4bW9pVU1sZ1dZRW1IRXBsUWJGX1B2VE1TRnEtbFBqSjVOU2djRnMtak9HUzI3a0RmZmpDQVU3N1MyVl91b1B5WW1BSzdOMFHSAeABQVVfeXFMTkZ4OHJnbWNwcU9WY21CWnliLVJqNFZvams3YzE2SVlBZkpCRW02QzZBVmV0NE5Mbmd5Sk0zRDVBd1llRWJzRGFPTWMtTUtpS3lLN3FLYjEybmhiYlRpOXhBM1MxbGQzX1FaR2c2VG5YZXVHNlFfTkx6NnpqdWJubEFsZmdHbVVpRTRLTGk5OHhIYUxNa3k0WGRpMHU0SS1OTjV4VHhWbm9zZnA0czhlRUxfRldHTzk3aHd4eExjR1p4RXJyQ0ZoZXR1dVEwWV93Z2VVVWxuZmM4SW9temJUUFY?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

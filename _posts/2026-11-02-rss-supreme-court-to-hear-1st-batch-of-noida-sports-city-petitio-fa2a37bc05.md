@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Supreme Court to hear 1st batch of Noida Sports City petitions on Dec 9 | Latest News Delhi - Hindustan Times"
+date: 2026-11-02 00:16:42 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxQbEUxSDN5cXB0MDJycjJ3aEwwaVkxRU9yZWg1aGRlbW9jdkE0eXJ2RlN6SjRUNjhPZk1abDBOaHd0cEhuOTBOdVpJZnJPSE1IaGJLRzhPTVhoQnowWUt5YTJ3QnJMdkZOWW1sU2h5OGNzQU9xR0VNakc3S0ZXT0JPUEZGWHZaUGpXR2JzYlRwcEpjV1ZpcnJYUGlTdnpyZUVQSjVSOThScWRkLUdmV0g0R3pNTnB5NU5tV1JEVldlZ0o1SjRyN0J3MXZyVmpmRE9rR2REZXNVV0vSAd4BQVVfeXFMUE13alRDZ1ZCVUhMT2ZSSE52ZzBrZVE4M2o4cUkxSlBEZmhJTVBNWXJIenR4THlSQW9SbUV0WUVXYnNhVmxrTFFmdVNSc09HZjh1Nm43a3dvOUlLeW0zTUlmcGZrZVREVFlMaEZxWWkweUNBc1c0Y2ZaU1JhLTlUNWpTcVFOUFVYTFd2ZWxmUTZfdlhPZDB5azY1NnUxZG1QVm1uZTYwamlFV3FJVnpYTTF6MnZJNEVoYWFiRGtEcWZxQXpxUWxHaWxLRldjQjZPLWNPOEowOVNKZWNfSmhB?oc=5"
+---
+
+Supreme Court to hear 1st batch of Noida Sports City petitions on Dec 9 | Latest News Delhi Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQbEUxSDN5cXB0MDJycjJ3aEwwaVkxRU9yZWg1aGRlbW9jdkE0eXJ2RlN6SjRUNjhPZk1abDBOaHd0cEhuOTBOdVpJZnJPSE1IaGJLRzhPTVhoQnowWUt5YTJ3QnJMdkZOWW1sU2h5OGNzQU9xR0VNakc3S0ZXT0JPUEZGWHZaUGpXR2JzYlRwcEpjV1ZpcnJYUGlTdnpyZUVQSjVSOThScWRkLUdmV0g0R3pNTnB5NU5tV1JEVldlZ0o1SjRyN0J3MXZyVmpmRE9rR2REZXNVV0vSAd4BQVVfeXFMUE13alRDZ1ZCVUhMT2ZSSE52ZzBrZVE4M2o4cUkxSlBEZmhJTVBNWXJIenR4THlSQW9SbUV0WUVXYnNhVmxrTFFmdVNSc09HZjh1Nm43a3dvOUlLeW0zTUlmcGZrZVREVFlMaEZxWWkweUNBc1c0Y2ZaU1JhLTlUNWpTcVFOUFVYTFd2ZWxmUTZfdlhPZDB5azY1NnUxZG1QVm1uZTYwamlFV3FJVnpYTTF6MnZJNEVoYWFiRGtEcWZxQXpxUWxHaWxLRldjQjZPLWNPOEowOVNKZWNfSmhB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

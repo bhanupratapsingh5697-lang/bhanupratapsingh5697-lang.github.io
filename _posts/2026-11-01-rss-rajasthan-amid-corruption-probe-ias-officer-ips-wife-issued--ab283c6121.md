@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Amid corruption probe, IAS officer, IPS wife issued show cause notice over assets - The Indian Express"
+date: 2026-11-01 21:52:07 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxPQzhvQ1BFeU83YTYyM1dHbUpGUVdRMEV2ekQ5TG9aSGxaRzB1ejMyN1hDZG5xMHVtMG05NXg3UzlnY1pucnZSYzlCb1dhN0hjZVRQNWR3UV9uT1ZpVGJKbi1DTHhGVUtFQ1NiU0VCdUFjODZVVmFvS1hrak1UbVdhOF9nRUF3SFNJODJqVFdTcWl6V2RiUXBfajBuV3pjWFhIUWRtS29PWDMtdDQtN3IwcFlsYlBvX3pfUEx0MtIBwwFBVV95cUxQSkZ4SVFSTzNobTlQOUtYcThzWlVVZzh2eWJBR25MRnRISHlFUTk3RnJ2RUU5TDBlX0tlLWxLaVNETHI0b1FzZzNjOVZxS0hJYTRWNDZwZUVVV3hNZXY3M2ViQlhSbXdhTFktQkZET0ZXWkZOQ3ZnRnBTSTNsdHhDSFFqVHE0Sm9QOEd1SmVsQmJuaUxTZVNSUGVNZEhOMTlMbk8xX2lYTDl2ZmcwVjlydEpJRFZ1NjI3RHVZUWUwaXBuRkk?oc=5"
+---
+
+Rajasthan: Amid corruption probe, IAS officer, IPS wife issued show cause notice over assets The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxPQzhvQ1BFeU83YTYyM1dHbUpGUVdRMEV2ekQ5TG9aSGxaRzB1ejMyN1hDZG5xMHVtMG05NXg3UzlnY1pucnZSYzlCb1dhN0hjZVRQNWR3UV9uT1ZpVGJKbi1DTHhGVUtFQ1NiU0VCdUFjODZVVmFvS1hrak1UbVdhOF9nRUF3SFNJODJqVFdTcWl6V2RiUXBfajBuV3pjWFhIUWRtS29PWDMtdDQtN3IwcFlsYlBvX3pfUEx0MtIBwwFBVV95cUxQSkZ4SVFSTzNobTlQOUtYcThzWlVVZzh2eWJBR25MRnRISHlFUTk3RnJ2RUU5TDBlX0tlLWxLaVNETHI0b1FzZzNjOVZxS0hJYTRWNDZwZUVVV3hNZXY3M2ViQlhSbXdhTFktQkZET0ZXWkZOQ3ZnRnBTSTNsdHhDSFFqVHE0Sm9QOEd1SmVsQmJuaUxTZVNSUGVNZEhOMTlMbk8xX2lYTDl2ZmcwVjlydEpJRFZ1NjI3RHVZUWUwaXBuRkk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Asian Champions Trophy: Harmanpreet’s hat-trick helps India down Malaysia - The Hindu"
+date: 2026-11-01 21:56:36 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxNNndKRTM3MG5tVC1NT0hxNWh5X2dXckZ3WENwNkZ6WGE0SmxiYnMxMVVmWFBlOHRNM0lIU2JwbVlqWjdIR29jTjBScXNIN0MyeF92RVdEVE8zSEVoMjl5TUQ3bG5DUGRZU3phZm9ROGtDZGFKcWt0RnBrNEVwUERKVkg3MmNRTnQ1WHZmX1pxM3hKUjVRU0x0WlV1TWtnYkh5elp0TDJyeXFXUEZsRHVfXy1EVTh4NmdhYkZBUjI3U0ZTcHFCdkt3RdIBzwFBVV95cUxNMVF0ak5XdGNjVW5LeWJ2ZERJUjhxc0hqYURoeUtOdHlWeFBVZENBanY0bE5mbTlpNzZFdlpWQW56ODRuTlZCNGY4RzhEX2FzRjc2bFE2b09ocGc1UC1EeGNQR19HTlh0ZzIzNFRGa3A2UFBPMkRuRjQ0YkJCZlN1LW54eXJWdkYySTZXS2ZZbFY4U3NZTEcwY0x5Q3EwQkVhelpUeC1YNm00cjhTWU1GQzlwSmk4R3FsNWNmczNKRHAzOWZUWFQ2V3VMUGplVWs?oc=5"
+---
+
+Asian Champions Trophy: Harmanpreet’s hat-trick helps India down Malaysia The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNNndKRTM3MG5tVC1NT0hxNWh5X2dXckZ3WENwNkZ6WGE0SmxiYnMxMVVmWFBlOHRNM0lIU2JwbVlqWjdIR29jTjBScXNIN0MyeF92RVdEVE8zSEVoMjl5TUQ3bG5DUGRZU3phZm9ROGtDZGFKcWt0RnBrNEVwUERKVkg3MmNRTnQ1WHZmX1pxM3hKUjVRU0x0WlV1TWtnYkh5elp0TDJyeXFXUEZsRHVfXy1EVTh4NmdhYkZBUjI3U0ZTcHFCdkt3RdIBzwFBVV95cUxNMVF0ak5XdGNjVW5LeWJ2ZERJUjhxc0hqYURoeUtOdHlWeFBVZENBanY0bE5mbTlpNzZFdlpWQW56ODRuTlZCNGY4RzhEX2FzRjc2bFE2b09ocGc1UC1EeGNQR19HTlh0ZzIzNFRGa3A2UFBPMkRuRjQ0YkJCZlN1LW54eXJWdkYySTZXS2ZZbFY4U3NZTEcwY0x5Q3EwQkVhelpUeC1YNm00cjhTWU1GQzlwSmk4R3FsNWNmczNKRHAzOWZUWFQ2V3VMUGplVWs?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

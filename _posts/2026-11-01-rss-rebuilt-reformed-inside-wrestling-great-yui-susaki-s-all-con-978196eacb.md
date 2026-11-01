@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rebuilt, reformed: Inside wrestling great Yui Susaki's all-conquering run | Sports News - Hindustan Times"
+date: 2026-11-01 23:30:29 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxNeEppWEpIOXpIbXFDMlRCa1ZOeW1LNzVHYjBDcjRIM3p6Szl2VUV2S0loTEdTX012ZGV4M1cxQl9RZkppSXp4LXUxbGM3cU1KQnB4bEpPQ1dOSDhZM0oxaXlZSnVnVXU5eHdNMlBlVVpiX3hXTXQ5ckZSQjNjWThvRGJzVkptREs5SUoya0k3Rjd5R25Tcm0yQ2xYYUx0UkJoVmhWNVRMNWxBa2Q1VVlTM0RrQmlFcHhfdnhrMWlubVE3ZUtaVHFTUdIBzgFBVV95cUxQd0w0NlZ5SC1FZjdrdEEzQXYzc3ZkZlI0Uk1IaTBLa1VDN1AyS0xWdXAyM29GX3BPZHQ0VENKT2ZsMTNqemlQQzN6S0s3eUU4OW9TX29OcDdsa1Z0dVRkQzRpX0xzc1RtY29tSk1jcG1hUGRDQlZyeUdfblkzRzRKTFNzNzllMTFnd0V0MUhIX2VybUwyNDEzSjdUekFEOGk2SkVZTkRZbXltSFZxV3lUSW1rQ3JqeVBvbGo3YXFHWkU0Xy1QM3FaZXdtOUF3Zw?oc=5"
+---
+
+Rebuilt, reformed: Inside wrestling great Yui Susaki's all-conquering run | Sports News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNeEppWEpIOXpIbXFDMlRCa1ZOeW1LNzVHYjBDcjRIM3p6Szl2VUV2S0loTEdTX012ZGV4M1cxQl9RZkppSXp4LXUxbGM3cU1KQnB4bEpPQ1dOSDhZM0oxaXlZSnVnVXU5eHdNMlBlVVpiX3hXTXQ5ckZSQjNjWThvRGJzVkptREs5SUoya0k3Rjd5R25Tcm0yQ2xYYUx0UkJoVmhWNVRMNWxBa2Q1VVlTM0RrQmlFcHhfdnhrMWlubVE3ZUtaVHFTUdIBzgFBVV95cUxQd0w0NlZ5SC1FZjdrdEEzQXYzc3ZkZlI0Uk1IaTBLa1VDN1AyS0xWdXAyM29GX3BPZHQ0VENKT2ZsMTNqemlQQzN6S0s3eUU4OW9TX29OcDdsa1Z0dVRkQzRpX0xzc1RtY29tSk1jcG1hUGRDQlZyeUdfblkzRzRKTFNzNzllMTFnd0V0MUhIX2VybUwyNDEzSjdUekFEOGk2SkVZTkRZbXltSFZxV3lUSW1rQ3JqeVBvbGo3YXFHWkU0Xy1QM3FaZXdtOUF3Zw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

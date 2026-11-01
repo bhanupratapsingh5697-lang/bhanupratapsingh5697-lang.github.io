@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India tour of New Zealand: India vs New Zealand fifth and final T20I in Hamilton - The Hindu"
+date: 2026-11-01 12:26:58 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxNRVQzazZPQkpieklEem4zVjJzd1RQaGZzTGlvTHd2Z3hBTHlXcHZwdmd0WVUtRzRaZWVDUjVuWHItM2I2d09fSk9HNHRqallYRUNjaFY2dkNKYnZRVlhqdU1JbFVySFRBWVk0aC00MDdfY0NsOU9RdlI3bTJZUDh0dWlERmFxNS1WY2xXZzdyaHd4cndzWjFiWUxtcm56ZTloelRoVFlvUHd1SFVzUGlxUC0yZGFsdjNlNHA5VW5CTWVpeTjSAcoBQVVfeXFMT2R4TlVJT2JXOHo3R09mWndoYkFSV0Y4NXppM2M5MWFEMXY1MjNTVkVHNTVyaVJUTHE1TDlxTWl5TDd4cjYzbjJEZjN3bS1ULWkzZEpGeHhDVGIyczRlOHk0dGdIUFc0cWlzdllkWVBSTnV3VXFOLXNTeXVKRGIwTEtKcTJtSWc3aHNyeXNvbHBia1RsNFlFWjZEUUZ4MnJZQUFoVjFtOWhiZ1dWcjdvaXVlT2xYWldiZk83XzR0cGt0NnkyZXhlOFBKQQ?oc=5"
+---
+
+India tour of New Zealand: India vs New Zealand fifth and final T20I in Hamilton The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNRVQzazZPQkpieklEem4zVjJzd1RQaGZzTGlvTHd2Z3hBTHlXcHZwdmd0WVUtRzRaZWVDUjVuWHItM2I2d09fSk9HNHRqallYRUNjaFY2dkNKYnZRVlhqdU1JbFVySFRBWVk0aC00MDdfY0NsOU9RdlI3bTJZUDh0dWlERmFxNS1WY2xXZzdyaHd4cndzWjFiWUxtcm56ZTloelRoVFlvUHd1SFVzUGlxUC0yZGFsdjNlNHA5VW5CTWVpeTjSAcoBQVVfeXFMT2R4TlVJT2JXOHo3R09mWndoYkFSV0Y4NXppM2M5MWFEMXY1MjNTVkVHNTVyaVJUTHE1TDlxTWl5TDd4cjYzbjJEZjN3bS1ULWkzZEpGeHhDVGIyczRlOHk0dGdIUFc0cWlzdllkWVBSTnV3VXFOLXNTeXVKRGIwTEtKcTJtSWc3aHNyeXNvbHBia1RsNFlFWjZEUUZ4MnJZQUFoVjFtOWhiZ1dWcjdvaXVlT2xYWldiZk83XzR0cGt0NnkyZXhlOFBKQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
