@@ -1,0 +1,17 @@
+---
+layout: post
+title: "NCW to organise national consultation for women in sports; to address systemic barriers - The New Indian Express"
+date: 2026-11-02 19:17:28 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxOdnFZTFdOVU9EUU9nS1d6a1dfRHpPOTI4X0N6QWxUZ3V0OENzeVdZeVl2cEJXRkQwSnBTUXVQMW5abzV3cU5EMk5wQUlidVRDMHVZZ1hPdDBsb3dqT24xWkZhQnppOEZmMFd1alRaRHF0NWNkNThhNnROZFlTX2lrczc5RFNla010eEVRNWNaeDB0cXh3MktjNERJZlJwOGtESkc1UlB0ODRNTS1OWjh3WjVDY0dkVjBocG1FcHR5MDFjTlI0RUM0SUhzdzBtd3hOdUdn0gHgAUFVX3lxTE1RSGZVRjhma0J3UTF1MkxScXdCMk5kZUpKY1JnQlNDNWdtRWlYejJZNHlINFhLYWpHZEZ3ZDRfdVpxRHNCeF9hQXk4bTJUWVRkeWFNOFhSS0NpT1FlQklibS1CclAyZkk5THEwd2FDOHZJVlhYNkV6T2F3aXo5Ul9WYjNNa2lPTTZ3STh2Qlc0LWI4bGtkUUxYWm43NmxTa1hJVlB0U2ZqM0Q3U1pPa1BmVU5BZTZZUGFXWllxRFBHOGxRekJvaEVudFg4T0gtbk1CM25SaWp4NWVYcWU5NkIt?oc=5"
+---
+
+NCW to organise national consultation for women in sports; to address systemic barriers The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOdnFZTFdOVU9EUU9nS1d6a1dfRHpPOTI4X0N6QWxUZ3V0OENzeVdZeVl2cEJXRkQwSnBTUXVQMW5abzV3cU5EMk5wQUlidVRDMHVZZ1hPdDBsb3dqT24xWkZhQnppOEZmMFd1alRaRHF0NWNkNThhNnROZFlTX2lrczc5RFNla010eEVRNWNaeDB0cXh3MktjNERJZlJwOGtESkc1UlB0ODRNTS1OWjh3WjVDY0dkVjBocG1FcHR5MDFjTlI0RUM0SUhzdzBtd3hOdUdn0gHgAUFVX3lxTE1RSGZVRjhma0J3UTF1MkxScXdCMk5kZUpKY1JnQlNDNWdtRWlYejJZNHlINFhLYWpHZEZ3ZDRfdVpxRHNCeF9hQXk4bTJUWVRkeWFNOFhSS0NpT1FlQklibS1CclAyZkk5THEwd2FDOHZJVlhYNkV6T2F3aXo5Ul9WYjNNa2lPTTZ3STh2Qlc0LWI4bGtkUUxYWm43NmxTa1hJVlB0U2ZqM0Q3U1pPa1BmVU5BZTZZUGFXWllxRFBHOGxRekJvaEVudFg4T0gtbk1CM25SaWp4NWVYcWU5NkIt?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

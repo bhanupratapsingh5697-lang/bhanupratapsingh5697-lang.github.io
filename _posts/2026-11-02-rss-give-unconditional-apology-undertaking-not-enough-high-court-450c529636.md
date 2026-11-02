@@ -1,0 +1,17 @@
+---
+layout: post
+title: "\"Give Unconditional Apology, Undertaking Not Enough\": High Court To Imran Khan - NDTV"
+date: 2026-11-02 16:17:06 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxNYU9HclZLSzNTRG9VNy1qakppYVktZDB3d0tkQkJhUlBIRURSOGtaQXo2WktyQUxSR25lUERONi05Qi0xbnFIVC1wZTNLTXFfSllYRHREREZmendfM1YzVGdialJGU3NMekJvMWotdzYzMy1VeUdGcTd4SkFCUWVMUTlxNWM1RHNjRE5kR3pyM3lTTkJtU1A2RHB1dnpBcjJBdkNkSEZXSEhPaWxjaFlLLWFoZWdld9IBvgFBVV95cUxPVFdRTFdCUllpTmpsVWNYclJxX3pXSVFPdmZDX0xqZDdzdG5GdmpNVVdsYUhUVGpOSXBvaXhxcGhmYzFDdDFYWlNLUDJLa281d3p3T2M2c3BCTkY2Z054YjF0dlJCLV82cXVqWmFsdV9PMHNhZ2lwcXdSLXhFX0U1bFI5bVQ5dzIySmhwQzZodFdqamxXVVFiQzkwVUFQZUJDSHBpVXoyOE5td0xGU3oxcGo3aEkwUVN0WE5jdUx3?oc=5"
+---
+
+"Give Unconditional Apology, Undertaking Not Enough": High Court To Imran Khan NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxNYU9HclZLSzNTRG9VNy1qakppYVktZDB3d0tkQkJhUlBIRURSOGtaQXo2WktyQUxSR25lUERONi05Qi0xbnFIVC1wZTNLTXFfSllYRHREREZmendfM1YzVGdialJGU3NMekJvMWotdzYzMy1VeUdGcTd4SkFCUWVMUTlxNWM1RHNjRE5kR3pyM3lTTkJtU1A2RHB1dnpBcjJBdkNkSEZXSEhPaWxjaFlLLWFoZWdld9IBvgFBVV95cUxPVFdRTFdCUllpTmpsVWNYclJxX3pXSVFPdmZDX0xqZDdzdG5GdmpNVVdsYUhUVGpOSXBvaXhxcGhmYzFDdDFYWlNLUDJLa281d3p3T2M2c3BCTkY2Z054YjF0dlJCLV82cXVqWmFsdV9PMHNhZ2lwcXdSLXhFX0U1bFI5bVQ5dzIySmhwQzZodFdqamxXVVFiQzkwVUFQZUJDSHBpVXoyOE5td0xGU3oxcGo3aEkwUVN0WE5jdUx3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

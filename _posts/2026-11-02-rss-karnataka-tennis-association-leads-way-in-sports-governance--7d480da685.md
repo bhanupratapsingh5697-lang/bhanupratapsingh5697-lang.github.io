@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Karnataka Tennis Association Leads Way In Sports Governance Reform - Rediff"
+date: 2026-11-02 16:55:36 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQckE4OUNHRVFUN2hzVGpnNk1kWTVQSlVZa3FoekVkVlhhbjI5dTNpNHZ0NTU2Rlhnb1h0a0lZNHl6ZF9fQXpWMFhsSW1iZjYzdzBmQm8tOHlNaDNZTzFzdVpnMFpoM016aXVGdmZ4V3ZidW83TUwtMmVfcnNud0JRN1dnVFRJVGNZeEJlaTd6aDEyckEzYWtVRDZxU2YtcEXSAaIBQVVfeXFMTVZncmJhZm5uaHNpYm1qaTlVbXRuejROR3BDUEdQQkRZeS1INTVwVFpiOE9jSzhIMUVGMDNlb0hOZmRRRFBUa015dmRqeVFPYjkzOTRBVVZRZ3RLaEhhSmdXYWJuM2s2UmtVUktCTndhRHZNVGtFQjVzekpYWHVNZFNWbGhxUDc0dW9pWHUtR3poOXVnalVOQU5BS0NDMTlKeTFR?oc=5"
+---
+
+Karnataka Tennis Association Leads Way In Sports Governance Reform Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMinwFBVV95cUxQckE4OUNHRVFUN2hzVGpnNk1kWTVQSlVZa3FoekVkVlhhbjI5dTNpNHZ0NTU2Rlhnb1h0a0lZNHl6ZF9fQXpWMFhsSW1iZjYzdzBmQm8tOHlNaDNZTzFzdVpnMFpoM016aXVGdmZ4V3ZidW83TUwtMmVfcnNud0JRN1dnVFRJVGNZeEJlaTd6aDEyckEzYWtVRDZxU2YtcEXSAaIBQVVfeXFMTVZncmJhZm5uaHNpYm1qaTlVbXRuejROR3BDUEdQQkRZeS1INTVwVFpiOE9jSzhIMUVGMDNlb0hOZmRRRFBUa015dmRqeVFPYjkzOTRBVVZRZ3RLaEhhSmdXYWJuM2s2UmtVUktCTndhRHZNVGtFQjVzekpYWHVNZFNWbGhxUDc0dW9pWHUtR3poOXVnalVOQU5BS0NDMTlKeTFR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

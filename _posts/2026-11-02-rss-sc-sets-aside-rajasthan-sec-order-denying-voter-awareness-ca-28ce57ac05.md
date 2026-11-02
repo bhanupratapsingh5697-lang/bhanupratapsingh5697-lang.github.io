@@ -1,0 +1,17 @@
+---
+layout: post
+title: "SC sets aside Rajasthan SEC order denying voter awareness campaign nod - ThePrint"
+date: 2026-11-02 15:15:44 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxPZC1teFFlN3p1b0xYRjV6Y3kwVU1WTVV4QjhEd1lSVW9MS3hSaWVPUGdFbjNoV25mbkhWSXRrSm5vU2ktcHRMLTVuV0ZYcFM5b3Jna2F5eFE5SzlWUFVLUEZrU19faEhmSzVfVUwwNkY3OEJ2STZLUUU1LVlXQk5BZ2oyRGp3cU93SDEyakM0Tnd2bEowcHZNczg2UTdseTVmQ3BfYnlPOFHSAa4BQVVfeXFMUHN1cHhtVVhRNXVJOXJrRlNnb1hrQjhRZ0YtdFBteUtoeW42elhrMV9YYVI5dWRsYTdwdUUxZkRuNjRlODBJTFIzTFhNWkhLdWFRUVZIX1lUdVJraXdpeEhiWm9vVGxSRkZlcmlzd004LVAtS3pVLWpKXzFrNFpkLXNXeWdtWHBYWFdfTUFLVDNQY014S2VMelpHa3JRSTlVTndjN3RSVl9WcDMxTGhn?oc=5"
+---
+
+SC sets aside Rajasthan SEC order denying voter awareness campaign nod ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPZC1teFFlN3p1b0xYRjV6Y3kwVU1WTVV4QjhEd1lSVW9MS3hSaWVPUGdFbjNoV25mbkhWSXRrSm5vU2ktcHRMLTVuV0ZYcFM5b3Jna2F5eFE5SzlWUFVLUEZrU19faEhmSzVfVUwwNkY3OEJ2STZLUUU1LVlXQk5BZ2oyRGp3cU93SDEyakM0Tnd2bEowcHZNczg2UTdseTVmQ3BfYnlPOFHSAa4BQVVfeXFMUHN1cHhtVVhRNXVJOXJrRlNnb1hrQjhRZ0YtdFBteUtoeW42elhrMV9YYVI5dWRsYTdwdUUxZkRuNjRlODBJTFIzTFhNWkhLdWFRUVZIX1lUdVJraXdpeEhiWm9vVGxSRkZlcmlzd004LVAtS3pVLWpKXzFrNFpkLXNXeWdtWHBYWFdfTUFLVDNQY014S2VMelpHa3JRSTlVTndjN3RSVl9WcDMxTGhn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

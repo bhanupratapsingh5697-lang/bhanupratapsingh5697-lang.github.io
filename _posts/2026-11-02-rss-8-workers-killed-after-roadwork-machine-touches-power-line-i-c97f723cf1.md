@@ -1,0 +1,17 @@
+---
+layout: post
+title: "8 Workers Killed After Roadwork Machine Touches Power Line In Rajasthan - NDTV"
+date: 2026-11-02 18:26:29 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwAFBVV95cUxPX0VFZDRqQUltc3ZwRW1lTzlrWW5pZTQtbG1qVm9IS1ByWVEtMWV1R0NxLThweVQyQzloZ1daVFF2ejNFM3p1bFFDNHVOaHZFMUsxakxRV25RNHBVdzc0akUwSVZ3dDdLb2VoODg5RGxLemJ1TFI2RjdsRjNOdDY5UlNJRDZ0bktGTEZsSVpDYjdTRXozd19LcVZTYU04MzZxT293WEptcWVkbm9ZRDVZR3gzWlAya2F2NDZMTUhWdnTSAcgBQVVfeXFMUFhoeGdUeTYyTnYzbEs4RmlCZDVpUVMxOE5xTXRxS1MxVm5tNnJ1RHJqMXFtbXR3U013N05ZZnVMcWxJZDdTSGdWSzBWbXVBLU1ySEdjOUxVQXVkSkI2Y005WE0tNDV5RGNpU3JPU1ZGckkyNk5OZkNjRGhiSnBLbTFYWU9Yd2VMclNWY2lGZHZyVDlJb0NmY3hfTWtDVUpnaEU3VGFDWmE2MElTUDFIdm5pYXItMExza0hFUGMwMi1tNnlXWTFoZlA?oc=5"
+---
+
+8 Workers Killed After Roadwork Machine Touches Power Line In Rajasthan NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPX0VFZDRqQUltc3ZwRW1lTzlrWW5pZTQtbG1qVm9IS1ByWVEtMWV1R0NxLThweVQyQzloZ1daVFF2ejNFM3p1bFFDNHVOaHZFMUsxakxRV25RNHBVdzc0akUwSVZ3dDdLb2VoODg5RGxLemJ1TFI2RjdsRjNOdDY5UlNJRDZ0bktGTEZsSVpDYjdTRXozd19LcVZTYU04MzZxT293WEptcWVkbm9ZRDVZR3gzWlAya2F2NDZMTUhWdnTSAcgBQVVfeXFMUFhoeGdUeTYyTnYzbEs4RmlCZDVpUVMxOE5xTXRxS1MxVm5tNnJ1RHJqMXFtbXR3U013N05ZZnVMcWxJZDdTSGdWSzBWbXVBLU1ySEdjOUxVQXVkSkI2Y005WE0tNDV5RGNpU3JPU1ZGckkyNk5OZkNjRGhiSnBLbTFYWU9Yd2VMclNWY2lGZHZyVDlJb0NmY3hfTWtDVUpnaEU3VGFDWmE2MElTUDFIdm5pYXItMExza0hFUGMwMi1tNnlXWTFoZlA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
