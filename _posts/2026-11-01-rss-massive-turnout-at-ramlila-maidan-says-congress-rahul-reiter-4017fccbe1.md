@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Massive turnout at Ramlila Maidan,' says Congress; Rahul reiterates, 'Gyanesh will go to jail' | HIGHLIGHTS - The Hindu"
+date: 2026-11-01 22:33:18 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMigAJBVV95cUxPLTZLLUNHUGpmZDUyNEF5TUhvM1J5QVdmdmtEZHNkbWJBRHNHeVo4YUFZMm82WlkzaFJYMXp4TFgzRWIzZFdYMFMtYzNWU1llWWJHVDJBYWFFZVRfSGk2RmpyZ1M2Sko0QXlsMW52QjZqV3ZKMEtoWXV0VFZFTTRzNTVEY2Nrb2NTX05FMWtxS2FRZE5fRjZ1X3E2WkJ2cjFGbUQ1V1FoXzhZWDZ5WGFRNG5LaTlfcXlCZ3pkRUZ5RDJNa0ZFS0VRZXBuQXdJQU5lY1hKZ1kzNWhWY0Z5NDNWblMtTk5KaEUzZy1KaVJMbl9CdWNoTlF1b09BZmZlWUEt0gGHAkFVX3lxTFBCeENKcEJqU1c0YWdSenItQ1d0NkQ1NG9Ya3c4UmNVUlJGLW5fdG5sS2JlNEZjN1JmN0JlRmZRRWFjZFJBT25FeHZIN094NjdMVG5aQ2h5Yk1Ed1o5OVVwLXZpR1IzTHczOUpEWG9PNDVnRDdXbXEwbFJfbmdqNXdyZU5XNFJvb2F3OE5CYTNMOXFFeHJlWi1nMTJCYVBrWEU0WUc4RDBXSUxpN2FQTUdYSGRFNnlHOHdMUnI2SEJvNjEyMFZkM3pfcUNIb2c3WDlua1BZWTVobnl6LVZVYUg1UERPbDhETWQydWxxZjVFYTJTUnYtWEZxc3VCQTl1LXM0S2tjbkJr?oc=5"
+---
+
+'Massive turnout at Ramlila Maidan,' says Congress; Rahul reiterates, 'Gyanesh will go to jail' | HIGHLIGHTS The Hindu "Who Will Compensate?" Traders Claim Rs 11,000 Crore Loss Due To INDIA Bloc Rally NDTV Kiren Rijiju jibes at Congress over INDIA bloc's Ramlila rally crowd photo, calls it 'AI-generated' The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMigAJBVV95cUxPLTZLLUNHUGpmZDUyNEF5TUhvM1J5QVdmdmtEZHNkbWJBRHNHeVo4YUFZMm82WlkzaFJYMXp4TFgzRWIzZFdYMFMtYzNWU1llWWJHVDJBYWFFZVRfSGk2RmpyZ1M2Sko0QXlsMW52QjZqV3ZKMEtoWXV0VFZFTTRzNTVEY2Nrb2NTX05FMWtxS2FRZE5fRjZ1X3E2WkJ2cjFGbUQ1V1FoXzhZWDZ5WGFRNG5LaTlfcXlCZ3pkRUZ5RDJNa0ZFS0VRZXBuQXdJQU5lY1hKZ1kzNWhWY0Z5NDNWblMtTk5KaEUzZy1KaVJMbl9CdWNoTlF1b09BZmZlWUEt0gGHAkFVX3lxTFBCeENKcEJqU1c0YWdSenItQ1d0NkQ1NG9Ya3c4UmNVUlJGLW5fdG5sS2JlNEZjN1JmN0JlRmZRRWFjZFJBT25FeHZIN094NjdMVG5aQ2h5Yk1Ed1o5OVVwLXZpR1IzTHczOUpEWG9PNDVnRDdXbXEwbFJfbmdqNXdyZU5XNFJvb2F3OE5CYTNMOXFFeHJlWi1nMTJCYVBrWEU0WUc4RDBXSUxpN2FQTUdYSGRFNnlHOHdMUnI2SEJvNjEyMFZkM3pfcUNIb2c3WDlua1BZWTVobnl6LVZVYUg1UERPbDhETWQydWxxZjVFYTJTUnYtWEZxc3VCQTl1LXM0S2tjbkJr?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

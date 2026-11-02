@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Ajay Devgn sports salt-and-pepper hair as an Army officer in Chauhaan, see first look - Mid-Day"
+date: 2026-11-02 07:33:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxNTUxGZ1FtN1RXT3Mtd2FMME9SMXBkTm9Rc1VnRkdfZzZHakdXTnZYYnBLYU5NTGd6SWtRRWhpaUc1dkp0OFdBeEtZdWNmTkhFOXR6Z1lmNjk4aGVaSWk0WEpDbjI4cWpuNndjeXBqYWZhcXo1TllCRmJmNjk0ZnNlYjJMTEZYZzhMbllZdWpIV3duRktaTTJOQ1pDcUZia3FJSkJVaEdqS1k2dHVRX05VYkFZb0lZd3E4cVlVd3hHUTR2SEF4aWRaSTFEZ3fSAdIBQVVfeXFMTVFsZGh0dE9SaW43LVBkVTNIYmY3Wjl4M3hwa09kY2xGZzMzT2xFVXplUkoyVENOaE1ZTXF0cWNtWEw5T3N4RFNzaUJYRDFpajV6dThCWnVLcHVGc2xNNTd5ajZEbzVEZWIxSDdjby0xcUVMRTBwOEdLbFl5UjhaWXVNaEhfdU1nclVvU21UMG02UVlDcC1RYTg0Z1VYRnIxMDEzdzRDSEotWE9qeHVhTzgzN25LRFN2aEEwMFRlQXpqQ25VWXc4d2hEYkFsM3NwcVpB?oc=5"
+---
+
+Ajay Devgn sports salt-and-pepper hair as an Army officer in Chauhaan, see first look Mid-Day
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxNTUxGZ1FtN1RXT3Mtd2FMME9SMXBkTm9Rc1VnRkdfZzZHakdXTnZYYnBLYU5NTGd6SWtRRWhpaUc1dkp0OFdBeEtZdWNmTkhFOXR6Z1lmNjk4aGVaSWk0WEpDbjI4cWpuNndjeXBqYWZhcXo1TllCRmJmNjk0ZnNlYjJMTEZYZzhMbllZdWpIV3duRktaTTJOQ1pDcUZia3FJSkJVaEdqS1k2dHVRX05VYkFZb0lZd3E4cVlVd3hHUTR2SEF4aWRaSTFEZ3fSAdIBQVVfeXFMTVFsZGh0dE9SaW43LVBkVTNIYmY3Wjl4M3hwa09kY2xGZzMzT2xFVXplUkoyVENOaE1ZTXF0cWNtWEw5T3N4RFNzaUJYRDFpajV6dThCWnVLcHVGc2xNNTd5ajZEbzVEZWIxSDdjby0xcUVMRTBwOEdLbFl5UjhaWXVNaEhfdU1nclVvU21UMG02UVlDcC1RYTg0Z1VYRnIxMDEzdzRDSEotWE9qeHVhTzgzN25LRFN2aEEwMFRlQXpqQ25VWXc4d2hEYkFsM3NwcVpB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

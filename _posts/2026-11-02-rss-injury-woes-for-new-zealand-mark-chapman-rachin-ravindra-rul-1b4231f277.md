@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Injury woes for New Zealand! Mark Chapman, Rachin Ravindra ruled out of India ODIs - Rediff"
+date: 2026-11-02 08:35:02 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi3AFBVV95cUxOc3lYRm9HR1dvX2Zpc21nTGJJZ241TUd6cFhmQ05GUGhaUFlSeFY1WWlScWptYnZfUlh0LWpRU2g4LWtDRFZZM1U4Q3A1UDNUM0ZXa2FTTVk0RlJFVDEyUzloWnRMZWo0NkR2MnBaUklYelVSYVJQZGE4T1J5T3pvX0YydUpXX2dFY05nX0Q3MHBmS0NTNFQ0ZElEWURiSFF4SFJvSWhUdzdBd1JzZml2THczT3hvZkhZS0NBMUM5a253RHVZYWZQRGo5ZFpaOUJsTWJzdS1DMjE1S1VV0gHfAUFVX3lxTFAxSmFIMnlWSlIyeVhHVXBaejZuYW1IS3dmVmNWeHQwR0ltN3NaSzU0TnlWcG93OXp2a1NVRWVOYk5heHZQSFlQQlhxbU9rZ2pjQ1EySnptTzhMSlRUenlvYmdDMzVWRXluRFRzSk9lb0VZMnh3TVloNXF1YUUxcVgxZjZ5V0R2YngzbmF3LWxaZUVMbC1Ob2ZvOGNyZVZMMVJzTUJBS3Z1R3MxUkpVRFgydDZjdGZJdHhIbTdEcGt3dGdXc0lPOFdybzAwRm9FMjBRWGtiZndBc1pxZGJtOXc?oc=5"
+---
+
+Injury woes for New Zealand! Mark Chapman, Rachin Ravindra ruled out of India ODIs Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3AFBVV95cUxOc3lYRm9HR1dvX2Zpc21nTGJJZ241TUd6cFhmQ05GUGhaUFlSeFY1WWlScWptYnZfUlh0LWpRU2g4LWtDRFZZM1U4Q3A1UDNUM0ZXa2FTTVk0RlJFVDEyUzloWnRMZWo0NkR2MnBaUklYelVSYVJQZGE4T1J5T3pvX0YydUpXX2dFY05nX0Q3MHBmS0NTNFQ0ZElEWURiSFF4SFJvSWhUdzdBd1JzZml2THczT3hvZkhZS0NBMUM5a253RHVZYWZQRGo5ZFpaOUJsTWJzdS1DMjE1S1VV0gHfAUFVX3lxTFAxSmFIMnlWSlIyeVhHVXBaejZuYW1IS3dmVmNWeHQwR0ltN3NaSzU0TnlWcG93OXp2a1NVRWVOYk5heHZQSFlQQlhxbU9rZ2pjQ1EySnptTzhMSlRUenlvYmdDMzVWRXluRFRzSk9lb0VZMnh3TVloNXF1YUUxcVgxZjZ5V0R2YngzbmF3LWxaZUVMbC1Ob2ZvOGNyZVZMMVJzTUJBS3Z1R3MxUkpVRFgydDZjdGZJdHhIbTdEcGt3dGdXc0lPOFdybzAwRm9FMjBRWGtiZndBc1pxZGJtOXc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Even as unemployment falls, lack of ‘decent work’ in India - The Hindu"
+date: 2026-11-02 00:27:29 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxOTTAzb1VTSU1YQWg2YTM4eWdtVTdTbkpHRXEyd0kxX0NRWm8yUzladHRzVE5VUFBydjBxY1NKS1l3SWFpb2lFRmcxRTZnUXltZXR0TXUydFhlSHVlVXBzUkIzazRWdVlMcUd4VXBxdTVDTG1tWTB4QVoxZTdOc3VZRVBRd1pUU1pVSGR3Y1dXVjE0T2lzQXRLYzV4WUw5U0p5TGQ0WkpnR3RkTVlQSl94MmdnTdIBugFBVV95cUxQM3lqMUNsU201XzF2aUtEbXZXNUlmRzJ1NkI1Y1MwTVI5dHJDcW16RDRLUmZXQnlWRzNVeVhtUXhmSWZRYm95Z1d2Z3RTbGRLa0FHZjNCeU1XZmhsaXFQSnpMX09WUU1uQ0NDSFJrckJMOGFRYlFiQzI3LWp1UUxDOWhSZFZ1Slh6b2dzcnlJLThNU1dleXVEZVQxX3N3RnBqUDd4VkxOelpQZHpLcWRaOHExUHo2X1d3aGc?oc=5"
+---
+
+Even as unemployment falls, lack of ‘decent work’ in India The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxOTTAzb1VTSU1YQWg2YTM4eWdtVTdTbkpHRXEyd0kxX0NRWm8yUzladHRzVE5VUFBydjBxY1NKS1l3SWFpb2lFRmcxRTZnUXltZXR0TXUydFhlSHVlVXBzUkIzazRWdVlMcUd4VXBxdTVDTG1tWTB4QVoxZTdOc3VZRVBRd1pUU1pVSGR3Y1dXVjE0T2lzQXRLYzV4WUw5U0p5TGQ0WkpnR3RkTVlQSl94MmdnTdIBugFBVV95cUxQM3lqMUNsU201XzF2aUtEbXZXNUlmRzJ1NkI1Y1MwTVI5dHJDcW16RDRLUmZXQnlWRzNVeVhtUXhmSWZRYm95Z1d2Z3RTbGRLa0FHZjNCeU1XZmhsaXFQSnpMX09WUU1uQ0NDSFJrckJMOGFRYlFiQzI3LWp1UUxDOWhSZFZ1Slh6b2dzcnlJLThNU1dleXVEZVQxX3N3RnBqUDd4VkxOelpQZHpLcWRaOHExUHo2X1d3aGc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

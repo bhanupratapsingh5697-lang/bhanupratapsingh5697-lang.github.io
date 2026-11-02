@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India's semiconductor sector needs a robust ancillary ecosystem - The New Indian Express"
+date: 2026-11-01 11:55:30 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxPX1l4eW9acjlMSGtaVlhWTjk4dWJjekFDQzFadlhYYTcwa3YySU1tcm9VQWtEQUhtTWlPN1hSQ1Ayd295M0cyY1RvRTZRZzdXOTJEQmlObnBwNkVHNjktMVVCdXFvRzBmYUc2NzZvMzJFa2pfTjgwRmU1alJ4V01DRW53SVR4dXR0cDNwQXFMWjVtektrQTRPNFFSdjJLN0VPaDNhZE0yQnYzZlo1Q1RDV3RBTUJWOXfSAcQBQVVfeXFMT2JQUTc2RUo2OGRldHNwcVJnMEl3TjZCdnB3SlNJSDZGOUdobWhfTGI3WDl2dy1TTXpTeDliUkwwa1dlaUJua05Bakw4WGtDY1dtUDZuTkdzRXZLWGI4T19CQWhwMmwxSGFRd2pzSURXREdZNmZHUWhHdW1PTzljdTZ2Z204anU1Skx6eWktSHNSSllqaTEzZ1E2MmQ3Wkk5a2Fxc1BISHNWUVBVekt4ampPU0pGVFptWGZXdWt4LXVzR1UzbQ?oc=5"
+---
+
+India's semiconductor sector needs a robust ancillary ecosystem The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxPX1l4eW9acjlMSGtaVlhWTjk4dWJjekFDQzFadlhYYTcwa3YySU1tcm9VQWtEQUhtTWlPN1hSQ1Ayd295M0cyY1RvRTZRZzdXOTJEQmlObnBwNkVHNjktMVVCdXFvRzBmYUc2NzZvMzJFa2pfTjgwRmU1alJ4V01DRW53SVR4dXR0cDNwQXFMWjVtektrQTRPNFFSdjJLN0VPaDNhZE0yQnYzZlo1Q1RDV3RBTUJWOXfSAcQBQVVfeXFMT2JQUTc2RUo2OGRldHNwcVJnMEl3TjZCdnB3SlNJSDZGOUdobWhfTGI3WDl2dy1TTXpTeDliUkwwa1dlaUJua05Bakw4WGtDY1dtUDZuTkdzRXZLWGI4T19CQWhwMmwxSGFRd2pzSURXREdZNmZHUWhHdW1PTzljdTZ2Z204anU1Skx6eWktSHNSSllqaTEzZ1E2MmQ3Wkk5a2Fxc1BISHNWUVBVekt4ampPU0pGVFptWGZXdWt4LXVzR1UzbQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
