@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Can't Even Fake It Right\": Kiren Rijiju's Swipe At Congress' AI Crowd Post - NDTV"
+date: 2026-11-02 09:15:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxPQWp1R25xRXNpUHBlTFdhMWx2YzVraXRoa0ZTTEJFX0tSZzU5am9aZU5IYWliTDhBbi13OTltcTFXNmtNY21WX2NSVjdRQnFnd29UVzh5R0VSN3JyUVMySEJ0NEo2dG5aZnVoRVZGdWpGU2F0MTNpM0FxU19ybmV2cDJSV2djSTJlbmxldTNBdnZSSHlRRDRXM0xYTHlodzZrbTBIb1VORDlSSlRhRWYteUZnNGNIV3huODVBaURJSWM3Z2FWb1BZWU9nNTYzZDJlMERZS08tVlJ5QdIB4gFBVV95cUxOeS0ybzN6MU5PaUVTSWpmUGxnLWhJb0syMjcwTW1FMUpiN2dwNkQ5TWk5cDZjSERhallFZm03akhqVy1XVmdENlZVa0RpVFczLWtBZnpUaEdTQzhwM2FWTnVtYXhhamltWl9HazhhX0V1OVJtemRGY1Nvcmt1cjhKSFgzRkUxYnBMRXRvXzlEcUFTRnFEVUhDR3RCWkNlWW13aUpiOE5MbV9qTzlxdGV4dnV3MUYzNVBham1jWWkxdGkwbHVTWmMxSDNMdmdOa1kyVktNRDNVRTV5eTROSXVsaDBR?oc=5"
+---
+
+'Can't Even Fake It Right": Kiren Rijiju's Swipe At Congress' AI Crowd Post NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPQWp1R25xRXNpUHBlTFdhMWx2YzVraXRoa0ZTTEJFX0tSZzU5am9aZU5IYWliTDhBbi13OTltcTFXNmtNY21WX2NSVjdRQnFnd29UVzh5R0VSN3JyUVMySEJ0NEo2dG5aZnVoRVZGdWpGU2F0MTNpM0FxU19ybmV2cDJSV2djSTJlbmxldTNBdnZSSHlRRDRXM0xYTHlodzZrbTBIb1VORDlSSlRhRWYteUZnNGNIV3huODVBaURJSWM3Z2FWb1BZWU9nNTYzZDJlMERZS08tVlJ5QdIB4gFBVV95cUxOeS0ybzN6MU5PaUVTSWpmUGxnLWhJb0syMjcwTW1FMUpiN2dwNkQ5TWk5cDZjSERhallFZm03akhqVy1XVmdENlZVa0RpVFczLWtBZnpUaEdTQzhwM2FWTnVtYXhhamltWl9HazhhX0V1OVJtemRGY1Nvcmt1cjhKSFgzRkUxYnBMRXRvXzlEcUFTRnFEVUhDR3RCWkNlWW13aUpiOE5MbV9qTzlxdGV4dnV3MUYzNVBham1jWWkxdGkwbHVTWmMxSDNMdmdOa1kyVktNRDNVRTV5eTROSXVsaDBR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

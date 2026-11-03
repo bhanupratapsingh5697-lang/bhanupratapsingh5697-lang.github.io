@@ -1,0 +1,17 @@
+---
+layout: post
+title: "‘Not a monopoly’: Supreme Court tells Rajasthan poll body to reconsider voter campaign plea - The Indian Express"
+date: 2026-11-02 21:26:58 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwAFBVV95cUxOV19UemJvQThzdXVIZFJRMl95aC1saXBhVW1UdFN0Tzk2RXpjRG8xUm1SNEQ4alRTQTc3aW1mYjZ3dF90OGx6YlJuNEsxZ2cyUXpPYVdxeUQ0SWhFT01DMk0yZTBsU1VYLXQ0b1F2bTBGMW4xd2p4UGh1MUZJQnA0d1I2TEpGUHFJQTdrQ3NLRDdSenVSVUhOTVZjRUZQeVFvaVVwelV4TEd4SG5PT285clVSR1QxWHg3NklfMXRGbi3SAccBQVVfeXFMTTU4MnpuMGpJT2JmSkVYbmFaSVI1LVJxOFhpT0FFSWlFcFRRcTRVbWNCRnNydy1LcFkzMHczeDFhZVBQLU9lU3NpOV8td04zU0daTUZkX0RKWTM5cG1iUFJSN0p0NGQxWlhiZ1V5UUxvSnp2N0RXNTI2RDdSVVFGRDAzM2p6YXk5OEhtd2dMWGoyVTc5bW95QlJoc1M3NjQ2ZEZqVFVYcHUzbjU3QXJPUHk5ZExmQmV1cWRGdEFIUm85WU5YM0hVaw?oc=5"
+---
+
+‘Not a monopoly’: Supreme Court tells Rajasthan poll body to reconsider voter campaign plea The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOV19UemJvQThzdXVIZFJRMl95aC1saXBhVW1UdFN0Tzk2RXpjRG8xUm1SNEQ4alRTQTc3aW1mYjZ3dF90OGx6YlJuNEsxZ2cyUXpPYVdxeUQ0SWhFT01DMk0yZTBsU1VYLXQ0b1F2bTBGMW4xd2p4UGh1MUZJQnA0d1I2TEpGUHFJQTdrQ3NLRDdSenVSVUhOTVZjRUZQeVFvaVVwelV4TEd4SG5PT285clVSR1QxWHg3NklfMXRGbi3SAccBQVVfeXFMTTU4MnpuMGpJT2JmSkVYbmFaSVI1LVJxOFhpT0FFSWlFcFRRcTRVbWNCRnNydy1LcFkzMHczeDFhZVBQLU9lU3NpOV8td04zU0daTUZkX0RKWTM5cG1iUFJSN0p0NGQxWlhiZ1V5UUxvSnp2N0RXNTI2RDdSVVFGRDAzM2p6YXk5OEhtd2dMWGoyVTc5bW95QlJoc1M3NjQ2ZEZqVFVYcHUzbjU3QXJPUHk5ZExmQmV1cWRGdEFIUm85WU5YM0hVaw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

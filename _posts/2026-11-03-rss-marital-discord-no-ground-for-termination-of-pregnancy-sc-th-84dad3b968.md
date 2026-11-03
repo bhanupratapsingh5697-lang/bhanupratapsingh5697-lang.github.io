@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Marital discord no ground for termination of pregnancy: SC - The Times of India"
+date: 2026-11-03 04:52:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxNa21jd2J6U1ZZY2x3U1hfeVgyWHY1aGNvMGRoMTMzQkVxUXF6U05HLVNhRXozZFZHZVotbEtfelZvb2ZyXzB6d2N2blhiWFFWRDVqWHY3WkxaNHFBMXUwS1AzUFBnN1ppa01LZlN0cDM3QnRCVzg5ZVo4bmRCWEJMNFVUWlZtVFpld19yVGppczMteFNpNVFOV0JDWDJUY2hQZ2FLbnVoWXZLWEk3NXBnZ2ZSMFRZM01McmkwYmpNbjAtNjTSAcgBQVVfeXFMTUVCSmJvZFR3Wm1RMmxXZlhYZTMyZ0xleEkxaURCa01hWTdnNHFNVXhyZ09VdXdCdHIwSWZWMTh2R3BSRm9nXzNESjZ6WnNKVHNySmxiM0M5OWwwQnFKSk5reU00NVc3R0VrR0QzWnNXblB5N1VidkNpQjhoWlFaLTlCMzlBZDF5TVpTYU5XNERjM1RMelFUY1N3QjhwMnZKV0xDZ2IyXzhMLTlvQzczR003QUdaV3liMEZrRHlkRXB0ekMwdjc3N3o?oc=5"
+---
+
+Marital discord no ground for termination of pregnancy: SC The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNa21jd2J6U1ZZY2x3U1hfeVgyWHY1aGNvMGRoMTMzQkVxUXF6U05HLVNhRXozZFZHZVotbEtfelZvb2ZyXzB6d2N2blhiWFFWRDVqWHY3WkxaNHFBMXUwS1AzUFBnN1ppa01LZlN0cDM3QnRCVzg5ZVo4bmRCWEJMNFVUWlZtVFpld19yVGppczMteFNpNVFOV0JDWDJUY2hQZ2FLbnVoWXZLWEk3NXBnZ2ZSMFRZM01McmkwYmpNbjAtNjTSAcgBQVVfeXFMTUVCSmJvZFR3Wm1RMmxXZlhYZTMyZ0xleEkxaURCa01hWTdnNHFNVXhyZ09VdXdCdHIwSWZWMTh2R3BSRm9nXzNESjZ6WnNKVHNySmxiM0M5OWwwQnFKSk5reU00NVc3R0VrR0QzWnNXblB5N1VidkNpQjhoWlFaLTlCMzlBZDF5TVpTYU5XNERjM1RMelFUY1N3QjhwMnZKV0xDZ2IyXzhMLTlvQzczR003QUdaV3liMEZrRHlkRXB0ekMwdjc3N3o?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

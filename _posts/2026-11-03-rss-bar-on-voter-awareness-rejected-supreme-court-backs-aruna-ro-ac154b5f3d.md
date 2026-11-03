@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Bar on voter awareness rejected, Supreme Court backs Aruna Roy campaign in Rajasthan - Telegraph India"
+date: 2026-11-03 04:57:49 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxQYVA2QlhpY2pVS09LR29OWWtuVHFyVjl5b1laWVNHdkRuWnF2YVpYTExsRnFDRkFSR0x3d2luYzUzY2hCc2wzd1ZpQnZqanRKX3FTb1FzTzREZzNmX2JMZTlDX3lhUm9XR2F0UGFzVTlFbTJ3Yllhd1NsalYxcjh0UDM2SjhmSmdIR3Y5aFVwX09BenZSeVJtV3JmUG5WdVNRenFVZW11aUFNWTJ0RmhPd1dIaHNYVkxqSmF4YWNTampZYWJwZzhNOFRmb2NEUnN1LXZUZXlQTDTSAd4BQVVfeXFMTl9VOW5HaDZ4WVlmOW94STd1WGwwbEJmejNlR2hILTBCaDdhVnJiRWVQRVFqSzV2S0l0TmVPN1lhTmt6X0dIS0RDNldrdXVUVXhpcnl2X2xTS1BiRnlMa0VUcGRiNGxGdFVONWZWQ2RVdHJIeVdaUktiRGpNVHVPODlQVDdTaHloU0FrZ0pybURPZHZhb2pqWlZyRTA1SE9zdFpHRjB3bUMyWHJ2SWM2dXNDYVA5T0VsR1hOczZ6bmI3enZCUjRoaklqb0pKVjhJZDMyaVViT0I1eWk5RGFR?oc=5"
+---
+
+Bar on voter awareness rejected, Supreme Court backs Aruna Roy campaign in Rajasthan Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQYVA2QlhpY2pVS09LR29OWWtuVHFyVjl5b1laWVNHdkRuWnF2YVpYTExsRnFDRkFSR0x3d2luYzUzY2hCc2wzd1ZpQnZqanRKX3FTb1FzTzREZzNmX2JMZTlDX3lhUm9XR2F0UGFzVTlFbTJ3Yllhd1NsalYxcjh0UDM2SjhmSmdIR3Y5aFVwX09BenZSeVJtV3JmUG5WdVNRenFVZW11aUFNWTJ0RmhPd1dIaHNYVkxqSmF4YWNTampZYWJwZzhNOFRmb2NEUnN1LXZUZXlQTDTSAd4BQVVfeXFMTl9VOW5HaDZ4WVlmOW94STd1WGwwbEJmejNlR2hILTBCaDdhVnJiRWVQRVFqSzV2S0l0TmVPN1lhTmt6X0dIS0RDNldrdXVUVXhpcnl2X2xTS1BiRnlMa0VUcGRiNGxGdFVONWZWQ2RVdHJIeVdaUktiRGpNVHVPODlQVDdTaHloU0FrZ0pybURPZHZhb2pqWlZyRTA1SE9zdFpHRjB3bUMyWHJ2SWM2dXNDYVA5T0VsR1hOczZ6bmI3enZCUjRoaklqb0pKVjhJZDMyaVViT0I1eWk5RGFR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

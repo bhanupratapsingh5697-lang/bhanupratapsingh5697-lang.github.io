@@ -1,0 +1,17 @@
+---
+layout: post
+title: "15 females among 80 medical students faced anti-ragging disciplinary action in Rajasthan - Vartha Bharati"
+date: 2026-11-02 14:43:07 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxOZ285STdmcUoxeHAtbXFwZGU2ajNkMkswU25tV0lGejk3VVNSd1JMeERINmFjT2JJTGNxYVJnSzhhLU1US2FBNGczYUFUWWcxeW9oc1dLMjNCQ1REUFU3eGdrTF9KckFqVHV3bzRWV3dNVWtTdUxiYnNmaEVneTlzenBzTDZxZjZQeE9lcF90YUQwN3psMWpuOTJ2TElTbXlIR1JGX01KU0dnNmFUcDRScXpsN25zYndyQWMxeFJOZGVaZHNBX253S1NWUXFNa0lh0gHWAUFVX3lxTE5YbUNZckFSakRwbS0wNWo2V0tMakRTOUZKSXlESmprcVhIS0ZwVXJGR3pXcU9uMEZGb2xsLWRTY2phbWRyQ2k2WkkxTHV4V1dUTVhyOFN2WlRIaXpvbnhBQzNIMWRiQTgzTFhqNnBYWjdnWGZoM0t0X04ydXBXcFNzVHhqRks4ZVhxT1BuSS1TUm9VdUtiTS1kalVGYzBFUWtFcy1oOC1ra0dtLVRjX2ZzVEY0T2REeF96OWpsemxHbXpHMk42d29MNGs0ZjNSTFJydThod0E?oc=5"
+---
+
+15 females among 80 medical students faced anti-ragging disciplinary action in Rajasthan Vartha Bharati
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOZ285STdmcUoxeHAtbXFwZGU2ajNkMkswU25tV0lGejk3VVNSd1JMeERINmFjT2JJTGNxYVJnSzhhLU1US2FBNGczYUFUWWcxeW9oc1dLMjNCQ1REUFU3eGdrTF9KckFqVHV3bzRWV3dNVWtTdUxiYnNmaEVneTlzenBzTDZxZjZQeE9lcF90YUQwN3psMWpuOTJ2TElTbXlIR1JGX01KU0dnNmFUcDRScXpsN25zYndyQWMxeFJOZGVaZHNBX253S1NWUXFNa0lh0gHWAUFVX3lxTE5YbUNZckFSakRwbS0wNWo2V0tMakRTOUZKSXlESmprcVhIS0ZwVXJGR3pXcU9uMEZGb2xsLWRTY2phbWRyQ2k2WkkxTHV4V1dUTVhyOFN2WlRIaXpvbnhBQzNIMWRiQTgzTFhqNnBYWjdnWGZoM0t0X04ydXBXcFNzVHhqRks4ZVhxT1BuSS1TUm9VdUtiTS1kalVGYzBFUWtFcy1oOC1ra0dtLVRjX2ZzVEY0T2REeF96OWpsemxHbXpHMk42d29MNGs0ZjNSTFJydThod0E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

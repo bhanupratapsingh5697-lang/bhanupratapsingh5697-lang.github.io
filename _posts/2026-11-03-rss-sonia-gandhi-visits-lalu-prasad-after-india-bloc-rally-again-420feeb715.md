@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sonia Gandhi visits Lalu Prasad after INDIA bloc rally against vote theft in Delhi - Telegraph India"
+date: 2026-11-03 04:48:55 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxNWkhVT3hpZW5MZUJ0SnZ5UENXeGlZQjB6Tm5mQzEtUEtYREN4UTNQMTE2LWJtWUhEeGtuT1d1cDB3R1NWb3JyOFNya3drLUdBd2hWSVRyYlNBQWd5T1ctOEtHdTlpMjlGbVVvbVoxd0hZUlB2bkdTVVhaS1UtTjA5dC00bVA0TEVUTWFETUFPZUZUazktZlZUWmpCVlBPdFd6QVd5X0dvTzdBcEh1WHlwLUJwUFlNMWdONTV6OTB6dXhuSHNubE9ETUVzUWJnY1pi0gHWAUFVX3lxTE9HdUhvWlZ0R3AtZU9uRFd2U0JRaGczOVBXcVFjR2diZGVEdUlLWUJxQURBWjFJRkZFSUVzVV9jSzc2bXRGam5aSXIyODU2VW5tQ0hNak90YjlUZGVNaE1CSHBUbEhUWlljUWd6T0tnbGNZNEtyd1VtOVFmYXNpbzZOdklua0dTM1dGMi05RGEwRDdneEtsclNzcDQwalpVNkt0UnNoMndiWVFyYjNlY0ZNTXAtbzBNWGhyMms5c2ozNHE1N3RpQksyekZ4RlQ5M2pfeTRpVWc?oc=5"
+---
+
+Sonia Gandhi visits Lalu Prasad after INDIA bloc rally against vote theft in Delhi Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNWkhVT3hpZW5MZUJ0SnZ5UENXeGlZQjB6Tm5mQzEtUEtYREN4UTNQMTE2LWJtWUhEeGtuT1d1cDB3R1NWb3JyOFNya3drLUdBd2hWSVRyYlNBQWd5T1ctOEtHdTlpMjlGbVVvbVoxd0hZUlB2bkdTVVhaS1UtTjA5dC00bVA0TEVUTWFETUFPZUZUazktZlZUWmpCVlBPdFd6QVd5X0dvTzdBcEh1WHlwLUJwUFlNMWdONTV6OTB6dXhuSHNubE9ETUVzUWJnY1pi0gHWAUFVX3lxTE9HdUhvWlZ0R3AtZU9uRFd2U0JRaGczOVBXcVFjR2diZGVEdUlLWUJxQURBWjFJRkZFSUVzVV9jSzc2bXRGam5aSXIyODU2VW5tQ0hNak90YjlUZGVNaE1CSHBUbEhUWlljUWd6T0tnbGNZNEtyd1VtOVFmYXNpbzZOdklua0dTM1dGMi05RGEwRDdneEtsclNzcDQwalpVNkt0UnNoMndiWVFyYjNlY0ZNTXAtbzBNWGhyMms5c2ozNHE1N3RpQksyekZ4RlQ5M2pfeTRpVWc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

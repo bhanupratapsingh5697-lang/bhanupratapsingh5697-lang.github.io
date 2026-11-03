@@ -1,0 +1,17 @@
+---
+layout: post
+title: "CM Revanth Seeks Lasting Khelo India Sports Facilities - Deccan Chronicle"
+date: 2026-11-03 00:11:41 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxOQW9KOHR1VlpaVDVrQ1d2andHdk4yR082TS1qelQ4NkxEZTRpTW5jSF90X1NsSHpDbENWZFpFaTM5eGlNVFBTN2VXTTFPeENxbThYOGg4aU9ZYk82MVI3c0JMdnJfTnpYSExJLU5jbjRYS2FfVFVWMXlidGNmU1YydzN6el94akZ1R0dNQVVuSVc2dzZWWFBnOG11eG14Z2JnSWgyQlczWHY5N1dQRDNSSjBId3E1MC1XdWVzT9IBwgFBVV95cUxNQzlaTE5XaUpVZTBPUGJ6OEFsdC1mNGRNbm11ZGlXek1PSTRRSlVuRzMxUmh2NW8zNFU2UWotek0tTW9kdWpnZ2VzYkRIZk11NjUwRlNocEVjLVlWbkVUamRneUJ3Sl9wY1B5NjVhQmtHY0pWUl9IaXdJVTFHSWoyTnpiSm02TjhHcjBqbkFnNTR3OW85UWRScVh5clVPeVBfYWVIUVlZUWZuRkV1STBtQWp1Ri1vMkdOdnFNc0xVVnA0QQ?oc=5"
+---
+
+CM Revanth Seeks Lasting Khelo India Sports Facilities Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxOQW9KOHR1VlpaVDVrQ1d2andHdk4yR082TS1qelQ4NkxEZTRpTW5jSF90X1NsSHpDbENWZFpFaTM5eGlNVFBTN2VXTTFPeENxbThYOGg4aU9ZYk82MVI3c0JMdnJfTnpYSExJLU5jbjRYS2FfVFVWMXlidGNmU1YydzN6el94akZ1R0dNQVVuSVc2dzZWWFBnOG11eG14Z2JnSWgyQlczWHY5N1dQRDNSSjBId3E1MC1XdWVzT9IBwgFBVV95cUxNQzlaTE5XaUpVZTBPUGJ6OEFsdC1mNGRNbm11ZGlXek1PSTRRSlVuRzMxUmh2NW8zNFU2UWotek0tTW9kdWpnZ2VzYkRIZk11NjUwRlNocEVjLVlWbkVUamRneUJ3Sl9wY1B5NjVhQmtHY0pWUl9IaXdJVTFHSWoyTnpiSm02TjhHcjBqbkFnNTR3OW85UWRScVh5clVPeVBfYWVIUVlZUWZuRkV1STBtQWp1Ri1vMkdOdnFNc0xVVnA0QQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
