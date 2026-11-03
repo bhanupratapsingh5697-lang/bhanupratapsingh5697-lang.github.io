@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India’s AI future cannot depend on technology it does not own - Firstpost"
+date: 2026-11-03 12:33:53 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMirAFBVV95cUxNeml5Z2NObHRkSXNKeEljYkdfamE2cExwWW9iN21YNU16dWd0eUhwVlRLSWxMV1IySGlRVGttajFfMWp3enBxNUVRM0RqTlJGbjdQMEpSbDJfSElIQmlHdl80ZDFRTGstSk5RclY1cnJBV0p2ZHl0Y3lQVUxfMFNLcUstOUFWNXJBVFlXMmF5czRTRE5hR05lako0eVBSUl80bmRJZVpNUm1rYVpN0gGyAUFVX3lxTE8zWDVzWmw3TkFkZTh2eTUzVmlOREJzUjc3R3JReFI5QzVFX2VtODlaTDN6S3FEM2JjZVZURmpvanRaOUViTk03S3I1QWZ2Slhxbld5Zy1lZ3Z5eWYycTk3MklGX1QzT3NTelRrVU1iYVp0WktqbGtBUU1yVUpYQlBrb3lmdTNRWFZNZ2Nob2JEcVlWbFNwZTFhd19vVjR6cVAtM1VGeUlWcjZVUHF2NjZYLXc?oc=5"
+---
+
+India’s AI future cannot depend on technology it does not own Firstpost
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirAFBVV95cUxNeml5Z2NObHRkSXNKeEljYkdfamE2cExwWW9iN21YNU16dWd0eUhwVlRLSWxMV1IySGlRVGttajFfMWp3enBxNUVRM0RqTlJGbjdQMEpSbDJfSElIQmlHdl80ZDFRTGstSk5RclY1cnJBV0p2ZHl0Y3lQVUxfMFNLcUstOUFWNXJBVFlXMmF5czRTRE5hR05lako0eVBSUl80bmRJZVpNUm1rYVpN0gGyAUFVX3lxTE8zWDVzWmw3TkFkZTh2eTUzVmlOREJzUjc3R3JReFI5QzVFX2VtODlaTDN6S3FEM2JjZVZURmpvanRaOUViTk03S3I1QWZ2Slhxbld5Zy1lZ3Z5eWYycTk3MklGX1QzT3NTelRrVU1iYVp0WktqbGtBUU1yVUpYQlBrb3lmdTNRWFZNZ2Nob2JEcVlWbFNwZTFhd19vVjR6cVAtM1VGeUlWcjZVUHF2NjZYLXc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

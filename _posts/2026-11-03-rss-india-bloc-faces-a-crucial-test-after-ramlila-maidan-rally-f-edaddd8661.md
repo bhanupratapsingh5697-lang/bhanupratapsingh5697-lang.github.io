@@ -1,0 +1,17 @@
+---
+layout: post
+title: "INDIA bloc faces a crucial test after Ramlila Maidan rally - Frontline Magazine"
+date: 2026-11-03 18:47:13 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxQYmFMRTZKcFB3bVNVX2h5ZElnWURpMWtiT1g3S0daNmZlUThsLVhKbjRtMkcyWTNibGo3enRGS2U4MzVwRHV4Q1RfOW85QmZ0ZnpVcWdNaXRuN0FLZXoyNTI2blhfRkJxVVE2eGM4Ti1wczZBYmo4QlZpWXpiM3BpY2hIZ2oycWF2OGFyOTUzYXhKQ1VxcHphMDc0Q3BnMHRnN2xlMjJsOFZtN0EwenVIanFVZFZsMTVHYWZRdDIzN0dJT2c20gHLAUFVX3lxTFB3cTZDSldzR3YyMlBWZDhsX3VyMVdnMVVreHh1RVZjNFBiV2Q4RXV4NE40cERxazBVNGxvM3c3VzVIM0l0WG5URVBnSUt0ay1ncWdWamR3UTVmVjU5cDZ0bGp2QjhHZzR5S1pEVHI2MmxyQjJQTjRJaXRIRWJ6UmtReXA0bXp3ZnlYcWVsYXEyRC1DUG1XQ1gyZmpmSTZpRkd6TnZQQlpNcWtLTEJJRmRvUWxFUWpWLXdmeUd0Vk8yX2loUDJ5a3VDb2ln?oc=5"
+---
+
+INDIA bloc faces a crucial test after Ramlila Maidan rally Frontline Magazine
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxQYmFMRTZKcFB3bVNVX2h5ZElnWURpMWtiT1g3S0daNmZlUThsLVhKbjRtMkcyWTNibGo3enRGS2U4MzVwRHV4Q1RfOW85QmZ0ZnpVcWdNaXRuN0FLZXoyNTI2blhfRkJxVVE2eGM4Ti1wczZBYmo4QlZpWXpiM3BpY2hIZ2oycWF2OGFyOTUzYXhKQ1VxcHphMDc0Q3BnMHRnN2xlMjJsOFZtN0EwenVIanFVZFZsMTVHYWZRdDIzN0dJT2c20gHLAUFVX3lxTFB3cTZDSldzR3YyMlBWZDhsX3VyMVdnMVVreHh1RVZjNFBiV2Q4RXV4NE40cERxazBVNGxvM3c3VzVIM0l0WG5URVBnSUt0ay1ncWdWamR3UTVmVjU5cDZ0bGp2QjhHZzR5S1pEVHI2MmxyQjJQTjRJaXRIRWJ6UmtReXA0bXp3ZnlYcWVsYXEyRC1DUG1XQ1gyZmpmSTZpRkd6TnZQQlpNcWtLTEJJRmRvUWxFUWpWLXdmeUd0Vk8yX2loUDJ5a3VDb2ln?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

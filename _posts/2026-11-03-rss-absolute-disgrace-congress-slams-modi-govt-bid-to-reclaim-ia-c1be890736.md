@@ -1,0 +1,17 @@
+---
+layout: post
+title: "‘Absolute disgrace’: Congress slams Modi govt bid to reclaim IAF Sports Complex - The Hindu"
+date: 2026-11-03 16:30:32 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxQVUFKdVVQcnlpckRlSG1MbS1YUXFHYV9oTHVVbEdqdnJZaWYwcW1ka3hzQ01fYjRycVoySHR6cFhOeWhMY0xhWUdkWWd3eVJGdVA0eXg1dEJmRHU2Q3llRzROeGJaQWdXc0ppVjlDTWx4UkFKYmpNMlVSSlROVnIzVjZGaExvYkh0STNTQ2MyclNfNWUwNVpSNHZHcm0zQjhJUmdvdG1TcGpPNEY1RURtZ3YweDRSQmloZXhvZFdmSjByWldHZ1owZmFjZlFwQlhE0gHXAUFVX3lxTE9keDlGcTZXTExqQ203NGwyaDNsLUVadXd5ZTNFUzdJRlJyWHBHTHhqc2dRcW91WjFfbC15WkdWaml1dlZCYXpQZ2JvcWM4M3E1dGxTQXRCYXJMMW1qSG5ZUFR5RWtUSExGM0JVUjRQOFZYTDZJRDk3QlppZENoZTA3WV9nNGJPU19YUkJOY2wzSW1PdHFMNzQzV3VaMU83Nm5fLXNxcUJtcVh3b0d2eS0yOGFGTE12MUFoSHRPa0I2NERscHByTGpvaURYUmg1eUNSaWJrdkww?oc=5"
+---
+
+‘Absolute disgrace’: Congress slams Modi govt bid to reclaim IAF Sports Complex The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQVUFKdVVQcnlpckRlSG1MbS1YUXFHYV9oTHVVbEdqdnJZaWYwcW1ka3hzQ01fYjRycVoySHR6cFhOeWhMY0xhWUdkWWd3eVJGdVA0eXg1dEJmRHU2Q3llRzROeGJaQWdXc0ppVjlDTWx4UkFKYmpNMlVSSlROVnIzVjZGaExvYkh0STNTQ2MyclNfNWUwNVpSNHZHcm0zQjhJUmdvdG1TcGpPNEY1RURtZ3YweDRSQmloZXhvZFdmSjByWldHZ1owZmFjZlFwQlhE0gHXAUFVX3lxTE9keDlGcTZXTExqQ203NGwyaDNsLUVadXd5ZTNFUzdJRlJyWHBHTHhqc2dRcW91WjFfbC15WkdWaml1dlZCYXpQZ2JvcWM4M3E1dGxTQXRCYXJMMW1qSG5ZUFR5RWtUSExGM0JVUjRQOFZYTDZJRDk3QlppZENoZTA3WV9nNGJPU19YUkJOY2wzSW1PdHFMNzQzV3VaMU83Nm5fLXNxcUJtcVh3b0d2eS0yOGFGTE12MUFoSHRPa0I2NERscHByTGpvaURYUmg1eUNSaWJrdkww?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

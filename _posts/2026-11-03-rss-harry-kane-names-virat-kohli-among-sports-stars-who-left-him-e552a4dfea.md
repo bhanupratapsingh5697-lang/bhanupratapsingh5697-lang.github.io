@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Harry Kane Names Virat Kohli Among Sports Stars Who Left Him Star-Struck After Ballon d'Or Win - News18"
+date: 2026-11-03 18:21:15 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxOelBSTVZmbFVYbGJZaVdDdDN1RktKSnZkejlnRUpvYVdsbWZwdmJOcnptWlAzbGdjZkhoMGdxX3dMTDVjVkJtaVVscXdKSGU2bnB5YW1VR3pfQkFZSHpxM3J1V2NrYS1NVUFsaE5Jb2UxazBfODhPWmtxNGdyX1cxb2RHNUFOaGNlbm1MaExMazRtQ2E3TldRYlc0Snp6NE5MREpBbWMxajVobHEya2Y4dGhnZDhEOUVEbVFJMzIzaHg0UWtBRDExWUV2eUY2UmgteDVxbVZVZTh6Nk3SAeABQVVfeXFMT1N2dmgwTlIxSUxDQzVhZWhoQlFtT2dVSng4SUhVQUV5N3NENHBZSTdjRkpCZDZpSlVKbWVHV2VTNlBjT3NERC1ESll4UF85TDViTjdlSnpMODNzYms5Q3l1TnpqaGFGSGM3Z2dKdmpDcHlvamRXeWhmQTJ1MkhucUllUFB3WTRkRHFldXVYdnAxb2tIR2ctR2hZejluTWRlRjViaUdXUUJ5Sy1JZmxVM3RMalNWaVExWG9DQWJvY29LcWhWMjU3bXJfdnVvQTJaMk9DaFdpcWRiODhwQ0JLMW8?oc=5"
+---
+
+Harry Kane Names Virat Kohli Among Sports Stars Who Left Him Star-Struck After Ballon d'Or Win News18
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOelBSTVZmbFVYbGJZaVdDdDN1RktKSnZkejlnRUpvYVdsbWZwdmJOcnptWlAzbGdjZkhoMGdxX3dMTDVjVkJtaVVscXdKSGU2bnB5YW1VR3pfQkFZSHpxM3J1V2NrYS1NVUFsaE5Jb2UxazBfODhPWmtxNGdyX1cxb2RHNUFOaGNlbm1MaExMazRtQ2E3TldRYlc0Snp6NE5MREpBbWMxajVobHEya2Y4dGhnZDhEOUVEbVFJMzIzaHg0UWtBRDExWUV2eUY2UmgteDVxbVZVZTh6Nk3SAeABQVVfeXFMT1N2dmgwTlIxSUxDQzVhZWhoQlFtT2dVSng4SUhVQUV5N3NENHBZSTdjRkpCZDZpSlVKbWVHV2VTNlBjT3NERC1ESll4UF85TDViTjdlSnpMODNzYms5Q3l1TnpqaGFGSGM3Z2dKdmpDcHlvamRXeWhmQTJ1MkhucUllUFB3WTRkRHFldXVYdnAxb2tIR2ctR2hZejluTWRlRjViaUdXUUJ5Sy1JZmxVM3RMalNWaVExWG9DQWJvY29LcWhWMjU3bXJfdnVvQTJaMk9DaFdpcWRiODhwQ0JLMW8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

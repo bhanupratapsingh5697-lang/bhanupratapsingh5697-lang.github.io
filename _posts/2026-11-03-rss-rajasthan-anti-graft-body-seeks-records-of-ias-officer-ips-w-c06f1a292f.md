@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan anti-graft body seeks records of IAS officer, IPS wife who ‘bought 40 villas’ - ThePrint"
+date: 2026-11-03 17:52:44 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiuwFBVV95cUxPSkFTNXRxb2o3dy04cVFVMFplSEMtZncyUU9INzQ4ckh1ampNam1qZHpveVZPQjFJeEFYMGtZektNY2NFc2gwMWdITEF3NUl6cnlNelFFZS14c3VUVFRTcFpBV0lYTllfazR4TFJwZGw4RXJHY0xLWjY1SzhVSF91bHg0bUxha0VPeVk5T2g4UFhFVEdnOHY1SDZKNml3Qnd4VlZJTmlrVmktVmkwQjNjRGV4ZDJVWDM1V1Fj0gHAAUFVX3lxTE50X3B6MDVqUnRlQTljWFc2SVBxX0dyNFI4YTFrWlVnRW03dURHYndwNlgyTUtjUjNiWXRGVUJmSml1Z2RDZWJDLTRobkhPNlVWRjFMcE9iUDRMbExudnpDUzdBSnVLUUY0X2xhOV9BZXhVTlF0eVJsdzR0QmE3MUl6UWkwUXhHdkJJMlBka3RDYkRucEZReno5Mjlmb0pjTUoxeXhFbjdLZE0tdGJLcXNxQnRTa2M4eW5yOVNHMGhELQ?oc=5"
+---
+
+Rajasthan anti-graft body seeks records of IAS officer, IPS wife who ‘bought 40 villas’ ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPSkFTNXRxb2o3dy04cVFVMFplSEMtZncyUU9INzQ4ckh1ampNam1qZHpveVZPQjFJeEFYMGtZektNY2NFc2gwMWdITEF3NUl6cnlNelFFZS14c3VUVFRTcFpBV0lYTllfazR4TFJwZGw4RXJHY0xLWjY1SzhVSF91bHg0bUxha0VPeVk5T2g4UFhFVEdnOHY1SDZKNml3Qnd4VlZJTmlrVmktVmkwQjNjRGV4ZDJVWDM1V1Fj0gHAAUFVX3lxTE50X3B6MDVqUnRlQTljWFc2SVBxX0dyNFI4YTFrWlVnRW03dURHYndwNlgyTUtjUjNiWXRGVUJmSml1Z2RDZWJDLTRobkhPNlVWRjFMcE9iUDRMbExudnpDUzdBSnVLUUY0X2xhOV9BZXhVTlF0eVJsdzR0QmE3MUl6UWkwUXhHdkJJMlBka3RDYkRucEZReno5Mjlmb0pjTUoxeXhFbjdLZE0tdGJLcXNxQnRTa2M4eW5yOVNHMGhELQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

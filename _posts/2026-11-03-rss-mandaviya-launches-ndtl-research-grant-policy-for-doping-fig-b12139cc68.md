@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Mandaviya Launches NDTL Research Grant Policy For Doping Fight - Rediff"
+date: 2026-11-03 18:42:35 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxQZW9oaTdQdUU4TzFveUdFZWUtVHNYOG9JODJsWTB0TUdLR0IyS3k0cXBpcTR3d2R6c2Z4V3NXdVh1S2ZLVkI3clYwMnNCWlMydWZvaGtReVFpeGZRM0hEc2llTlpWYXFRTEhxcG1CWXFzY1VEUDVXd0I2aEhNX2I3VEpNZ3dVRG1URWxpTFJ1enpiMW56V2swRUJVUGlzSHotYnJ4cG9uM25sV1HSAa4BQVVfeXFMTnRQeG5VV3Rmd2pSc2NMaV9PMEFXOWlGUDRsSENiNkkySVJoNnU3MGdBbHcxRjAtQW9yWkxOdFozVXY5dDVpdEhvdkc4Q0RZbzBBcWFEdFJpMUZ3LTBaN3VRSzZDN0EzdC0xYWxYampwX1pSWXo5SGowQ2ZYZ2RGOENESnRUbXlMZ3VBQnFYOWpQclVORGFiRXZERVNRVU5DMWNvTHE3SlJTOVB5Y2N3?oc=5"
+---
+
+Mandaviya Launches NDTL Research Grant Policy For Doping Fight Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQZW9oaTdQdUU4TzFveUdFZWUtVHNYOG9JODJsWTB0TUdLR0IyS3k0cXBpcTR3d2R6c2Z4V3NXdVh1S2ZLVkI3clYwMnNCWlMydWZvaGtReVFpeGZRM0hEc2llTlpWYXFRTEhxcG1CWXFzY1VEUDVXd0I2aEhNX2I3VEpNZ3dVRG1URWxpTFJ1enpiMW56V2swRUJVUGlzSHotYnJ4cG9uM25sV1HSAa4BQVVfeXFMTnRQeG5VV3Rmd2pSc2NMaV9PMEFXOWlGUDRsSENiNkkySVJoNnU3MGdBbHcxRjAtQW9yWkxOdFozVXY5dDVpdEhvdkc4Q0RZbzBBcWFEdFJpMUZ3LTBaN3VRSzZDN0EzdC0xYWxYampwX1pSWXo5SGowQ2ZYZ2RGOENESnRUbXlMZ3VBQnFYOWpQclVORGFiRXZERVNRVU5DMWNvTHE3SlJTOVB5Y2N3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

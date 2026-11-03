@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Is AI about to destroy India’s great technology jobs machine? - Telegraph India"
+date: 2026-11-03 11:01:25 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMisAFBVV95cUxNeU9ybmFJT190OFgzV1E4a19vWktwZm5kbGxzTUJtUTJycThoY3RxY0xzM1ZuckxpeDZqcW5tVGRSekxDN0RtX2J0MjJJRGk1dDdkUFZNejFwNy1zOUxYSmlCa2F4OG5JRHZrWVJGTGxXZGxIM1R1T25vMXU1NnpodWpwQ3JZZWt2eEFJSUpOb0JPanRrSHlDRlpQNU5JNUZrVFlQMjd0Wmh2T05HUFJUYtIBtgFBVV95cUxOalpuRnpFdkpENC1BN1VPYlF0eVE3OG9VbUI0eE0xOGxFdFV3NDlTR09uek5XVE4zdUdhVXhqQVNMWXBhbkQwZW5xTTZBYmZiVnYzeTRKUk52Umk0WlpIRDhDUl9FaWpMLTFPX19LLVFkYkI0YUhqNk5WYmZtOVc4VkpMTkNnUDRxNmoyQ3hSQkQ1MlBSRzVtbTBhci1OWXE4bTdLVUZqbGJ2OVhwVUlNaVFkd0dYZw?oc=5"
+---
+
+Is AI about to destroy India’s great technology jobs machine? Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisAFBVV95cUxNeU9ybmFJT190OFgzV1E4a19vWktwZm5kbGxzTUJtUTJycThoY3RxY0xzM1ZuckxpeDZqcW5tVGRSekxDN0RtX2J0MjJJRGk1dDdkUFZNejFwNy1zOUxYSmlCa2F4OG5JRHZrWVJGTGxXZGxIM1R1T25vMXU1NnpodWpwQ3JZZWt2eEFJSUpOb0JPanRrSHlDRlpQNU5JNUZrVFlQMjd0Wmh2T05HUFJUYtIBtgFBVV95cUxOalpuRnpFdkpENC1BN1VPYlF0eVE3OG9VbUI0eE0xOGxFdFV3NDlTR09uek5XVE4zdUdhVXhqQVNMWXBhbkQwZW5xTTZBYmZiVnYzeTRKUk52Umk0WlpIRDhDUl9FaWpMLTFPX19LLVFkYkI0YUhqNk5WYmZtOVc4VkpMTkNnUDRxNmoyQ3hSQkQ1MlBSRzVtbTBhci1OWXE4bTdLVUZqbGJ2OVhwVUlNaVFkd0dYZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

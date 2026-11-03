@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India leads US, Germany in viewing sports sponsorship as audience test - Business Standard"
+date: 2026-11-03 12:51:38 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxNalZhSkdPTVI2WkJOb1U0cnh6QVdmNGR5ekJXdk05OWg2bFAzSXc0OUpuOUxrVVVkeHlHclRWTVltMloxeGo3eEY3V21RM2c1UGd4YkpUZHV6dWQ5eEFEYTI2V2hZNW9tX0dtbGtTWi1sdmFwYXNqYXpMU0gzNVRpR0ZxWVBSYnRXaUZ3WnRNdnN1NzJrTGR3bTlfYW43cEdyNzMxMlpEWURUbEoxZDJwaEg0TDFMTm4yVk1vRmw4YzdndmJaSGlBTNIBzgFBVV95cUxPYzFNZV95N3R6M3l1X1RiRU5GbEd1OUdwTGdWNmxsVGxjVjdwS1FzWWVkb2lRYzZDU01UbGgzZEhjU3doN21RbmU1c3FkRkhIZDVPUGFFWVU3VGszN2Rfdnc1RW1kT01Kb1N6bjRTYW1fNzZnRy1DTFFDeFBxM2xtak0wVnNPU0xxSU12V1JucTJzV2daWkkycEpuM2RGRkJQN1A0Zm5PbWJTUHd2WFVCbXc5WUFXMndRTkYzV280SGFjMEhrVnhQYWtkczFnQQ?oc=5"
+---
+
+India leads US, Germany in viewing sports sponsorship as audience test Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNalZhSkdPTVI2WkJOb1U0cnh6QVdmNGR5ekJXdk05OWg2bFAzSXc0OUpuOUxrVVVkeHlHclRWTVltMloxeGo3eEY3V21RM2c1UGd4YkpUZHV6dWQ5eEFEYTI2V2hZNW9tX0dtbGtTWi1sdmFwYXNqYXpMU0gzNVRpR0ZxWVBSYnRXaUZ3WnRNdnN1NzJrTGR3bTlfYW43cEdyNzMxMlpEWURUbEoxZDJwaEg0TDFMTm4yVk1vRmw4YzdndmJaSGlBTNIBzgFBVV95cUxPYzFNZV95N3R6M3l1X1RiRU5GbEd1OUdwTGdWNmxsVGxjVjdwS1FzWWVkb2lRYzZDU01UbGgzZEhjU3doN21RbmU1c3FkRkhIZDVPUGFFWVU3VGszN2Rfdnc1RW1kT01Kb1N6bjRTYW1fNzZnRy1DTFFDeFBxM2xtak0wVnNPU0xxSU12V1JucTJzV2daWkkycEpuM2RGRkJQN1A0Zm5PbWJTUHd2WFVCbXc5WUFXMndRTkYzV280SGFjMEhrVnhQYWtkczFnQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

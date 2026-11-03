@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan High Court Orders SOP, Police Training On Handling Electronic Evidence Like CCTV, Call Records - Live Law"
+date: 2026-11-03 10:05:46 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxNdUdOS0tkeXQwMTBSd2YwNUxhazZwaDZlQ0lNaEU2YzhLRHB6S0ZTNGVYeXNYN183X1NManVQak5HY2I5eWdFSmVveC1aVm9GMWJVMkY5bWVKSDl5dkRTcGRiV2JUMEoya21UME5YN2FLd250RHVabW1zZG9kbkc4OHZzdGJBY3dXNzFCOTA1WjZQMFg0VnFmOXJ2ZWhNSWVvejlYMXlpWno2OVRyV1VMcG9Db29vX0xOblBhckg0Z2w5ZHFEUjh0X21fd0VLVEtHNUHSAdcBQVVfeXFMUDdmaHpHRWg0VU9jZl9felZsNjVOU3VtVXZkXzY5dk52a2JPdXhiRHJEWDVONi1tbXFURDk4Ynd4VXhzbUZlY0lib20wM1VhSTBEd0lvcTNDeVlYZm0yOGVOWDBXa3JuREpOZ05LTEZoMnZZRnU3MjZwbFhhRGwtYUdOLWk5QU5DeVhLVmJycTNLSDBJanBQSXlrUkhXNElQWGlpdmVzRVFmYUpjVGYxWVdmdEYzRERTS3NRUHRmcktWbUlxdUVaTnlYQlVJQkx4aXVIaGViLXc?oc=5"
+---
+
+Rajasthan High Court Orders SOP, Police Training On Handling Electronic Evidence Like CCTV, Call Records Live Law
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNdUdOS0tkeXQwMTBSd2YwNUxhazZwaDZlQ0lNaEU2YzhLRHB6S0ZTNGVYeXNYN183X1NManVQak5HY2I5eWdFSmVveC1aVm9GMWJVMkY5bWVKSDl5dkRTcGRiV2JUMEoya21UME5YN2FLd250RHVabW1zZG9kbkc4OHZzdGJBY3dXNzFCOTA1WjZQMFg0VnFmOXJ2ZWhNSWVvejlYMXlpWno2OVRyV1VMcG9Db29vX0xOblBhckg0Z2w5ZHFEUjh0X21fd0VLVEtHNUHSAdcBQVVfeXFMUDdmaHpHRWg0VU9jZl9felZsNjVOU3VtVXZkXzY5dk52a2JPdXhiRHJEWDVONi1tbXFURDk4Ynd4VXhzbUZlY0lib20wM1VhSTBEd0lvcTNDeVlYZm0yOGVOWDBXa3JuREpOZ05LTEZoMnZZRnU3MjZwbFhhRGwtYUdOLWk5QU5DeVhLVmJycTNLSDBJanBQSXlrUkhXNElQWGlpdmVzRVFmYUpjVGYxWVdmdEYzRERTS3NRUHRmcktWbUlxdUVaTnlYQlVJQkx4aXVIaGViLXc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

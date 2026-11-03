@@ -1,0 +1,17 @@
+---
+layout: post
+title: "What did Bombay High Court rule in actor Imran Khan’s ‘Leave India’ notice case? | Explained - The Hindu"
+date: 2026-11-03 10:59:15 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi3gFBVV95cUxPMzVweGlXNGpNWC1HcHlLMFk5WHdCYXVMTXpFNF84M3ZZNlpzZEtXbmMzZHMwWTc5YVpQTE9aQW1LbGdMTXdoTVZIVWI1R0ExR3lYZF8wZGprRXo5ZXRGYXlscFdyLXBpQW5pdmtlRzZwdE0zbGZpUzVWY3F5SGo4cGlZS0RwMXJCU1ZRY05wYkx0eEVRZFQxMEtqVGxuZGJ5NFI4MmFUQ3NheTljS2RQV2k1S3dMa0J4dGg3eFNXMVN6ZWM4TGVLUHlSRHBEV3Z2WWtKUU9GeVlfSkh5bUHSAeQBQVVfeXFMTmJpTTNWNEV4WWVKcFlrcHZuenJfRUZtYnpSeUhab2dJMDNLYXR4WUEwLU5NdmZyUXB5eWpmTm0tMUNFMjF2R0N0cVVtbW1idjJKbUduZUhUel9FNFM4VnFweDhVT3B1VUxCNTA1cWxiTUpHcWlUNXhYVm9lOE1rUHJMTnRrenVLNUxOUmxfM0hEVmdiZXZSYnF1TWtVUWZfSFptX1d4Nkl5cG16QXhIVlNJd0NMVERvcDN2M0IyS29JOXo3Y1NrTVYxQmM4LUxtWTN2SkZUcHhlcFlIanhjdlBScDNZ?oc=5"
+---
+
+What did Bombay High Court rule in actor Imran Khan’s ‘Leave India’ notice case? | Explained The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3gFBVV95cUxPMzVweGlXNGpNWC1HcHlLMFk5WHdCYXVMTXpFNF84M3ZZNlpzZEtXbmMzZHMwWTc5YVpQTE9aQW1LbGdMTXdoTVZIVWI1R0ExR3lYZF8wZGprRXo5ZXRGYXlscFdyLXBpQW5pdmtlRzZwdE0zbGZpUzVWY3F5SGo4cGlZS0RwMXJCU1ZRY05wYkx0eEVRZFQxMEtqVGxuZGJ5NFI4MmFUQ3NheTljS2RQV2k1S3dMa0J4dGg3eFNXMVN6ZWM4TGVLUHlSRHBEV3Z2WWtKUU9GeVlfSkh5bUHSAeQBQVVfeXFMTmJpTTNWNEV4WWVKcFlrcHZuenJfRUZtYnpSeUhab2dJMDNLYXR4WUEwLU5NdmZyUXB5eWpmTm0tMUNFMjF2R0N0cVVtbW1idjJKbUduZUhUel9FNFM4VnFweDhVT3B1VUxCNTA1cWxiTUpHcWlUNXhYVm9lOE1rUHJMTnRrenVLNUxOUmxfM0hEVmdiZXZSYnF1TWtVUWZfSFptX1d4Nkl5cG16QXhIVlNJd0NMVERvcDN2M0IyS29JOXo3Y1NrTVYxQmM4LUxtWTN2SkZUcHhlcFlIanhjdlBScDNZ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

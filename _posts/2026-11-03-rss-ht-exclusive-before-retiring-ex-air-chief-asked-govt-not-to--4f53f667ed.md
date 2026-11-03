@@ -1,0 +1,17 @@
+---
+layout: post
+title: "HT exclusive: Before retiring, ex-air chief asked govt not to take over IAF’s Sports Complex | India News - Hindustan Times"
+date: 2026-11-03 05:57:06 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxQZDJycVZpWTdiXzE0U2dfRlAtYUdwWWdkVjFOTUpzSGdKRlpFRXRjOC10OUVIQ0NzRU1KSmkwSzdCQ1FZZHdWakQzWHhTQ0MyRDhtS0FLSEFXWjJTX21WRkU0bUFsRVEzNUx0b3FTWjNieEp4OTd4TEswZHZvUjRoOWRLbzh2QUJnelY5RkEtZW9rNl9xdDlxQUhTNDlQOEhJdktPVE5DQk1KRzM1dUN3UVVVUUpjbUxHdlU2aGxTZjBmcl93WFktVkZqRW9fZ2JJMnUwU0RJb9IB3AFBVV95cUxPSnkyemg3bUlGYTJOUnNQLXk4Rk9qaWNZREF2b2UtODdwdy00ZzJfdWdubG81YTAxQnhhVXd1bHZBaWkydldWWGZCWEtNbFF1MmlfS3k1TlVWWEd4MmRGRHdSSW5PZXFGZmxLMDMtN3dJYnM3MDVqSlFTZHhHQWpHMzJVQnlwZnpUWmNhX3Q1RC1pSjNtcy1faUhJbkpnSlVLQlFGc3hjdUJBLU01OFpYQkQwTFZVMmRYZ21qUkFkV3VMWF9SVmd6T2JCbzRRbzZiRzV3TmRHVWVJbFN5?oc=5"
+---
+
+HT exclusive: Before retiring, ex-air chief asked govt not to take over IAF’s Sports Complex | India News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQZDJycVZpWTdiXzE0U2dfRlAtYUdwWWdkVjFOTUpzSGdKRlpFRXRjOC10OUVIQ0NzRU1KSmkwSzdCQ1FZZHdWakQzWHhTQ0MyRDhtS0FLSEFXWjJTX21WRkU0bUFsRVEzNUx0b3FTWjNieEp4OTd4TEswZHZvUjRoOWRLbzh2QUJnelY5RkEtZW9rNl9xdDlxQUhTNDlQOEhJdktPVE5DQk1KRzM1dUN3UVVVUUpjbUxHdlU2aGxTZjBmcl93WFktVkZqRW9fZ2JJMnUwU0RJb9IB3AFBVV95cUxPSnkyemg3bUlGYTJOUnNQLXk4Rk9qaWNZREF2b2UtODdwdy00ZzJfdWdubG81YTAxQnhhVXd1bHZBaWkydldWWGZCWEtNbFF1MmlfS3k1TlVWWEd4MmRGRHdSSW5PZXFGZmxLMDMtN3dJYnM3MDVqSlFTZHhHQWpHMzJVQnlwZnpUWmNhX3Q1RC1pSjNtcy1faUhJbkpnSlVLQlFGc3hjdUJBLU01OFpYQkQwTFZVMmRYZ21qUkFkV3VMWF9SVmd6T2JCbzRRbzZiRzV3TmRHVWVJbFN5?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

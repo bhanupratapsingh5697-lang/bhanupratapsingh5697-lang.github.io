@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Polling for the third phase of panchayat elections begins - ThePrint"
+date: 2026-11-03 11:16:47 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMipAFBVV95cUxQTGQ2bmZZMTNPSTNzN0MxeFBWVFV0UXRaQ0NZWmdtOXE4UkNQU1RNQlBHMHh6akJKTmdXSTBYdWdkcUpFS3NIMl9zVTZiVHF6eHhiX3NCN1VuNkFyOE16bDVrdlNiMFc3V2R3RW5RckZURnRnM2FEZXI4cDdfZjBmMjBuRWc0QTRobEZhWXNLc2l1cUtrM0syS1kxR2xfUlBXOUhCU9IBqgFBVV95cUxQeVN4RmUxX1daWEkzQUtJRndFaHVRUEdJNWI2YkpoRk5pMkJ4Rk1lUlJqWEZ5bFBCWVZZVU42bzBNYnVURTNIQkJMLTloSkM0c1VQcVZUZVJTcEtYUEtqdno0NmNqU2VFN1RLNVQ4RFliTVVZZW5XRG0zUXMxd3Biam9JNkdGU1dhV0g5Y2dCOWZpN3V2WmF0SVVPUV9sanE1X1Rrc0JCU0pmdw?oc=5"
+---
+
+Rajasthan: Polling for the third phase of panchayat elections begins ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTGQ2bmZZMTNPSTNzN0MxeFBWVFV0UXRaQ0NZWmdtOXE4UkNQU1RNQlBHMHh6akJKTmdXSTBYdWdkcUpFS3NIMl9zVTZiVHF6eHhiX3NCN1VuNkFyOE16bDVrdlNiMFc3V2R3RW5RckZURnRnM2FEZXI4cDdfZjBmMjBuRWc0QTRobEZhWXNLc2l1cUtrM0syS1kxR2xfUlBXOUhCU9IBqgFBVV95cUxQeVN4RmUxX1daWEkzQUtJRndFaHVRUEdJNWI2YkpoRk5pMkJ4Rk1lUlJqWEZ5bFBCWVZZVU42bzBNYnVURTNIQkJMLTloSkM0c1VQcVZUZVJTcEtYUEtqdno0NmNqU2VFN1RLNVQ4RFliTVVZZW5XRG0zUXMxd3Biam9JNkdGU1dhV0g5Y2dCOWZpN3V2WmF0SVVPUV9sanE1X1Rrc0JCU0pmdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
