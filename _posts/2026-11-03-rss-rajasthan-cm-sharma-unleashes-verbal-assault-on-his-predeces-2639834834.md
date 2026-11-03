@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan CM Sharma unleashes verbal assault on his predecessor Gehlot - The Statesman"
+date: 2026-11-03 22:26:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxQVVo4bWJwMlJsT0JmYWdxU2xhVUtkdExjTGtxNER1YVdzSUx6ZVBneTNyMUp4UVBlZFkyTjVVS1VEeGZQR2I4WXh2akx2Nkhsak1VdUJ2UW1HcG1TWFlQdE15S0hIdFZGN19RM3VCTXhWekxrMm9VZG5ZQWo1ZGdsX3FWb0RYOW9wdjBXQVNYU2Z1VnB1QTMtWjJlajhGVWp6ajRVYnlQUzd1ZnB3V1lGSEQ2Y0NSdFF2MHJRVzFn0gHDAUFVX3lxTE1jWVlXNUU5VkNFSDJkQUtzLWtfWWlxM25DbXRLcW5jbTlvakt3Y3FSQkRsTVYyWnl4UEN5UzQxcTVtX3gwNE1CQ1ZUaGI3bExtR1lwSDc1ZlQzWUFnMWF4TlpHTHJiZ1RQWWR1TzVHSkRVOHBXZXRJOXpaOWFnTVhFYTUxMFFqa1BzMzBubGx4MjFXV21YQUpQdHFFM2NHWG94WGhUSl96ZnBvNFZpMExLOWdnSVJuSVNTYmVOZ1djbzh0bw?oc=5"
+---
+
+Rajasthan CM Sharma unleashes verbal assault on his predecessor Gehlot The Statesman
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxQVVo4bWJwMlJsT0JmYWdxU2xhVUtkdExjTGtxNER1YVdzSUx6ZVBneTNyMUp4UVBlZFkyTjVVS1VEeGZQR2I4WXh2akx2Nkhsak1VdUJ2UW1HcG1TWFlQdE15S0hIdFZGN19RM3VCTXhWekxrMm9VZG5ZQWo1ZGdsX3FWb0RYOW9wdjBXQVNYU2Z1VnB1QTMtWjJlajhGVWp6ajRVYnlQUzd1ZnB3V1lGSEQ2Y0NSdFF2MHJRVzFn0gHDAUFVX3lxTE1jWVlXNUU5VkNFSDJkQUtzLWtfWWlxM25DbXRLcW5jbTlvakt3Y3FSQkRsTVYyWnl4UEN5UzQxcTVtX3gwNE1CQ1ZUaGI3bExtR1lwSDc1ZlQzWUFnMWF4TlpHTHJiZ1RQWWR1TzVHSkRVOHBXZXRJOXpaOWFnTVhFYTUxMFFqa1BzMzBubGx4MjFXV21YQUpQdHFFM2NHWG94WGhUSl96ZnBvNFZpMExLOWdnSVJuSVNTYmVOZ1djbzh0bw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

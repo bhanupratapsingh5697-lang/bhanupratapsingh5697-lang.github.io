@@ -1,0 +1,17 @@
+---
+layout: post
+title: "iPhone and Mac power Apple India's September-quarter record revenue - The Times of India"
+date: 2026-11-04 03:01:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxONUI3TXVMMXpFQjdsUkZBZE5ZQjdLWDZETjc1YkNjNFBNNDJSbHJTczI0U0RqejROYi1CUWlFVVFBQTZ2TktvTnA2UU91RHdPOHpWOHVaakpORmFWcjdXREtPamg2UnFYbXFpaURwNFRMbE1vcjk3QVhmQ0YwcF9KTTgzaW9OQ2duQWJEZ3l0Nl9iUTdNZ2VZQUZoelJTMUFfX1VseVpwLTI0eW01T1VXTkE2ZUZGY3h6ZWFHOHhjMDlWTktzOENHa3pRWExHdlZGaFlV0gHYAUFVX3lxTE81aDdCeWNPd3dZaGp2VzlPdmpHOGg0UzZuLXppcTh1MWY1MHU0UlpteXZyMUJCYTc0cjNwQUFmVUtJQWlZOW1OaHM5LWh4NnFWT3UzaXE3TGV0aml3U3pPWWdiZ1RST0oteUgyQnVzUlo0eFdlUG1pSDc1Sm5OeEhXVUw5WnNMYUM5WHhfNGE1T0doSlpGQzhzTTViakR6VlRqSEp4TXc4djdTSjhhODg1NDlPQ05IX3R5cmMtZi1WbGJKTGFZN2gyek50czlWWGQzd2wtZGF0Yg?oc=5"
+---
+
+iPhone and Mac power Apple India's September-quarter record revenue The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxONUI3TXVMMXpFQjdsUkZBZE5ZQjdLWDZETjc1YkNjNFBNNDJSbHJTczI0U0RqejROYi1CUWlFVVFBQTZ2TktvTnA2UU91RHdPOHpWOHVaakpORmFWcjdXREtPamg2UnFYbXFpaURwNFRMbE1vcjk3QVhmQ0YwcF9KTTgzaW9OQ2duQWJEZ3l0Nl9iUTdNZ2VZQUZoelJTMUFfX1VseVpwLTI0eW01T1VXTkE2ZUZGY3h6ZWFHOHhjMDlWTktzOENHa3pRWExHdlZGaFlV0gHYAUFVX3lxTE81aDdCeWNPd3dZaGp2VzlPdmpHOGg0UzZuLXppcTh1MWY1MHU0UlpteXZyMUJCYTc0cjNwQUFmVUtJQWlZOW1OaHM5LWh4NnFWT3UzaXE3TGV0aml3U3pPWWdiZ1RST0oteUgyQnVzUlo0eFdlUG1pSDc1Sm5OeEhXVUw5WnNMYUM5WHhfNGE1T0doSlpGQzhzTTViakR6VlRqSEp4TXc4djdTSjhhODg1NDlPQ05IX3R5cmMtZi1WbGJKTGFZN2gyek50czlWWGQzd2wtZGF0Yg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

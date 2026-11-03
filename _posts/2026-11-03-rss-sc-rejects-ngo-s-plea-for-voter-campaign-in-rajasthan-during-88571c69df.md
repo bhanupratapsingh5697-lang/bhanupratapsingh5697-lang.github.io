@@ -1,0 +1,17 @@
+---
+layout: post
+title: "SC rejects NGO's plea for voter campaign in Rajasthan during Panchayat polls - India Today"
+date: 2026-11-03 10:54:39 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxPckYyWEdSTWdwUEE4LWhqenl0M0pvc2VJWjdyaU5KZS1jRDE1TURMRmlQc0VVWWRFRW9HbVM2NnFsTjRVZW9sckJPUVBIN0V2bWwwR2tHYndRc1FJUnhVWHFhbG1zUzM0a0pUTzRjdGRuYnZISkF3WWJpWHpwYWJ6V05uWHNxZVRxZEJmY0x4Y1Y3UVNYeXkwbkhoMTVqWnpMaXhsRFhval9OVTVZZXd5cTZEOG03d0ctdjZLa1dXMlQtNEJTV3hwS2g3N1AwaU9I0gHWAUFVX3lxTFB1X0dFTkF6YkpkNVJVVjZGYk52NWp3d2RJbnJtb2UzdUYtRUEtTkJzUWFicmEtZlF3Zm1GODdnX1lvc3dERHQ4YzZwZWxWSkU0WHM4MTMyLURCZmFaUVM2LVpJQW4yZFc3Mmd6MFhOOFVnMDRseWlfWm5vR09PMjIydzhmS01FcmdScE1DZWFMVEF0amgyWWo1Tkd0SDAtVXo5Ukt0bGtiaTI4ZzAxYzg0c2hqc3lBTWNvdzhyN3Q0LUJuSkgzWTdNcWstUzFzYTQ2S3dyemc?oc=5"
+---
+
+SC rejects NGO's plea for voter campaign in Rajasthan during Panchayat polls India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPckYyWEdSTWdwUEE4LWhqenl0M0pvc2VJWjdyaU5KZS1jRDE1TURMRmlQc0VVWWRFRW9HbVM2NnFsTjRVZW9sckJPUVBIN0V2bWwwR2tHYndRc1FJUnhVWHFhbG1zUzM0a0pUTzRjdGRuYnZISkF3WWJpWHpwYWJ6V05uWHNxZVRxZEJmY0x4Y1Y3UVNYeXkwbkhoMTVqWnpMaXhsRFhval9OVTVZZXd5cTZEOG03d0ctdjZLa1dXMlQtNEJTV3hwS2g3N1AwaU9I0gHWAUFVX3lxTFB1X0dFTkF6YkpkNVJVVjZGYk52NWp3d2RJbnJtb2UzdUYtRUEtTkJzUWFicmEtZlF3Zm1GODdnX1lvc3dERHQ4YzZwZWxWSkU0WHM4MTMyLURCZmFaUVM2LVpJQW4yZFc3Mmd6MFhOOFVnMDRseWlfWm5vR09PMjIydzhmS01FcmdScE1DZWFMVEF0amgyWWo1Tkd0SDAtVXo5Ukt0bGtiaTI4ZzAxYzg0c2hqc3lBTWNvdzhyN3Q0LUJuSkgzWTdNcWstUzFzYTQ2S3dyemc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

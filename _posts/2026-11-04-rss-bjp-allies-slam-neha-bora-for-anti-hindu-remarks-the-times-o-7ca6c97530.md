@@ -1,0 +1,17 @@
+---
+layout: post
+title: "BJP, allies slam Neha Bora for 'anti-Hindu' remarks - The Times of India"
+date: 2026-11-04 04:15:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxNMlY2bVJCZDFVVWJfZTA0LVBGaG95YWthdUdtR3hvcXk5MFlNekNkYmw1TFpuWWY4WkdId3hSOVVBWGxocFRsdDRCQ0NqVDczMndkdUpqa284X0JqTXBFUldmQnpEVkREcGFXdWZ4VDV2Smp1MkVtWmJZSXMwMl9mdDhPVmFSeWJhRkFyY3FEc25IMm1VUkVuWE5CN1F3ZmtLd193enlrRHV5LUZiWU1OWmtPQ0ZxWW_SAbwBQVVfeXFMUHRVVGRJSXV4WUxmcHR2ZVNjeDEzQTZkdmFrUlB1djAwdkRxNWRuOE04T25sUTYyRXM0ei1Sc2V4Nl91Rnh2aUlBOEFvTVZ2cV9VUHNyZnYwZGJNczJ3R3lET1pXRElHaEF4QXI5djRwZ2sxejEzRmpuUDM2WTcwakUyNU5XRENfODBHbndHWmFrMWFnNG1wTVBmVF8zaDUySzk2WnBoQTFlUzdUdW5rOXRSaHJia1lFeVluTzA?oc=5"
+---
+
+BJP, allies slam Neha Bora for 'anti-Hindu' remarks The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxNMlY2bVJCZDFVVWJfZTA0LVBGaG95YWthdUdtR3hvcXk5MFlNekNkYmw1TFpuWWY4WkdId3hSOVVBWGxocFRsdDRCQ0NqVDczMndkdUpqa284X0JqTXBFUldmQnpEVkREcGFXdWZ4VDV2Smp1MkVtWmJZSXMwMl9mdDhPVmFSeWJhRkFyY3FEc25IMm1VUkVuWE5CN1F3ZmtLd193enlrRHV5LUZiWU1OWmtPQ0ZxWW_SAbwBQVVfeXFMUHRVVGRJSXV4WUxmcHR2ZVNjeDEzQTZkdmFrUlB1djAwdkRxNWRuOE04T25sUTYyRXM0ei1Sc2V4Nl91Rnh2aUlBOEFvTVZ2cV9VUHNyZnYwZGJNczJ3R3lET1pXRElHaEF4QXI5djRwZ2sxejEzRmpuUDM2WTcwakUyNU5XRENfODBHbndHWmFrMWFnNG1wTVBmVF8zaDUySzk2WnBoQTFlUzdUdW5rOXRSaHJia1lFeVluTzA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

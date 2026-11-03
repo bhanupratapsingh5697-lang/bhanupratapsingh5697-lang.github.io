@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Supreme Court Sets Aside Rajasthan SEC Order Denying Voter Awareness Campaign Nod - Verdictum"
+date: 2026-11-02 18:00:22 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMipgFBVV95cUxNQjlUNmFWaWpBeHlPOHN2MElyNlFwNWliNFNCemswTW9wUUtoanVZRVJHNG4wXzJvb0pMUzBneU9GeDN2SGFMXzhYMmdXajJ4NXVTSUgxVVU0YVFwUTBIcHptb01rWEtvaXEzekZkOFFONFV2cmVfc0xZanc2WUEtaC1INGR2WUU1elFjQVpuOWFQWFl3ckxYemc0WDRNMzRzcUdXWV930gGrAUFVX3lxTE1sVWJHaDJZSmYxLWFXOGVvNngzdFZncy1sZVk0YjdCWlZlaEtfY25OX3FpUzEyamIxMVhEZ2dkdUJDQmp0blI2S3ozTHZncmZOSzB4b3oyZGh6alpJNGxudkp4V0t2TzQxNTRMWUVjNVo1Q2dpTUdnOTZwSFVJdjNfMG1HUFpkRmZUSUE2STlwbFNSSWZfcEZuS05UT2FsdUpFTWxoZTVQalhRTQ?oc=5"
+---
+
+Supreme Court Sets Aside Rajasthan SEC Order Denying Voter Awareness Campaign Nod Verdictum
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipgFBVV95cUxNQjlUNmFWaWpBeHlPOHN2MElyNlFwNWliNFNCemswTW9wUUtoanVZRVJHNG4wXzJvb0pMUzBneU9GeDN2SGFMXzhYMmdXajJ4NXVTSUgxVVU0YVFwUTBIcHptb01rWEtvaXEzekZkOFFONFV2cmVfc0xZanc2WUEtaC1INGR2WUU1elFjQVpuOWFQWFl3ckxYemc0WDRNMzRzcUdXWV930gGrAUFVX3lxTE1sVWJHaDJZSmYxLWFXOGVvNngzdFZncy1sZVk0YjdCWlZlaEtfY25OX3FpUzEyamIxMVhEZ2dkdUJDQmp0blI2S3ozTHZncmZOSzB4b3oyZGh6alpJNGxudkp4V0t2TzQxNTRMWUVjNVo1Q2dpTUdnOTZwSFVJdjNfMG1HUFpkRmZUSUE2STlwbFNSSWZfcEZuS05UT2FsdUpFTWxoZTVQalhRTQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

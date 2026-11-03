@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Fine Ranji performances, and why they do not guarantee an India call - The Hindu"
+date: 2026-11-04 00:30:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxPelB5ZE9JbUtCVUhyLXdWZTRPR0dpd1B3dExKUGdWMjJOX3hWNlZYQXBNWXVUWF82QlhJY3gtYko1X1BUN2FydF9vbzRBMXlYR2EyRTFfSDVocF95bk9IbXBpZWlkR1dtcThmU0FvbmEyRHg0OHZQNjdEYm92WWtuOWdSRkFnd1Q5MmdJTU5TOEVVenpscEdEUWU5clpOX2FaaVZ5dXI1ZTBqZTluRUh1NTFtR05NaXBJMHfSAcABQVVfeXFMTm9ab3JveDhPdlFlQk85VThta3VkYXgtMjRJbi1uZlpoS002YktOZUl6eTBSYnlOeldxVGF6MjUxcDI1YmlfRnctUC1PRHBPZjk5UnRvblNJWU4tT0NzUjNlRTV5SGFLLUprVzBUemxGdDh0M1Q2YUFKSExsSG5sUVNfRjZtRkVzOTN2WlFSSzBjWmg5MXV4MXNoNXFEUTcxZHU5dl9KXzN5RldWTm9ESl9iZDlvMnFjaXpqZGt4Z1Bi?oc=5"
+---
+
+Fine Ranji performances, and why they do not guarantee an India call The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxPelB5ZE9JbUtCVUhyLXdWZTRPR0dpd1B3dExKUGdWMjJOX3hWNlZYQXBNWXVUWF82QlhJY3gtYko1X1BUN2FydF9vbzRBMXlYR2EyRTFfSDVocF95bk9IbXBpZWlkR1dtcThmU0FvbmEyRHg0OHZQNjdEYm92WWtuOWdSRkFnd1Q5MmdJTU5TOEVVenpscEdEUWU5clpOX2FaaVZ5dXI1ZTBqZTluRUh1NTFtR05NaXBJMHfSAcABQVVfeXFMTm9ab3JveDhPdlFlQk85VThta3VkYXgtMjRJbi1uZlpoS002YktOZUl6eTBSYnlOeldxVGF6MjUxcDI1YmlfRnctUC1PRHBPZjk5UnRvblNJWU4tT0NzUjNlRTV5SGFLLUprVzBUemxGdDh0M1Q2YUFKSExsSG5sUVNfRjZtRkVzOTN2WlFSSzBjWmg5MXV4MXNoNXFEUTcxZHU5dl9KXzN5RldWTm9ESl9iZDlvMnFjaXpqZGt4Z1Bi?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

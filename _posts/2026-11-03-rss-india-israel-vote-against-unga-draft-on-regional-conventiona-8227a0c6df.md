@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India, Israel vote against UNGA draft on regional conventional arms control - The Hindu"
+date: 2026-11-03 11:33:01 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxNWWlpd1hmVjdLVmZ4M2tKcXB1VTBKYkM5Q19faWhVUURiUzltTVNtVDNlbER3czBKY2lpRlZ5YWtsZXQxaXphbzgyWkNValZJRmxLWHZQUUZSeS1lVGY2N2NHc1otSHlaSFZLRW5SM21La05LRXJ0TV9SVVRzMHpNQllPa0RaYTVXUTNkWTRPeTBhWjFPZ3FFd2NkanA3bkdsZ2hDenI2Rlp3R2RoUExJZnhYLTZRTDZLRjFHOGtJaGZaYW00RlFFQzRaYTFsQdIB1AFBVV95cUxNaGpfaldKb0ZaWGh1S3EyWnlaODNJazZrY0ZSMHFMMGRpYmZlcFRuRjNFN3U4ZjN3Z1VMMWlldlFhV093TVJVdEFwZDhZM2oxUnBvVnl6c3NzS2Z4TGxwWFF3aEhaUFJiWEkwYk0xNnF6aDNmS3MzU3FEa3ZDX2JGUXVLX1hLcENOdGZGQTV2X1N5VnZvNk5aem5QSU5CLVpWeVdidFhmM1BZNWliYlF5bW5sRWZjWFBKeXFlbkNYMncxcGFLUnQ0eVo1SExqclNIX3RZNA?oc=5"
+---
+
+India, Israel vote against UNGA draft on regional conventional arms control The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxNWWlpd1hmVjdLVmZ4M2tKcXB1VTBKYkM5Q19faWhVUURiUzltTVNtVDNlbER3czBKY2lpRlZ5YWtsZXQxaXphbzgyWkNValZJRmxLWHZQUUZSeS1lVGY2N2NHc1otSHlaSFZLRW5SM21La05LRXJ0TV9SVVRzMHpNQllPa0RaYTVXUTNkWTRPeTBhWjFPZ3FFd2NkanA3bkdsZ2hDenI2Rlp3R2RoUExJZnhYLTZRTDZLRjFHOGtJaGZaYW00RlFFQzRaYTFsQdIB1AFBVV95cUxNaGpfaldKb0ZaWGh1S3EyWnlaODNJazZrY0ZSMHFMMGRpYmZlcFRuRjNFN3U4ZjN3Z1VMMWlldlFhV093TVJVdEFwZDhZM2oxUnBvVnl6c3NzS2Z4TGxwWFF3aEhaUFJiWEkwYk0xNnF6aDNmS3MzU3FEa3ZDX2JGUXVLX1hLcENOdGZGQTV2X1N5VnZvNk5aem5QSU5CLVpWeVdidFhmM1BZNWliYlF5bW5sRWZjWFBKeXFlbkNYMncxcGFLUnQ0eVo1SExqclNIX3RZNA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

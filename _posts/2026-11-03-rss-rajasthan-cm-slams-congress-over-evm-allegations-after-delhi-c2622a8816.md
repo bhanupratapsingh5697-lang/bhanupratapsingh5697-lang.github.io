@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan CM Slams Congress Over EVM Allegations After Delhi Protest - Asianet Newsable"
+date: 2026-11-03 19:41:31 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxPSkxVeER1aGNLYkY4ekFBRVRrNjdnU0hzaGlJTzM4Si1hc2o5WktwZDU3dmp1U2lGZVZzTzk1NVIxRWt6V3ozc0dIUXE5UW8xUkJTZkdYZ1ZOQXZSV2t6WDF0alRIRkFYQlFob0YtUC05NFlpX00za0RqUVBJZmFyaDlrVTlZMjR4TnNSUERfeXZYeU1CZkRIU3VaTE5VU1B3c0FXTWR5enRYQmYyMEtrOWp2V2hCMjlfcjRaU2VZZTVBQlRiUXfSAcsBQVVfeXFMUGM4dU92cjdkamVJNGR1WHZhbUJNeHNOS3hodjdidFAzMVdfc3JEUTgyV1lVUzNob05qUU5KRk9KdUh0ZVNUWGtwdElDX2hIcFlXZnRGclQwMmpYQ25MM0c0U2lnWUpobTBjSzNST0k5TzZ2ZDkzaElXbDlITDc0bXF0cEpSd2w2NUtvYmlZMTlYRzVWNmFqdW5ZSndFdGlQcy1IVFU0dmZLS3plN0FnVm1xQU1GbFl5NDdwbmg4VEluNmdZRE9wYVpPeFU?oc=5"
+---
+
+Rajasthan CM Slams Congress Over EVM Allegations After Delhi Protest Asianet Newsable
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxPSkxVeER1aGNLYkY4ekFBRVRrNjdnU0hzaGlJTzM4Si1hc2o5WktwZDU3dmp1U2lGZVZzTzk1NVIxRWt6V3ozc0dIUXE5UW8xUkJTZkdYZ1ZOQXZSV2t6WDF0alRIRkFYQlFob0YtUC05NFlpX00za0RqUVBJZmFyaDlrVTlZMjR4TnNSUERfeXZYeU1CZkRIU3VaTE5VU1B3c0FXTWR5enRYQmYyMEtrOWp2V2hCMjlfcjRaU2VZZTVBQlRiUXfSAcsBQVVfeXFMUGM4dU92cjdkamVJNGR1WHZhbUJNeHNOS3hodjdidFAzMVdfc3JEUTgyV1lVUzNob05qUU5KRk9KdUh0ZVNUWGtwdElDX2hIcFlXZnRGclQwMmpYQ25MM0c0U2lnWUpobTBjSzNST0k5TzZ2ZDkzaElXbDlITDc0bXF0cEpSd2w2NUtvYmlZMTlYRzVWNmFqdW5ZSndFdGlQcy1IVFU0dmZLS3plN0FnVm1xQU1GbFl5NDdwbmg4VEluNmdZRE9wYVpPeFU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

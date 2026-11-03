@@ -1,0 +1,17 @@
+---
+layout: post
+title: "How India pulled 500 million people out of poverty as inequality deepens - Al Jazeera"
+date: 2026-11-03 17:06:36 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxOMkNzNW5uRmt6SFlmRVdWaUdMMEs2eG1aUWFnclBBbWxDX0w3UTBQaGVuS2hnbGlhTmZvbENUSUl2c0F3Q0dwMi0zbmRtTmV3bGR1TjRYNm5PTVpxQnZBdl9tWmFmcnhkNndHNjMya3ZHQ3dhUzNucTRaVk9YYVlHTFJtbmpVakp4RUhxTmpXSHNCNl9GY0I1VVptOW5pQ1JiQTZSOENZU2JPTnZyVTNhbThEONIBuAFBVV95cUxOTmNVWndRZ01oSU04WEpjb2Q5TFNaSlNMR09ZTFpRdl9aNTVuTlFXSXVlYWpUOHNwX1pMMmNXSVl0VW9aLVhtM3ZtYzM1T2h1ZnpIUkktNTdTUFFhTGJWc20teTZLOWpYRm5jYmxDcEpwYVFGSnk0MGRXdEFYNG40a2xTQzFUTnpXTERud3EzWHVhZXNnbnVUNFJ1NGhRWVhIQ1E0YzIxc2MzclRDMTN3NEpObzZLZmVZ?oc=5"
+---
+
+How India pulled 500 million people out of poverty as inequality deepens Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxOMkNzNW5uRmt6SFlmRVdWaUdMMEs2eG1aUWFnclBBbWxDX0w3UTBQaGVuS2hnbGlhTmZvbENUSUl2c0F3Q0dwMi0zbmRtTmV3bGR1TjRYNm5PTVpxQnZBdl9tWmFmcnhkNndHNjMya3ZHQ3dhUzNucTRaVk9YYVlHTFJtbmpVakp4RUhxTmpXSHNCNl9GY0I1VVptOW5pQ1JiQTZSOENZU2JPTnZyVTNhbThEONIBuAFBVV95cUxOTmNVWndRZ01oSU04WEpjb2Q5TFNaSlNMR09ZTFpRdl9aNTVuTlFXSXVlYWpUOHNwX1pMMmNXSVl0VW9aLVhtM3ZtYzM1T2h1ZnpIUkktNTdTUFFhTGJWc20teTZLOWpYRm5jYmxDcEpwYVFGSnk0MGRXdEFYNG40a2xTQzFUTnpXTERud3EzWHVhZXNnbnVUNFJ1NGhRWVhIQ1E0YzIxc2MzclRDMTN3NEpObzZLZmVZ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

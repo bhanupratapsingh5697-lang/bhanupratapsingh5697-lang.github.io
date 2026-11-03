@@ -1,0 +1,17 @@
+---
+layout: post
+title: "LG urges IIIT-Delhi graduates to develop technology that serves society - Daily Pioneer"
+date: 2026-11-04 01:10:54 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMipAFBVV95cUxPbk1aaWxWTkxjeUtiMy1wNXRQcm9JTEF5UGhkVlNybTJlNmFONk5jbFZOVUpuUkY0aEZyajZ4SjRCSXljY0ZBLUV2TGFZRHg0Z2hFbVF3d2hUSzFkendpVlJCTGNLX3prc1FPLTRLdmU5ZUFsM3FDNEIzbklidEg1WVVET0dQNEVJbUtaSF9sWGU5ZVV3R1VIWG9LSWZCZjduZzJLOdIBsgFBVV95cUxNZmhPTlZiRzlXLWctZDhCVHMwQWxha2pwS3dLNWhPU2dkajdleEVDTDJfUXR3Vzh2TFU3TGNrTE1KNE1sTWdjY0h3N0ctWWw4MzFGckpyMzRjVWVNcDJ4cnRDS0F4dVhOSmlyMHZVUjVsSGE2V2FnVE0tejlqMmtZREc0Tld0dzM2ZWh4bTJCZEJfemJQQkd5cmdBcUR2dTU0Mmc2VzluYmJWcnBwNGdRU2xR?oc=5"
+---
+
+LG urges IIIT-Delhi graduates to develop technology that serves society Daily Pioneer
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipAFBVV95cUxPbk1aaWxWTkxjeUtiMy1wNXRQcm9JTEF5UGhkVlNybTJlNmFONk5jbFZOVUpuUkY0aEZyajZ4SjRCSXljY0ZBLUV2TGFZRHg0Z2hFbVF3d2hUSzFkendpVlJCTGNLX3prc1FPLTRLdmU5ZUFsM3FDNEIzbklidEg1WVVET0dQNEVJbUtaSF9sWGU5ZVV3R1VIWG9LSWZCZjduZzJLOdIBsgFBVV95cUxNZmhPTlZiRzlXLWctZDhCVHMwQWxha2pwS3dLNWhPU2dkajdleEVDTDJfUXR3Vzh2TFU3TGNrTE1KNE1sTWdjY0h3N0ctWWw4MzFGckpyMzRjVWVNcDJ4cnRDS0F4dVhOSmlyMHZVUjVsSGE2V2FnVE0tejlqMmtZREc0Tld0dzM2ZWh4bTJCZEJfemJQQkd5cmdBcUR2dTU0Mmc2VzluYmJWcnBwNGdRU2xR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

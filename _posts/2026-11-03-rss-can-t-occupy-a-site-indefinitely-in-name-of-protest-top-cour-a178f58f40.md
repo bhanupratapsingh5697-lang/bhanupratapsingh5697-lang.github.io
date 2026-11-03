@@ -1,0 +1,17 @@
+---
+layout: post
+title: "\"Can't Occupy A Site Indefinitely In Name Of Protest\": Top Court's Big Remark - NDTV"
+date: 2026-11-03 12:41:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxPWFVnb3kxUEFUc3NpcXBrZlJVRVRmWTQyWjhRM2JyUWdzaXVxR1I0LXBsTGJ0MGMtT0tSU2V1OHpaZFJIdTY2TF80N2xnaDdUbnJWck42bFhBbElWYzQ3eF9aWDZReFF0aXZMTm9XVVRhN2d6RUdmTmRzZjZxbk44S2ItdjN6anRwSUtwTEI1Xy04d00tM1dkR2NVLTFQZ2ZCUUJyNFhLWkpiZVpGb0hKQkF5WUdlN284SWVUSThhb9IBxwFBVV95cUxQZ29jejNFalVYUVZaN2lZTmlGcHQtQUpYRVRmR3dGQTljeEhaeWJLU2lYS25oNlVHZ0NtcW5QdGxjUGNkLVl1VFRUMGlfc1RaMUIzRHh5b3JGcFYxMUo0bjZram96bFNaLVlObDNVdndoVl84UGdyWkxhQVAwYV9UdkM2UzFLaDlNZFZTbng2YUFWOTFMRVRINTE3Q0pZWFFtN0xfOTJNSDNqaEtrQmFUWWRPYldkUjVWbi1ZU29wVEc2ekg0M2Zv?oc=5"
+---
+
+"Can't Occupy A Site Indefinitely In Name Of Protest": Top Court's Big Remark NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxPWFVnb3kxUEFUc3NpcXBrZlJVRVRmWTQyWjhRM2JyUWdzaXVxR1I0LXBsTGJ0MGMtT0tSU2V1OHpaZFJIdTY2TF80N2xnaDdUbnJWck42bFhBbElWYzQ3eF9aWDZReFF0aXZMTm9XVVRhN2d6RUdmTmRzZjZxbk44S2ItdjN6anRwSUtwTEI1Xy04d00tM1dkR2NVLTFQZ2ZCUUJyNFhLWkpiZVpGb0hKQkF5WUdlN284SWVUSThhb9IBxwFBVV95cUxQZ29jejNFalVYUVZaN2lZTmlGcHQtQUpYRVRmR3dGQTljeEhaeWJLU2lYS25oNlVHZ0NtcW5QdGxjUGNkLVl1VFRUMGlfc1RaMUIzRHh5b3JGcFYxMUo0bjZram96bFNaLVlObDNVdndoVl84UGdyWkxhQVAwYV9UdkM2UzFLaDlNZFZTbng2YUFWOTFMRVRINTE3Q0pZWFFtN0xfOTJNSDNqaEtrQmFUWWRPYldkUjVWbi1ZU29wVEc2ekg0M2Zv?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
