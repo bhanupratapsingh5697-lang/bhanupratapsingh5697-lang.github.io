@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Include GII and III in Science & Tech Scoreboard, says AP Secretary - The New Indian Express"
+date: 2026-11-04 08:47:50 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxPZ2tNZjRvcnkzY2l2TjJtd2hVeUJsbllFWEItQmJmd1BBQ0E0TXZNY3F4RVBFektsVkpCX2FDV2hPWmkySVNUQWV6aEZNOTV1QjBLX2kwNUNycktQeldoQlg4YThULWd3UFdtZzJIMnRaZGxLd0tOMUhQR0Z5WENJQ2pzbkN0VU12bXBLWTNNLS03OUVjRHZ2aFpaNXNFT09oZ3dFd3R5YVVUQzNndF9tQzN3dE9TZkRIWVBLYUdLNlkwWi0xVkktZ2RvRdIB2AFBVV95cUxOR01XQW1lUUNqRVdDV1RfMTkzZjd0SEg5TzlObERpQjE4bl90dTJ1SnJLVEJnTjFxaHhTTWtyX2p5N09JQ2pUTnhzajRWcktfclV2UzhVVEFtZVVmS3VHeVdvMWdPMVJFYm5zZF83XzI2N0JSdTR0S1h5NEpqUTAxbU9xUGpkNjV1TnlweFI5cy05cjNNSk96NzR1SkhWTFJLRU52WGRnSTloekxYRkNoRjR6TlNrWWFPakJydGJ6WkllMzdqZEpaVVRucFNlZVVpQURsZ0JuRVM?oc=5"
+---
+
+Include GII and III in Science & Tech Scoreboard, says AP Secretary The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxPZ2tNZjRvcnkzY2l2TjJtd2hVeUJsbllFWEItQmJmd1BBQ0E0TXZNY3F4RVBFektsVkpCX2FDV2hPWmkySVNUQWV6aEZNOTV1QjBLX2kwNUNycktQeldoQlg4YThULWd3UFdtZzJIMnRaZGxLd0tOMUhQR0Z5WENJQ2pzbkN0VU12bXBLWTNNLS03OUVjRHZ2aFpaNXNFT09oZ3dFd3R5YVVUQzNndF9tQzN3dE9TZkRIWVBLYUdLNlkwWi0xVkktZ2RvRdIB2AFBVV95cUxOR01XQW1lUUNqRVdDV1RfMTkzZjd0SEg5TzlObERpQjE4bl90dTJ1SnJLVEJnTjFxaHhTTWtyX2p5N09JQ2pUTnhzajRWcktfclV2UzhVVEFtZVVmS3VHeVdvMWdPMVJFYm5zZF83XzI2N0JSdTR0S1h5NEpqUTAxbU9xUGpkNjV1TnlweFI5cy05cjNNSk96NzR1SkhWTFJLRU52WGRnSTloekxYRkNoRjR6TlNrWWFPakJydGJ6WkllMzdqZEpaVVRucFNlZVVpQURsZ0JuRVM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Courts Should Not Interfere With Bona Fide Technical Evaluations Of Infrastructure Projects: Rajasthan... - Live Law"
+date: 2026-11-04 10:15:09 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxOcVJSekZQbjNTM0t3ZHh6Y196TEd0XzJ0cDNoeDVrb0FhSjVGQ2hkUXBFV1FDZ2pTQk1GQkFzQWFWRVRvQ3I0UXNRazYyVFNLNlAyTVZNZm4zS2x4YzM5V25HanJVVEt5bVRiNWZNSEE2VVJKV2hQSkVmT19wdnUzRzBHa19yNEhsWWdla29ESlFIcHJheW9pQVRiR3lpZXVTRE1wZ2hzdFZPcG0zQlJtbDZvNUJMdVh4b2hRc3NWODJHZ0HSAcgBQVVfeXFMTnlVdUczY2REamdxaFBJM3FZM0xDT2EyX010M1ZORzRpQjJicGV5N1JCRXdqNXAyV3JKOVVWUFdLRHBCeDNjNXRaYzc4S1N0WlVvRU5SVUE1S2k5MVMtcm0zaEV4a29ldlZpNjc3YkgtUVpYUDVlcGhOalZzWWFrUVpZeEZKZGJGTlJGZGFIeEZQbHpwQVhQUnBtUER0ZlRPTlZQNGhVUGZMaGRpSExLRlhVdlp2MDUxOGtlbEh6aEhPUzktTGw3dDU?oc=5"
+---
+
+Courts Should Not Interfere With Bona Fide Technical Evaluations Of Infrastructure Projects: Rajasthan... Live Law
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOcVJSekZQbjNTM0t3ZHh6Y196TEd0XzJ0cDNoeDVrb0FhSjVGQ2hkUXBFV1FDZ2pTQk1GQkFzQWFWRVRvQ3I0UXNRazYyVFNLNlAyTVZNZm4zS2x4YzM5V25HanJVVEt5bVRiNWZNSEE2VVJKV2hQSkVmT19wdnUzRzBHa19yNEhsWWdla29ESlFIcHJheW9pQVRiR3lpZXVTRE1wZ2hzdFZPcG0zQlJtbDZvNUJMdVh4b2hRc3NWODJHZ0HSAcgBQVVfeXFMTnlVdUczY2REamdxaFBJM3FZM0xDT2EyX010M1ZORzRpQjJicGV5N1JCRXdqNXAyV3JKOVVWUFdLRHBCeDNjNXRaYzc4S1N0WlVvRU5SVUE1S2k5MVMtcm0zaEV4a29ldlZpNjc3YkgtUVpYUDVlcGhOalZzWWFrUVpZeEZKZGJGTlJGZGFIeEZQbHpwQVhQUnBtUER0ZlRPTlZQNGhVUGZMaGRpSExLRlhVdlp2MDUxOGtlbEh6aEhPUzktTGw3dDU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

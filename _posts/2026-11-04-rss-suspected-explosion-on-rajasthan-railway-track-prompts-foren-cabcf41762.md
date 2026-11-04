@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Suspected explosion on Rajasthan railway track prompts forensic probe - National Herald"
+date: 2026-11-04 10:27:40 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxOZzA2SkVLaHBod0FITjdIdHJ1Rzh0M3ZYRG5iQUt1SlR6NUxaY2JwWkxIOUloU1dMUnFuWTJjMHBzT0dpTmhRWWdoWlRVcFdhMzBnS0FTTVNKX3Y2M1BaQlJ1NmZaZHdlcFpSNDItelU5bDJhbnpCM29naGItc1I0VWMzaEh6bmRfdER1bG9jUFFjQzdMZWljTkVLVlVrelVFN2pIVExVT0J5enhUdUphXzhEWDnSAcIBQVVfeXFMUEdSanZhek93U1NZTXh0eWFOd3pBMkdkdmk3QVl3cUtydG4yTXYyZVFqX2l4dnBBOE15SHhVcm51WmxkOF9rdGxhcHVpdEhPR0RPcGtQS3p1Z1QyN0x3VlcxNmpOUDRfdkFaQzUzamxXdEdDRWR1ZWVud19CaExNYWhqV2V4a0xZUmZWRnN1YndUY3IyRTJYUDhsZzJSM1NQZ2NjYndHUzNtc2RSQ3otWkdpNTlhUGZmWkNMUUFPYllwMFE?oc=5"
+---
+
+Suspected explosion on Rajasthan railway track prompts forensic probe National Herald
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxOZzA2SkVLaHBod0FITjdIdHJ1Rzh0M3ZYRG5iQUt1SlR6NUxaY2JwWkxIOUloU1dMUnFuWTJjMHBzT0dpTmhRWWdoWlRVcFdhMzBnS0FTTVNKX3Y2M1BaQlJ1NmZaZHdlcFpSNDItelU5bDJhbnpCM29naGItc1I0VWMzaEh6bmRfdER1bG9jUFFjQzdMZWljTkVLVlVrelVFN2pIVExVT0J5enhUdUphXzhEWDnSAcIBQVVfeXFMUEdSanZhek93U1NZTXh0eWFOd3pBMkdkdmk3QVl3cUtydG4yTXYyZVFqX2l4dnBBOE15SHhVcm51WmxkOF9rdGxhcHVpdEhPR0RPcGtQS3p1Z1QyN0x3VlcxNmpOUDRfdkFaQzUzamxXdEdDRWR1ZWVud19CaExNYWhqV2V4a0xZUmZWRnN1YndUY3IyRTJYUDhsZzJSM1NQZ2NjYndHUzNtc2RSQ3otWkdpNTlhUGZmWkNMUUFPYllwMFE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

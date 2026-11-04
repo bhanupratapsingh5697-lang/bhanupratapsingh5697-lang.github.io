@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Elavenil Valarivan misses out on Olympic quota - The Times of India"
+date: 2026-11-04 09:20:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxNdDRzNlNYOElWM1lIWEI5LVlaR3Y2dmdGMFJNNkJUME1EQUlnZGRHa0hKd09HZ1E2NzU3a2NOYkk0ZDZYQ0I2OU1FYXh4dDlaU1FCdS10emtGakxVWkRVdTk5Sl9fNlNnbHkzZ2dSek1KdzJWdzFhVXpaOXRTU3VxMXRTcl85QXFkOXJsdDhLYVdSY2RVd0pyV0xlTkVQcFNYTjh1eExSRzZoWlhpTkxmb1VWN0UxZ2pXSFJ1TEtsNmJVa2hVdGNmSU1abHBUQ2NGeVHSAdcBQVVfeXFMTVpicWtkMFl0b21DM1c3Q1NXNnZULWRFekJUbzlDbnVaNWd4d2Y0REI1TXM2MnBnUmdlLVN3WmNaeFdad0xpWHNSSTRrSkk1dV93aUVoS3QxT01YSENuV0JXUmFYQTFDSkVOTlhrQ2VteTRTRXVYSEt4S0VGejZRdmUtaXJCQi1uWjFSRWhERlFrTWhIR2JTdE1GSmwzUGNoazZaclhXSHM5bTRkS3c1U2EwRXU1b1dmQXhGTTNHTkVZckF0WnJKcVF6TWdzcVlHSkVxQkFnWTg?oc=5"
+---
+
+Elavenil Valarivan misses out on Olympic quota The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNdDRzNlNYOElWM1lIWEI5LVlaR3Y2dmdGMFJNNkJUME1EQUlnZGRHa0hKd09HZ1E2NzU3a2NOYkk0ZDZYQ0I2OU1FYXh4dDlaU1FCdS10emtGakxVWkRVdTk5Sl9fNlNnbHkzZ2dSek1KdzJWdzFhVXpaOXRTU3VxMXRTcl85QXFkOXJsdDhLYVdSY2RVd0pyV0xlTkVQcFNYTjh1eExSRzZoWlhpTkxmb1VWN0UxZ2pXSFJ1TEtsNmJVa2hVdGNmSU1abHBUQ2NGeVHSAdcBQVVfeXFMTVpicWtkMFl0b21DM1c3Q1NXNnZULWRFekJUbzlDbnVaNWd4d2Y0REI1TXM2MnBnUmdlLVN3WmNaeFdad0xpWHNSSTRrSkk1dV93aUVoS3QxT01YSENuV0JXUmFYQTFDSkVOTlhrQ2VteTRTRXVYSEt4S0VGejZRdmUtaXJCQi1uWjFSRWhERlFrTWhIR2JTdE1GSmwzUGNoazZaclhXSHM5bTRkS3c1U2EwRXU1b1dmQXhGTTNHTkVZckF0WnJKcVF6TWdzcVlHSkVxQkFnWTg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Could fallout from potential nuke strike on Iran's Pickaxe Mountain reach India? - India Today"
+date: 2026-11-04 07:30:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxPUzdRWU1QVlozMTcwTTRSdUlUYlM3RUlCN1Z1aWY5UURBZ1U0X0Y1ZnRrd09pY0xtbFRJSnpjOGNUSEQ3alJnaXN2R3hFbzU0VjEycURmT3pRMXRCdFZ0Y1d4bUNTWmM4bkdjM3RTbFpyVGdmeHlCdThPam1UZUdFcHBnNWwyOHoxODVkOG1yS2xpTWN2SmJEV01BSExXUEN6bTdLbFNnRmg2WjJWYTdCTF80YlQ2ZW9MbGxvMtIBwgFBVV95cUxQWlp4U2dLXzVYb2ZHbFJFeVFycWE4WnF4UFctbHJrOUs5U3dJSlVNcTdtbU1nVWR1bmlxT2pqRzR5ZjNReS1CdGx1OXo3YWkzN0pXczFwWmRwTjVtNHpBWS1KTU1Db1laQ2JJd0FJdnJWeVBuNW8tMUJjbUw5UlBQT3cyMkg4ZUpOVUxreHdKTVBSOUVPRWxidG1ST2NVTU5WOVduUlFSTEQyd1VsNVRwelV5REZIOGkxOWh0bmdrdS1Ldw?oc=5"
+---
+
+Could fallout from potential nuke strike on Iran's Pickaxe Mountain reach India? India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxPUzdRWU1QVlozMTcwTTRSdUlUYlM3RUlCN1Z1aWY5UURBZ1U0X0Y1ZnRrd09pY0xtbFRJSnpjOGNUSEQ3alJnaXN2R3hFbzU0VjEycURmT3pRMXRCdFZ0Y1d4bUNTWmM4bkdjM3RTbFpyVGdmeHlCdThPam1UZUdFcHBnNWwyOHoxODVkOG1yS2xpTWN2SmJEV01BSExXUEN6bTdLbFNnRmg2WjJWYTdCTF80YlQ2ZW9MbGxvMtIBwgFBVV95cUxQWlp4U2dLXzVYb2ZHbFJFeVFycWE4WnF4UFctbHJrOUs5U3dJSlVNcTdtbU1nVWR1bmlxT2pqRzR5ZjNReS1CdGx1OXo3YWkzN0pXczFwWmRwTjVtNHpBWS1KTU1Db1laQ2JJd0FJdnJWeVBuNW8tMUJjbUw5UlBQT3cyMkg4ZUpOVUxreHdKTVBSOUVPRWxidG1ST2NVTU5WOVduUlFSTEQyd1VsNVRwelV5REZIOGkxOWh0bmdrdS1Ldw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

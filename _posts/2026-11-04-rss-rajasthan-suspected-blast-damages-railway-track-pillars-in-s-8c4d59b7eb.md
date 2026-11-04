@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Suspected blast damages railway track pillars in Sri Ganganagar, RDX link ruled out - The Statesman"
+date: 2026-11-04 09:35:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxOcDlEX1ZsX3dpYVlJU2tXaE1uaFpmOHkzdVNETE8ta00xR2RaaVFGMG5CaFVGOTlhU2p2bi0yWDctNkVyREY5bVNvQ1VoSUM5M2VEZVRjRUt3TEszRnlaS054cnVwRUp3MDhNbFFRME12UjQwc3pfYVlwdEtNenVvcEVISEpsYm5HVkVpeUtMbkpPSThHNHphN0F0c3JjcGx0WkxMdjZFdmJfdFZtOUMyOVdCZzloZFRveDlwa1EtVjhEN2xMeWNxQTFON1BxU3k5RTRES1VlY21ZcTTSAeABQVVfeXFMT1ZTSkFyZi1kYjl6YXg1OFJ4WGlTamxBVVFnU2xhYUV5a2hTajRibVFpcGNyOHY5MGQ2MDF3T0paanBremJvMzI5TjJGaVZJYU80UkVWeDdwOGFEVXBTdDRxVVJ3Ui1YNFBuTjUyTmdQLWZBMzMzTXdaTWk0ZVE2V0FoVl9qTHdfWnlfYnAwbVRjM0dQMzkyUWxxWGVmTDZnNm16bzVpeHJtNmU5SUZ5SFMxUGducHVBMnFPNDk2X3VvN1BGTnFfUXZaajhVZ3h6QWR0dHZOSmltTGh5ejFORmQ?oc=5"
+---
+
+Rajasthan: Suspected blast damages railway track pillars in Sri Ganganagar, RDX link ruled out The Statesman
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOcDlEX1ZsX3dpYVlJU2tXaE1uaFpmOHkzdVNETE8ta00xR2RaaVFGMG5CaFVGOTlhU2p2bi0yWDctNkVyREY5bVNvQ1VoSUM5M2VEZVRjRUt3TEszRnlaS054cnVwRUp3MDhNbFFRME12UjQwc3pfYVlwdEtNenVvcEVISEpsYm5HVkVpeUtMbkpPSThHNHphN0F0c3JjcGx0WkxMdjZFdmJfdFZtOUMyOVdCZzloZFRveDlwa1EtVjhEN2xMeWNxQTFON1BxU3k5RTRES1VlY21ZcTTSAeABQVVfeXFMT1ZTSkFyZi1kYjl6YXg1OFJ4WGlTamxBVVFnU2xhYUV5a2hTajRibVFpcGNyOHY5MGQ2MDF3T0paanBremJvMzI5TjJGaVZJYU80UkVWeDdwOGFEVXBTdDRxVVJ3Ui1YNFBuTjUyTmdQLWZBMzMzTXdaTWk0ZVE2V0FoVl9qTHdfWnlfYnAwbVRjM0dQMzkyUWxxWGVmTDZnNm16bzVpeHJtNmU5SUZ5SFMxUGducHVBMnFPNDk2X3VvN1BGTnFfUXZaajhVZ3h6QWR0dHZOSmltTGh5ejFORmQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

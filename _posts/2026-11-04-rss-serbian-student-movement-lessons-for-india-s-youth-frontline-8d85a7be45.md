@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Serbian Student Movement: Lessons for India’s Youth - Frontline Magazine"
+date: 2026-11-04 11:16:50 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMipAFBVV95cUxQeWI0SUJubUF2cnZ2MmRqQmpiUFp4Z1Y1TVRsbUJkTmlyWnYtOVh1MFZmY09rRVYxVWx2dGswUjJFOWk1cjFLZ2FYQ2pwM1lrSHMtekIyZnF5eVg4WEhYdHg3ZXcxZ2MxWTU5OW42WUV4MDFrd3cxQnlLOTdBdllrVEs1YnRxemJmUDVtUU9Fb3VYcHNZS3hRdHVtMXVGUm53S2pUTdIBqwFBVV95cUxPNEdUMjAyR2dGcXdKQTUwckVhUl9mTmJXYWQtS0tVd3lzZUxyVzlqNWNTU2p3bHk0a20yanZ3NGZaVmVpMHgyOGhWV0xxVldhdjhUWUQ1cGwyZ1dRNkhXT2R0N3Q0UFAtMWhydGgxbTNCY0ppLW1HSmdxM0pRR2pjeXVZa2UxRFp4Z2dSN3YtWTctTWpQV0p5MUY5d3pMZnlzYjJvMmJLZkVyd28?oc=5"
+---
+
+Serbian Student Movement: Lessons for India’s Youth Frontline Magazine
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipAFBVV95cUxQeWI0SUJubUF2cnZ2MmRqQmpiUFp4Z1Y1TVRsbUJkTmlyWnYtOVh1MFZmY09rRVYxVWx2dGswUjJFOWk1cjFLZ2FYQ2pwM1lrSHMtekIyZnF5eVg4WEhYdHg3ZXcxZ2MxWTU5OW42WUV4MDFrd3cxQnlLOTdBdllrVEs1YnRxemJmUDVtUU9Fb3VYcHNZS3hRdHVtMXVGUm53S2pUTdIBqwFBVV95cUxPNEdUMjAyR2dGcXdKQTUwckVhUl9mTmJXYWQtS0tVd3lzZUxyVzlqNWNTU2p3bHk0a20yanZ3NGZaVmVpMHgyOGhWV0xxVldhdjhUWUQ1cGwyZ1dRNkhXT2R0N3Q0UFAtMWhydGgxbTNCY0ppLW1HSmdxM0pRR2pjeXVZa2UxRFp4Z2dSN3YtWTctTWpQV0p5MUY5d3pMZnlzYjJvMmJLZkVyd28?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
