@@ -1,0 +1,17 @@
+---
+layout: post
+title: "First handshake? Radio signal with all hallmarks of alien technology detected in China - WION"
+date: 2026-11-04 12:59:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxNZHQ0emdLeUJBV2RYTlRDWjlEdDlVMGc3V0RZRkdVRERHM3FpYkZTbExoc01EVTVPa3lKcmYzQXBPOS1XbnFSR0EzUGtVV2cwWGI5U2hrMlVDV3FDazdGT2ZLMkZjNjJhWnl5YUlmT0l0VC0zeGRZdE84enBTeEpXZVlCTDQxYjc1ZjkyUHpWaFlPTGFTSlB2NFVUNk9ETmtheHJacUd3NGo4QlhNVXJvdHppOWxDRlREQlFEdlVYNzJleUpIV25xUndQTkjSAdIBQVVfeXFMT2MyRFlPLWl2Q1M3Wjl2U0ROVnl5WU5mcE9xX2R4OGozYVh6clpJbnhmNFk4QTByVW5fekltX3IxLVNsTDhjVjQyYUlBWmdDUUdWTFNMRjdHMkRkMl9TTnRNNFpyaVFHZ2EyWkNVRDZjYm1LZFhOM2ZHOEsyU0NLcDY4U0NFZ1A0bTl6ek0zbkIzNnZtdDR6VEQ5UE9PTkhQVFl2UEtqaFB5aG93T1FPOWFPUThvVV96cVhvSzEtRThNZFlsWkRyeFItOHBZNkw5TmF3?oc=5"
+---
+
+First handshake? Radio signal with all hallmarks of alien technology detected in China WION
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxNZHQ0emdLeUJBV2RYTlRDWjlEdDlVMGc3V0RZRkdVRERHM3FpYkZTbExoc01EVTVPa3lKcmYzQXBPOS1XbnFSR0EzUGtVV2cwWGI5U2hrMlVDV3FDazdGT2ZLMkZjNjJhWnl5YUlmT0l0VC0zeGRZdE84enBTeEpXZVlCTDQxYjc1ZjkyUHpWaFlPTGFTSlB2NFVUNk9ETmtheHJacUd3NGo4QlhNVXJvdHppOWxDRlREQlFEdlVYNzJleUpIV25xUndQTkjSAdIBQVVfeXFMT2MyRFlPLWl2Q1M3Wjl2U0ROVnl5WU5mcE9xX2R4OGozYVh6clpJbnhmNFk4QTByVW5fekltX3IxLVNsTDhjVjQyYUlBWmdDUUdWTFNMRjdHMkRkMl9TTnRNNFpyaVFHZ2EyWkNVRDZjYm1LZFhOM2ZHOEsyU0NLcDY4U0NFZ1A0bTl6ek0zbkIzNnZtdDR6VEQ5UE9PTkhQVFl2UEtqaFB5aG93T1FPOWFPUThvVV96cVhvSzEtRThNZFlsWkRyeFItOHBZNkw5TmF3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

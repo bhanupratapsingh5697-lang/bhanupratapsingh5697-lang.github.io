@@ -1,0 +1,17 @@
+---
+layout: post
+title: "U.S. midterm results may matter less for India-U.S. ties than for India’s room to manoeuvre in geopolitics - The Hindu"
+date: 2026-11-04 17:47:43 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi8gFBVV95cUxQanVYUDdQVUFJZnljSjZLaDZKc2FxZDh4X3hRZmIzUGdNV0dRQWlCMmhMWWVHRGI0bjVSaGRZa0N3YjhNSjRHZWhxMXA1blo0VUF3Rk5DYjBybW1BTExTM0JrZzVuSmszd09VbjVkQWgtSzBQNXc4VTlMVFhBSE56Y1pjcmhpRkk0bVNCVXViUzB1QXA0Ym42QU1ESVNrbTZpdUkxUEtuN2dZekRjTDFhRzlxQV9hSEduR2R6Y1ZYYmVLelY2WmdLQ0UzNTgxM1RFUXV1Rmc0ajZqOHd2MVZObUlfaDFuMkNhVzNWamhudy04d9IB-AFBVV95cUxNODdPOFhLdmFsZzFacEVzd1dyTkw3WjNtb0M0cU5wRkR1aEc1cXFjRFZMMDVZMUk2SFdPeFJFYzZjX3NXNmZpWjlNQmpINzg5VkpUWFB1WVF6cmthTi01MWYtUS05SlhQbWRNS3pKRjh5eUZodDNya0JvNGZtQnBieERIdWdRMWlVWFg5NldkajczVDFlUUFTSjdRN0ZSOWQ3ZUpJN0tkZkFWbVZub2F5cC1BTHJfN3FobDdReHYxNUlUSUNjLWJpRURIX3hGc2tMM2EyWXVaYlFEcDRESVVWUlRtaG9NZUx3NU1wNFF3Ql9NRFpaYlZ1aA?oc=5"
+---
+
+U.S. midterm results may matter less for India-U.S. ties than for India’s room to manoeuvre in geopolitics The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi8gFBVV95cUxQanVYUDdQVUFJZnljSjZLaDZKc2FxZDh4X3hRZmIzUGdNV0dRQWlCMmhMWWVHRGI0bjVSaGRZa0N3YjhNSjRHZWhxMXA1blo0VUF3Rk5DYjBybW1BTExTM0JrZzVuSmszd09VbjVkQWgtSzBQNXc4VTlMVFhBSE56Y1pjcmhpRkk0bVNCVXViUzB1QXA0Ym42QU1ESVNrbTZpdUkxUEtuN2dZekRjTDFhRzlxQV9hSEduR2R6Y1ZYYmVLelY2WmdLQ0UzNTgxM1RFUXV1Rmc0ajZqOHd2MVZObUlfaDFuMkNhVzNWamhudy04d9IB-AFBVV95cUxNODdPOFhLdmFsZzFacEVzd1dyTkw3WjNtb0M0cU5wRkR1aEc1cXFjRFZMMDVZMUk2SFdPeFJFYzZjX3NXNmZpWjlNQmpINzg5VkpUWFB1WVF6cmthTi01MWYtUS05SlhQbWRNS3pKRjh5eUZodDNya0JvNGZtQnBieERIdWdRMWlVWFg5NldkajczVDFlUUFTSjdRN0ZSOWQ3ZUpJN0tkZkFWbVZub2F5cC1BTHJfN3FobDdReHYxNUlUSUNjLWJpRURIX3hGc2tMM2EyWXVaYlFEcDRESVVWUlRtaG9NZUx3NU1wNFF3Ql9NRFpaYlZ1aA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
