@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Man kills wife after fight over selling cow in Sikar, goes to police station to confess - ThePrint"
+date: 2026-11-05 11:18:50 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxNSVVoOTNwc2hMWUE2dFhEM3BHVGtnVUR1MHdjVG14LVpVZ1I5QWRtRVFxMEtlM2F0ajNvSWNlSUstXzNWYXhwZ1ZXS1VQT1RLM21aa0lVaERpdWdhUGg4WFBCWHF0MTdteEdrYXBRb3JlMEpXcHN0aFItbHZMdV81MjRVTFBNTEk1VTVkdE16YWpMeUROVGZteUNRcGpCY1E4OWxUY3Y2eU5rQVlkWlIxNFY0TF83eVBySFVzNlR0UTdxUGgteEZUWkhMRdIB0AFBVV95cUxNR3pQaTRxdG9iZXZRS3VWM3BkWVJ4bHBDVjhyX1QxNEdXUmZKVWxjaXRnR1RSWlo5dWdZTVFkOE5wVktYUGs3SFBFY2hDVm5UbG56ZG5pN3J4VDFNYk1qNkNaZ09mZXU4R0ZuaU5GNWQwZEFJdG5EZDdpRHdUeEVFWFBDMS1CM2ppaXJXck04YXZZd2VQbXV2Y1Y3QnlTZTF6cnZJY3RSaG9BZnRRdk5mRzZPejBmU0VRdnNURy1hS1ptNTVycTdKcW9Tbkl3QWJP?oc=5"
+---
+
+Rajasthan: Man kills wife after fight over selling cow in Sikar, goes to police station to confess ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxNSVVoOTNwc2hMWUE2dFhEM3BHVGtnVUR1MHdjVG14LVpVZ1I5QWRtRVFxMEtlM2F0ajNvSWNlSUstXzNWYXhwZ1ZXS1VQT1RLM21aa0lVaERpdWdhUGg4WFBCWHF0MTdteEdrYXBRb3JlMEpXcHN0aFItbHZMdV81MjRVTFBNTEk1VTVkdE16YWpMeUROVGZteUNRcGpCY1E4OWxUY3Y2eU5rQVlkWlIxNFY0TF83eVBySFVzNlR0UTdxUGgteEZUWkhMRdIB0AFBVV95cUxNR3pQaTRxdG9iZXZRS3VWM3BkWVJ4bHBDVjhyX1QxNEdXUmZKVWxjaXRnR1RSWlo5dWdZTVFkOE5wVktYUGs3SFBFY2hDVm5UbG56ZG5pN3J4VDFNYk1qNkNaZ09mZXU4R0ZuaU5GNWQwZEFJdG5EZDdpRHdUeEVFWFBDMS1CM2ppaXJXck04YXZZd2VQbXV2Y1Y3QnlTZTF6cnZJY3RSaG9BZnRRdk5mRzZPejBmU0VRdnNURy1hS1ptNTVycTdKcW9Tbkl3QWJP?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

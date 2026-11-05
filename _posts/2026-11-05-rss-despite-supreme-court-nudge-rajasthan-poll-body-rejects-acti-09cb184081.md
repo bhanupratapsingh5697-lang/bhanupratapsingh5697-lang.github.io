@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Despite Supreme Court nudge, Rajasthan poll body rejects activists’ voter awareness campaign - The Indian Express"
+date: 2026-11-05 15:25:46 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxQNjRhQ1ktOHB6cTVKSVo2RFA0ZUNJd2lyVlZ2QjA3bnBlakxlWHBPdnJnNi1JVW9DUGtDb3J6eVprcDduSU5lN3QtZUcxQzNpZnRZNjhKT2FQRnBDME02cFV5a2kwVzdKeGVDVmQ4Rmdua3RHVTBJOGJ2Tm1hcjJ6QnkxUlBmZVNNejhOTS1la3Q0RkFFdU8zSlB4VmFhX0RaRDlENmZjemlQaC04S21IS24yQlMtVkHSAb4BQVVfeXFMTlVpNnNKbUFYUzM5YkRTcG1JTlkyNWxWcUQwOEtZT0ZjVUkxTklrcDk2el9vMjJmazI1dHN4cnJjdHpMNzFYVUV5UFFNNWxUUE1QbHJsd01DTVl3ZTV3d3pNbU91NEkwVGRycnZRUGdNVWtXQ3labTVpdXRsR0oxVFE2bGRCRmlDb2twdzhkMnd0MThMVHhvOW4wS3ptbG9BQVNDSk10MzRVLTJ5eVBXM0Nxa0haX19hRFlDT2V2dw?oc=5"
+---
+
+Despite Supreme Court nudge, Rajasthan poll body rejects activists’ voter awareness campaign The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxQNjRhQ1ktOHB6cTVKSVo2RFA0ZUNJd2lyVlZ2QjA3bnBlakxlWHBPdnJnNi1JVW9DUGtDb3J6eVprcDduSU5lN3QtZUcxQzNpZnRZNjhKT2FQRnBDME02cFV5a2kwVzdKeGVDVmQ4Rmdua3RHVTBJOGJ2Tm1hcjJ6QnkxUlBmZVNNejhOTS1la3Q0RkFFdU8zSlB4VmFhX0RaRDlENmZjemlQaC04S21IS24yQlMtVkHSAb4BQVVfeXFMTlVpNnNKbUFYUzM5YkRTcG1JTlkyNWxWcUQwOEtZT0ZjVUkxTklrcDk2el9vMjJmazI1dHN4cnJjdHpMNzFYVUV5UFFNNWxUUE1QbHJsd01DTVl3ZTV3d3pNbU91NEkwVGRycnZRUGdNVWtXQ3labTVpdXRsR0oxVFE2bGRCRmlDb2twdzhkMnd0MThMVHhvOW4wS3ptbG9BQVNDSk10MzRVLTJ5eVBXM0Nxa0haX19hRFlDT2V2dw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

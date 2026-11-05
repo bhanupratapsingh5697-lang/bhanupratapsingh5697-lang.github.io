@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Govt takes over Air Force Sports Complex near PM's home in Delhi - India Today"
+date: 2026-11-05 18:06:14 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxOZ0hkUUNjdTIzbzh2aU5IODZCc0FJSW1yTU1DaGRwamNnbm5KWGZZbkJjQ0ZQN1hGTzBJMThDcF9HTXZOOUlqY2tBaGRyR2lkaHNyaGExYmo3Yzd0TElDVks5dEJyNFR3Y1FsMFd5akdjMDI4T29FQ2x1Z3BWZGFxWlE5VFJPSkV6aWtfYmVERElpdnlmUnM3Y0NINlhYU0d5Q0w0RkFIWmpXWElZbXFTWFlIUGhBVGNZOFdkMVNMeVNzSE1scE42Y29uUWJadXJmTEtic1hDUzXSAd4BQVVfeXFMUGdaRDJLc2dOb215VnJzNXdiZ29WRVAtZGZEWXVrLUJtc2RRQ0V5VWNYcXdHY2xqSG5PanNvZlRHSExBcS1WeVIydmJyQ0o4RUhMT1hkSXA0WXFmQzllM2pqeThPcDhrSjVXNGNlVWpZYmpmcFBhNUpRMW5jYkpkaDlxVDljalgzNGllWXdIRU80UzlsOWZadGc2TFN4VXdndHVpRWhOZ2pITVhMMVFRejc2Q2JBN1JIUzJnQUR4ZzNmTTZSTmZsSzB3ZDlONVllM0NnUUF3ZkEyZ0owSi1n?oc=5"
+---
+
+Govt takes over Air Force Sports Complex near PM's home in Delhi India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOZ0hkUUNjdTIzbzh2aU5IODZCc0FJSW1yTU1DaGRwamNnbm5KWGZZbkJjQ0ZQN1hGTzBJMThDcF9HTXZOOUlqY2tBaGRyR2lkaHNyaGExYmo3Yzd0TElDVks5dEJyNFR3Y1FsMFd5akdjMDI4T29FQ2x1Z3BWZGFxWlE5VFJPSkV6aWtfYmVERElpdnlmUnM3Y0NINlhYU0d5Q0w0RkFIWmpXWElZbXFTWFlIUGhBVGNZOFdkMVNMeVNzSE1scE42Y29uUWJadXJmTEtic1hDUzXSAd4BQVVfeXFMUGdaRDJLc2dOb215VnJzNXdiZ29WRVAtZGZEWXVrLUJtc2RRQ0V5VWNYcXdHY2xqSG5PanNvZlRHSExBcS1WeVIydmJyQ0o4RUhMT1hkSXA0WXFmQzllM2pqeThPcDhrSjVXNGNlVWpZYmpmcFBhNUpRMW5jYkpkaDlxVDljalgzNGllWXdIRU80UzlsOWZadGc2TFN4VXdndHVpRWhOZ2pITVhMMVFRejc2Q2JBN1JIUzJnQUR4ZzNmTTZSTmZsSzB3ZDlONVllM0NnUUF3ZkEyZ0owSi1n?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

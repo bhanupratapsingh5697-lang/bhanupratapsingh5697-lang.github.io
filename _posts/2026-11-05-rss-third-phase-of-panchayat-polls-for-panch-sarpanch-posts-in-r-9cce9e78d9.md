@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Third phase of panchayat polls for panch, sarpanch posts in Rajasthan concludes - Vartha Bharati"
+date: 2026-11-05 19:30:43 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxPaTdyakx3N3RhRjBHTGhuT2hMbk1jVmlUZEZxVFd5TVFON0VwdXNyVmZZdEp4RXl1MkxPQVRvWWotb1JhQmJ4Uk9NUVc5TkNlMHVGOXlTeUtQT0dSSXlYVm45NlhQUWRLV0NlT0d3aWVUVzJCbUZ4a0ZhNkpWVDR5SXlQTENmUkk2VllURXpEdldPY0ZoOEpmWXNzRkNObXliR2FNRG05QmtCcmpnc1NueVN6YnR4MlVYX1lIV0ZZZUtvVm_SAcgBQVVfeXFMTndyR1BLUUI3bGFvWWRBbFNzOEFjMlFxclJSZ0hZYzdzcGxjSDctVVdBaTZ4RlNOZWVfNHBhOGhNX0hQY3pFOXV4ZWJldURfdFVKeDZONFVrZjM0aHRKNDRPWDdwcTN0OGJRQ0lhcXRpaS0tN1lkczVJRWh4a3pXRkxxdUdsOVhBdklDc0RKN1pfdzRtSFpFc1M3bE5OTTE3Z3lEbzZhRVBRS0lWWUVaY0NFV2JmR1FOZ3g4Q2VFdlhBT05DNEstLXg?oc=5"
+---
+
+Third phase of panchayat polls for panch, sarpanch posts in Rajasthan concludes Vartha Bharati
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxPaTdyakx3N3RhRjBHTGhuT2hMbk1jVmlUZEZxVFd5TVFON0VwdXNyVmZZdEp4RXl1MkxPQVRvWWotb1JhQmJ4Uk9NUVc5TkNlMHVGOXlTeUtQT0dSSXlYVm45NlhQUWRLV0NlT0d3aWVUVzJCbUZ4a0ZhNkpWVDR5SXlQTENmUkk2VllURXpEdldPY0ZoOEpmWXNzRkNObXliR2FNRG05QmtCcmpnc1NueVN6YnR4MlVYX1lIV0ZZZUtvVm_SAcgBQVVfeXFMTndyR1BLUUI3bGFvWWRBbFNzOEFjMlFxclJSZ0hZYzdzcGxjSDctVVdBaTZ4RlNOZWVfNHBhOGhNX0hQY3pFOXV4ZWJldURfdFVKeDZONFVrZjM0aHRKNDRPWDdwcTN0OGJRQ0lhcXRpaS0tN1lkczVJRWh4a3pXRkxxdUdsOVhBdklDc0RKN1pfdzRtSFpFc1M3bE5OTTE3Z3lEbzZhRVBRS0lWWUVaY0NFV2JmR1FOZ3g4Q2VFdlhBT05DNEstLXg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

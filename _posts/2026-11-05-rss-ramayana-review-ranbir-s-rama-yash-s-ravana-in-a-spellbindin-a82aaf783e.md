@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Ramayana review: Ranbir's Rama, Yash's Ravana in a spellbinding epic for the ages - India Today"
+date: 2026-11-05 10:16:04 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi5AFBVV95cUxNaVBaYUFWTHhkYURkRVFnN3dqTUNCQzlieUZMYl9YSEVvc2RKbVgySldVZnBDRm5pdEZBSVdmRHp6YkgwbTM0S1BQTkk3dUE5UktaMlZKbmFLeDQ3TXRBQWhjMmpQUUlCVnpQXzBoamRZRXNRWWpIaDNMNktuRDFlTzB6NE4wWHJUY1VsM3V2QnpwWmxVeHFPTEhJQmpKTDd2YWZ1SG5PNk1tb3B3SkF0eGpPdl9CbmxqektrTWhfYUlFcXhua21nTC1NQU1RVmpsVTJQWTJWZEhrRU14NjJYM1drNDHSAeoBQVVfeXFMUGR5cEFOcHcyc3BfMlRPRzEyMFhRbVFraWJGazVuTzhuUGRLOXpEeG5PTlRNNUR1MUh1UnRjRjNwbGluRGowcjNCUGx2czg5VmhualF6a0F5SlRqa01BUzhqbWJCYUk4bkZBXzFtQzFvZFVRS0F6b2VwNU9oYlVJMnVUOTJkLVFiNHZkdmFqd2lMNVdldkR6UE10VTZjbnQ2UlJIRGNtcUF0M2tzYTR2cFhiS0lVS1hSdDB0SlIyb0tvM1c3ZzRvdER3MklxeHZiZFJvTndmejlROEJXV05ZMXFGTFA3dWxNSVJn?oc=5"
+---
+
+Ramayana review: Ranbir's Rama, Yash's Ravana in a spellbinding epic for the ages India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5AFBVV95cUxNaVBaYUFWTHhkYURkRVFnN3dqTUNCQzlieUZMYl9YSEVvc2RKbVgySldVZnBDRm5pdEZBSVdmRHp6YkgwbTM0S1BQTkk3dUE5UktaMlZKbmFLeDQ3TXRBQWhjMmpQUUlCVnpQXzBoamRZRXNRWWpIaDNMNktuRDFlTzB6NE4wWHJUY1VsM3V2QnpwWmxVeHFPTEhJQmpKTDd2YWZ1SG5PNk1tb3B3SkF0eGpPdl9CbmxqektrTWhfYUlFcXhua21nTC1NQU1RVmpsVTJQWTJWZEhrRU14NjJYM1drNDHSAeoBQVVfeXFMUGR5cEFOcHcyc3BfMlRPRzEyMFhRbVFraWJGazVuTzhuUGRLOXpEeG5PTlRNNUR1MUh1UnRjRjNwbGluRGowcjNCUGx2czg5VmhualF6a0F5SlRqa01BUzhqbWJCYUk4bkZBXzFtQzFvZFVRS0F6b2VwNU9oYlVJMnVUOTJkLVFiNHZkdmFqd2lMNVdldkR6UE10VTZjbnQ2UlJIRGNtcUF0M2tzYTR2cFhiS0lVS1hSdDB0SlIyb0tvM1c3ZzRvdER3MklxeHZiZFJvTndmejlROEJXV05ZMXFGTFA3dWxNSVJn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

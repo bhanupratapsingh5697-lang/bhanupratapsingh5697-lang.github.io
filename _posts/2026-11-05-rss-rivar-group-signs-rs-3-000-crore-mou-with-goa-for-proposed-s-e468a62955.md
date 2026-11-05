@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rivar Group signs Rs 3,000-crore MoU with Goa for proposed sports project - Moneycontrol.com"
+date: 2026-11-05 21:06:11 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxQdlFTM0YzWVdZUW9NUUVscW0wVjVfQy1tUFNHblc0b3YzT2w4eXdRWkdiTVdNbzc1QWtRSmM0MVpnMmRiNGtCdWJfQ0ZERlQxWm9SdGJpOGMxemI3XzhGU2RMTnpRVE9YUi04VS1sc2N2Zm9CdW4tSmh3cXZFdzFDQ3pGVHcwRUJCamhpZzRjVzY1QjFUOTJqdVdPRGhXWDBLSnNnWERfQWZOSk9UR0pIRm40M0JkUjE5Q2hXb1BYY2NuNlNJcFdLUnRn0gHPAUFVX3lxTE9NRVo1T2JTY053dWxNZlFIY2NIeDJwOFZwQjlfcF9leGx6X1QxNTRubDBRY2ZzYngxQ1NIVXVsY3NPSml4NlVlc0VKbG1rUTJXdURWMXRVOG9VdDhXVUZlX0ZPQXBOV2hrTG4zOUpXelhxWVdSYmc4bFNBbHU4QmRzVU9GVTJLeVFMYm1MeExOdmpwOEk3VVNQdHJ5YWNESnBkc2tlRnBYZFd0cmIyTThoZlZzOGF5V1h6YXRBME5DczFFRk1sTVh6TFV2bUNHTQ?oc=5"
+---
+
+Rivar Group signs Rs 3,000-crore MoU with Goa for proposed sports project Moneycontrol.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxQdlFTM0YzWVdZUW9NUUVscW0wVjVfQy1tUFNHblc0b3YzT2w4eXdRWkdiTVdNbzc1QWtRSmM0MVpnMmRiNGtCdWJfQ0ZERlQxWm9SdGJpOGMxemI3XzhGU2RMTnpRVE9YUi04VS1sc2N2Zm9CdW4tSmh3cXZFdzFDQ3pGVHcwRUJCamhpZzRjVzY1QjFUOTJqdVdPRGhXWDBLSnNnWERfQWZOSk9UR0pIRm40M0JkUjE5Q2hXb1BYY2NuNlNJcFdLUnRn0gHPAUFVX3lxTE9NRVo1T2JTY053dWxNZlFIY2NIeDJwOFZwQjlfcF9leGx6X1QxNTRubDBRY2ZzYngxQ1NIVXVsY3NPSml4NlVlc0VKbG1rUTJXdURWMXRVOG9VdDhXVUZlX0ZPQXBOV2hrTG4zOUpXelhxWVdSYmc4bFNBbHU4QmRzVU9GVTJLeVFMYm1MeExOdmpwOEk3VVNQdHJ5YWNESnBkc2tlRnBYZFd0cmIyTThoZlZzOGF5V1h6YXRBME5DczFFRk1sTVh6TFV2bUNHTQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India-Born Democrat Saba Haider Wins Illinois House Seat - NDTV"
+date: 2026-11-06 01:05:42 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxPUTdra1c1UEtCUDNDZGIyNElUb3ZrbGRCY1RVNGRobWxWam5kOTNCeENhNUhFMWxHLXhxMGlSUGN3amVORDNDRkhmN3NtdGhjS3h6alFGdnRWTnFyMnF5b29QOExNTkZkaVFwRlM2VmsweW8yd3JpWHQtQ0IwMWthVXhmdm5CVWpKM2hIdHlWUGpfQi1rU1dHSk56Zmh5VGRkcTdxNTZDVVZ3TWFtbFRMbGw2MEZVdS0wcy05LVNpaWU1d9IBygFBVV95cUxQbkpSRUdNb1BKTi0zQWw2MllDQll3MURYVFAtNFYybW8ydGJfMlphU1E1cHg4WjJNcXdHNU1Cb1pjOFowODVZcUtnQ1B1Q3R3dWxIa3hPZEY1OE5UYUFLTmtJdTdpeGgyNUJhY0M4MW93UjJBeXZ5YVZOdE1KaWdPOUZOWEdvUnAxdldxOWw3U1A4b2NMYmpKV3JPWF9Ec0NuMHBiVmhOQkYtYkJvQWlEbnVSbE9IQ3k1SEpOLW5GOWhyWmtuVWxOWWZR?oc=5"
+---
+
+India-Born Democrat Saba Haider Wins Illinois House Seat NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPUTdra1c1UEtCUDNDZGIyNElUb3ZrbGRCY1RVNGRobWxWam5kOTNCeENhNUhFMWxHLXhxMGlSUGN3amVORDNDRkhmN3NtdGhjS3h6alFGdnRWTnFyMnF5b29QOExNTkZkaVFwRlM2VmsweW8yd3JpWHQtQ0IwMWthVXhmdm5CVWpKM2hIdHlWUGpfQi1rU1dHSk56Zmh5VGRkcTdxNTZDVVZ3TWFtbFRMbGw2MEZVdS0wcy05LVNpaWU1d9IBygFBVV95cUxQbkpSRUdNb1BKTi0zQWw2MllDQll3MURYVFAtNFYybW8ydGJfMlphU1E1cHg4WjJNcXdHNU1Cb1pjOFowODVZcUtnQ1B1Q3R3dWxIa3hPZEY1OE5UYUFLTmtJdTdpeGgyNUJhY0M4MW93UjJBeXZ5YVZOdE1KaWdPOUZOWEdvUnAxdldxOWw3U1A4b2NMYmpKV3JPWF9Ec0NuMHBiVmhOQkYtYkJvQWlEbnVSbE9IQ3k1SEpOLW5GOWhyWmtuVWxOWWZR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

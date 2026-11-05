@@ -1,0 +1,17 @@
+---
+layout: post
+title: "US midterm fallout: Trump's India envoy Sergio Gor may replace Marco Rubio - report - The Times of India"
+date: 2026-11-05 15:44:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi5AFBVV95cUxOQWdTWUx3emsxbnBJNjNWSWhwNEk1S0x6SUlrbTFCMllqekQxUEh3LWQtc0NiYzJUMUNCX1lxNF93Q1ZXTVV2cDhuWVlDN0FMOTB5dl82MXNwWWRnbm4yVk15RWl2TkxkMTBfZEZCWDJpMG0wbXRobVQyVWVNcUc4ZjZHcWNDZXhYMDBwNDhXNUlFTTRDUEk3RDEzMmZ1am53UllQT0lMX2trQms3LTk0czZXcGo3VFE4SGJYYzVqRnN0VzVodHkzSXBvakVHVjJNSXdwdWd1LUFCZkZ5TEN1S2Y2NU_SAeoBQVVfeXFMTlNWWVFPQzBOalZoU25mN0lpUFNScUQ0ODR3YkhpRHB1NUFiZ2hlckNxM1gteGg0M0E3TkxMcnZydlZtZnVsUkNYaXlNUnlqYkVlSU5Td2RZNGVicnkxR2tGM1poYkpScmpzbjAzUU1Sek8yM1NGNGJhb1EyVTJEblR6R1NwdVhOUm1TdmthWnlCSzQ2VzlaVnZianNJTGFqeU9YVEx5NnpPeG1LQklfRndSYTIxblZ1dnVlNjE5SFZTVVhGVFF0YTJVYTJ1VC1CWmFlaGZRSFNYZjdVVndOZnVCSV96cVcyVjRB?oc=5"
+---
+
+US midterm fallout: Trump's India envoy Sergio Gor may replace Marco Rubio - report The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5AFBVV95cUxOQWdTWUx3emsxbnBJNjNWSWhwNEk1S0x6SUlrbTFCMllqekQxUEh3LWQtc0NiYzJUMUNCX1lxNF93Q1ZXTVV2cDhuWVlDN0FMOTB5dl82MXNwWWRnbm4yVk15RWl2TkxkMTBfZEZCWDJpMG0wbXRobVQyVWVNcUc4ZjZHcWNDZXhYMDBwNDhXNUlFTTRDUEk3RDEzMmZ1am53UllQT0lMX2trQms3LTk0czZXcGo3VFE4SGJYYzVqRnN0VzVodHkzSXBvakVHVjJNSXdwdWd1LUFCZkZ5TEN1S2Y2NU_SAeoBQVVfeXFMTlNWWVFPQzBOalZoU25mN0lpUFNScUQ0ODR3YkhpRHB1NUFiZ2hlckNxM1gteGg0M0E3TkxMcnZydlZtZnVsUkNYaXlNUnlqYkVlSU5Td2RZNGVicnkxR2tGM1poYkpScmpzbjAzUU1Sek8yM1NGNGJhb1EyVTJEblR6R1NwdVhOUm1TdmthWnlCSzQ2VzlaVnZianNJTGFqeU9YVEx5NnpPeG1LQklfRndSYTIxblZ1dnVlNjE5SFZTVVhGVFF0YTJVYTJ1VC1CWmFlaGZRSFNYZjdVVndOZnVCSV96cVcyVjRB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

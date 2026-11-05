@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Govt takes over 39.5-acre Air Force Sports Complex near PM's residence in Delhi - The Economic Times"
+date: 2026-11-05 20:37:08 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi3gFBVV95cUxOTDd2MmZiZThISGtYb1NfOGFqWmNQVjFMQUExeXlsZE8yblpPT2RVYUtvcVVlYjFLVDBwWS1LSWE4OXpzam05TEFvVVpONkRaR0FVbFg1WDQ4S21OeTlEVUk3cUJ6aEcwbGU3RGFidUFlLTBZVV82OU11ZXFjaFlBZ0FyOXZxckN6Mkl0Y2FoRmMxOElPbWt3c0h4dlZOLWNlSmZIbzNqQWRwODNSeXlRRUlWYlpXOWpjQlZmWkNIQVFYTmZGbjFkZGVnX29Za2lDbDd6YUZTLWV5TUNCemfSAeMBQVVfeXFMUFMyTXRUT1ctcDdGMXkyVTV1SXN2MHh1XzZLajlyMkJLVjBBN01hdFFDNWNOSEs4YzBCWG5BUXh4UXp0Nk9yc1E0YmVOOFlaVXY4aGdDQU5iOF90emdPNTdrWW9kTmhCQVo4YWRJMVpxYzNuWkZTNlBkempoS21BQ0U3ZGlqZ1Vfa20wNHlpOVlVbGkxUndNYXpEUHlUSXJVTXA4aWMzdHR1MW1HWTlXa1VvV2lONnpCcU9pUWdMUXZSUUNIMVVKT3NsSXRkQlkyLW9VUE1PYzdpTWZnZkExakZrOHM?oc=5"
+---
+
+Govt takes over 39.5-acre Air Force Sports Complex near PM's residence in Delhi The Economic Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3gFBVV95cUxOTDd2MmZiZThISGtYb1NfOGFqWmNQVjFMQUExeXlsZE8yblpPT2RVYUtvcVVlYjFLVDBwWS1LSWE4OXpzam05TEFvVVpONkRaR0FVbFg1WDQ4S21OeTlEVUk3cUJ6aEcwbGU3RGFidUFlLTBZVV82OU11ZXFjaFlBZ0FyOXZxckN6Mkl0Y2FoRmMxOElPbWt3c0h4dlZOLWNlSmZIbzNqQWRwODNSeXlRRUlWYlpXOWpjQlZmWkNIQVFYTmZGbjFkZGVnX29Za2lDbDd6YUZTLWV5TUNCemfSAeMBQVVfeXFMUFMyTXRUT1ctcDdGMXkyVTV1SXN2MHh1XzZLajlyMkJLVjBBN01hdFFDNWNOSEs4YzBCWG5BUXh4UXp0Nk9yc1E0YmVOOFlaVXY4aGdDQU5iOF90emdPNTdrWW9kTmhCQVo4YWRJMVpxYzNuWkZTNlBkempoS21BQ0U3ZGlqZ1Vfa20wNHlpOVlVbGkxUndNYXpEUHlUSXJVTXA4aWMzdHR1MW1HWTlXa1VvV2lONnpCcU9pUWdMUXZSUUNIMVVKT3NsSXRkQlkyLW9VUE1PYzdpTWZnZkExakZrOHM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

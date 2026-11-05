@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Asian Champions Trophy: India retains crown with a late surge - The Hindu"
+date: 2026-11-05 22:25:51 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxORDZXYXp0VFJnZEtRdWM0SkxsZm83VGNYOTFGT0tsaXRmenV5Q1JNaGlhZmg5NEExU2hGWDREelpsNnAwM0Y0MmM3SzVwUVpuMjdGc3VkOWVOakw5M3pCdHk0OVVKd3B5dDdZZ18xaElHcUJOYnF0MHRFangyWlJ3UEU4cFJiVk03NGU4VnR2Si1zSENSaFF4WEE3ejBvZjFBRXh2S1EzR19yQm9wR1k4X1g2UUtnODlDTWfSAcABQVVfeXFMT0FhZDNQOVRGSnpGa0NKc0pFWE9PeHhReHY2SUl0ZmdhMC1ibVppODU4MEhRRWpaTkZXZnJUOVFkRzVVdmU0Y2RQUkJkbTEtUDcyNkU5dlJQOHZ0Z3dIdEI0UzRfMzRRZ05ycnk4akNKc3I2VllTdng0alNxYUlWZ0N2WjQxeWRXcXVyd1IxdWJqa1JTMTBPdm5BMDRINlgxdFdXb29lNDg1MXJEMHVLdkNDZUxrOWlRdkZQd2pONUZp?oc=5"
+---
+
+Asian Champions Trophy: India retains crown with a late surge The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxORDZXYXp0VFJnZEtRdWM0SkxsZm83VGNYOTFGT0tsaXRmenV5Q1JNaGlhZmg5NEExU2hGWDREelpsNnAwM0Y0MmM3SzVwUVpuMjdGc3VkOWVOakw5M3pCdHk0OVVKd3B5dDdZZ18xaElHcUJOYnF0MHRFangyWlJ3UEU4cFJiVk03NGU4VnR2Si1zSENSaFF4WEE3ejBvZjFBRXh2S1EzR19yQm9wR1k4X1g2UUtnODlDTWfSAcABQVVfeXFMT0FhZDNQOVRGSnpGa0NKc0pFWE9PeHhReHY2SUl0ZmdhMC1ibVppODU4MEhRRWpaTkZXZnJUOVFkRzVVdmU0Y2RQUkJkbTEtUDcyNkU5dlJQOHZ0Z3dIdEI0UzRfMzRRZ05ycnk4akNKc3I2VllTdng0alNxYUlWZ0N2WjQxeWRXcXVyd1IxdWJqa1JTMTBPdm5BMDRINlgxdFdXb29lNDg1MXJEMHVLdkNDZUxrOWlRdkZQd2pONUZp?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

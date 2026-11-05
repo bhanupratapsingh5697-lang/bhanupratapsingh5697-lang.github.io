@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Man Kills Wife After Argument Over Selling Cow To Clear Debt - NDTV"
+date: 2026-11-05 14:27:35 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxObVVhbTZoX0VySjM3VVh0U0doSl9rSk1qaVBoaUJlX1RUN1hlakFUYnNmMkZnVWd3YzVlemk5TG9HTmZJTVMtZEVidnpvVTZ1T09oUWt4bGhOTS1QLWtlSVN2RUUtaU9PNEZKa1pQMkhRSWVPcVlDVzV1b0ZJQXlnZFRjVkFEU0ZVU3VycjctbjNDUktFSlVSOERJSjFqYzhvdC1ibU40UWtsZDhGZFpQOEZFYXNTSHJYZUHSAcIBQVVfeXFMT0VUcUgtMlc0U0R4TnBORXdjWHRxOHJJaUFPLTkzM2R5UTdRNnY0cnRKY0NVTUtjaTB1dU9BZk5zVFpYMWpXdllyS194M29ON0VldDRRcV9zNW5EX2xHX2JoeG5GeWszTF9wNlFqSl9lTkxPVWNjZG1mMlY5VlZiYURRajd5ajA5bTlwQ19SR0ZTS3FUa3N1TEEzNWNFOEpPWnV3LXk5bldUVTB6VU82Y1QycFFhN0xORnRfWmVxN2E2Umc?oc=5"
+---
+
+Rajasthan Man Kills Wife After Argument Over Selling Cow To Clear Debt NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxObVVhbTZoX0VySjM3VVh0U0doSl9rSk1qaVBoaUJlX1RUN1hlakFUYnNmMkZnVWd3YzVlemk5TG9HTmZJTVMtZEVidnpvVTZ1T09oUWt4bGhOTS1QLWtlSVN2RUUtaU9PNEZKa1pQMkhRSWVPcVlDVzV1b0ZJQXlnZFRjVkFEU0ZVU3VycjctbjNDUktFSlVSOERJSjFqYzhvdC1ibU40UWtsZDhGZFpQOEZFYXNTSHJYZUHSAcIBQVVfeXFMT0VUcUgtMlc0U0R4TnBORXdjWHRxOHJJaUFPLTkzM2R5UTdRNnY0cnRKY0NVTUtjaTB1dU9BZk5zVFpYMWpXdllyS194M29ON0VldDRRcV9zNW5EX2xHX2JoeG5GeWszTF9wNlFqSl9lTkxPVWNjZG1mMlY5VlZiYURRajd5ajA5bTlwQ19SR0ZTS3FUa3N1TEEzNWNFOEpPWnV3LXk5bldUVTB6VU82Y1QycFFhN0xORnRfWmVxN2E2Umc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

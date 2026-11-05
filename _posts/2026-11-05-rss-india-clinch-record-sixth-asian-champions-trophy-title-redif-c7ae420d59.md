@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India clinch record sixth Asian Champions Trophy title - Rediff"
+date: 2026-11-05 21:00:30 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRVNiUGRqZjdkTEdnOWNIZUE1eTBfZnIxeXhQZXhTUmhzYWEwNl9CYm5mZEN5eU5oMVRGck5zejFIMnBZTmhOUmhiNGY4NEJ3T1M0Qm4yTFB4Mmoyb3h3LTRsRUtUV2ZHdXRfejRySzVYRUxYd1N0ak15UmFjVkJfX3VOYm5oU05QazBTQ2V3TzdOM01xeUNtZngtalpmRGw3dm1CUnFfemfSAasBQVVfeXFMUDd5eVBtcEVVdHltN3p4TEpuMmtubi15Zzg4bkVxMGg5OTlSY0hpSWJaamxXUHpDLTMzSkNzRjh0eUdPV1JWUVZmczJWcFQ3dG9PNUtzZTRhZkliWC1OUTZ0Ql9NU2YzQ1FCalVvc3JiZ1dHWDlsdzhJbUZRSmoxVzROWjZHNk56MmhYNVpKbnl0LURERlREaFgzTDBTQWtqSE15V2RLbzJrWHVB?oc=5"
+---
+
+India clinch record sixth Asian Champions Trophy title Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQRVNiUGRqZjdkTEdnOWNIZUE1eTBfZnIxeXhQZXhTUmhzYWEwNl9CYm5mZEN5eU5oMVRGck5zejFIMnBZTmhOUmhiNGY4NEJ3T1M0Qm4yTFB4Mmoyb3h3LTRsRUtUV2ZHdXRfejRySzVYRUxYd1N0ak15UmFjVkJfX3VOYm5oU05QazBTQ2V3TzdOM01xeUNtZngtalpmRGw3dm1CUnFfemfSAasBQVVfeXFMUDd5eVBtcEVVdHltN3p4TEpuMmtubi15Zzg4bkVxMGg5OTlSY0hpSWJaamxXUHpDLTMzSkNzRjh0eUdPV1JWUVZmczJWcFQ3dG9PNUtzZTRhZkliWC1OUTZ0Ql9NU2YzQ1FCalVvc3JiZ1dHWDlsdzhJbUZRSmoxVzROWjZHNk56MmhYNVpKbnl0LURERlREaFgzTDBTQWtqSE15V2RLbzJrWHVB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

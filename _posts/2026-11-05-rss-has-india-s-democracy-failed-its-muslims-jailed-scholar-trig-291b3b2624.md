@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Has India’s democracy failed its Muslims? Jailed scholar triggers debate - Al Jazeera"
+date: 2026-11-05 11:48:38 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMisAFBVV95cUxQb1hTbnFZcVRDVWFneGxUMVFYX2tTS28xTnNLam1MZVFKZlc4TmVjNER6V2dzTUZQM3N5MTUwckpySV9PR0NXbFJBVlI1WXNieDJTMmJzUFN6b25jTnFDcjJWc0NaY3RROUxNZVVFcE9La2RUREhSNWdoSndwMDF1SkJpaDcyenNsM3lzY2VqRlZQZmZSa3hPc2E5WHdMQUlVNElydlZHZkxpNExSaW5ocNIBtgFBVV95cUxNVnJMRjBzMzJoT1dEUjNCNkpLcEgxZ3p0RW5pZ0I0UnYyRW1OSUpCS0tFV1l0bVJpNTRGU2FjNUN4VDB3UG1VNVNWbmh2LUxvdVZyQ2RiWEhoZXlSWWpHdWZDTEFtMjlFc3piVXRUVURTUkExSFFfM2wxZVRMbmdWem42YVBYWEhkbUhIUmU1OEF0Tm9XLUdPTjFOUUp0Vzc5aWkwN0p2a0pwaE03U0o3aUtLX203UQ?oc=5"
+---
+
+Has India’s democracy failed its Muslims? Jailed scholar triggers debate Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisAFBVV95cUxQb1hTbnFZcVRDVWFneGxUMVFYX2tTS28xTnNLam1MZVFKZlc4TmVjNER6V2dzTUZQM3N5MTUwckpySV9PR0NXbFJBVlI1WXNieDJTMmJzUFN6b25jTnFDcjJWc0NaY3RROUxNZVVFcE9La2RUREhSNWdoSndwMDF1SkJpaDcyenNsM3lzY2VqRlZQZmZSa3hPc2E5WHdMQUlVNElydlZHZkxpNExSaW5ocNIBtgFBVV95cUxNVnJMRjBzMzJoT1dEUjNCNkpLcEgxZ3p0RW5pZ0I0UnYyRW1OSUpCS0tFV1l0bVJpNTRGU2FjNUN4VDB3UG1VNVNWbmh2LUxvdVZyQ2RiWEhoZXlSWWpHdWZDTEFtMjlFc3piVXRUVURTUkExSFFfM2wxZVRMbmdWem42YVBYWEhkbUhIUmU1OEF0Tm9XLUdPTjFOUUp0Vzc5aWkwN0p2a0pwaE03U0o3aUtLX203UQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

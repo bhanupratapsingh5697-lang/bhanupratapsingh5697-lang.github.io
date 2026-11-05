@@ -1,0 +1,17 @@
+---
+layout: post
+title: "U.S. midterm elections impact on India: Faster trade deal talks and higher tariffs likely - The Hindu"
+date: 2026-11-04 15:43:43 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4gFBVV95cUxQb2gtR0ZuWXJNM2UwZUVHdGEzdmh1blRQSHJaWnZicWJ5dWJiMkZ6M3FkbnFEcXk4MDhoVWxzRVNNMWNyV0lYeXNyZUVtazNjODBHM0NKbzlDUUFGOXFNd1kySkFITFl0eVdqQTVMR040YWREUXJ2RVBVU3dqeVN5RXRJdkRvcVNaUlVHNW5EZFZyS2dLbVNfTHhJbDBNV2t6ZWRLZXF2VDlCMzBodTlqS1I3cFVWYmFIZUkwVFBBSTZ3dE9KNVFIMEdhNVc0U3R5eXItWVotRi1USnd2dTB0RnpB0gHoAUFVX3lxTE5QbnZQSy1CRjBSY0Uwc290eUVvZG83d1FCOFRua1lqRDREWlppNnVwQnJKbDlGYXF0UXRjdFpjTkxwT0tZN01jdHlVUmZUel92MlFfLUJYaXBkcE5EZDFLQU5MSDlmclhLY2lqOUFjM1lRbHpYTWZYMnhVX1Q3MndwLWNqYjhrZWt4WHdRZVdDRFA5WjNjbjFWY0NNalIzT0ppWThhS2tBbXFMYmJIdVVaQkVOajlGVzd4eGxGR1ZCbmdZS3ZUTHNBcXRhWWJkWEd3aC05NTlwR2tLdlNqblFuMHZ3Nko4cE8?oc=5"
+---
+
+U.S. midterm elections impact on India: Faster trade deal talks and higher tariffs likely The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4gFBVV95cUxQb2gtR0ZuWXJNM2UwZUVHdGEzdmh1blRQSHJaWnZicWJ5dWJiMkZ6M3FkbnFEcXk4MDhoVWxzRVNNMWNyV0lYeXNyZUVtazNjODBHM0NKbzlDUUFGOXFNd1kySkFITFl0eVdqQTVMR040YWREUXJ2RVBVU3dqeVN5RXRJdkRvcVNaUlVHNW5EZFZyS2dLbVNfTHhJbDBNV2t6ZWRLZXF2VDlCMzBodTlqS1I3cFVWYmFIZUkwVFBBSTZ3dE9KNVFIMEdhNVc0U3R5eXItWVotRi1USnd2dTB0RnpB0gHoAUFVX3lxTE5QbnZQSy1CRjBSY0Uwc290eUVvZG83d1FCOFRua1lqRDREWlppNnVwQnJKbDlGYXF0UXRjdFpjTkxwT0tZN01jdHlVUmZUel92MlFfLUJYaXBkcE5EZDFLQU5MSDlmclhLY2lqOUFjM1lRbHpYTWZYMnhVX1Q3MndwLWNqYjhrZWt4WHdRZVdDRFA5WjNjbjFWY0NNalIzT0ppWThhS2tBbXFMYmJIdVVaQkVOajlGVzd4eGxGR1ZCbmdZS3ZUTHNBcXRhWWJkWEd3aC05NTlwR2tLdlNqblFuMHZ3Nko4cE8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

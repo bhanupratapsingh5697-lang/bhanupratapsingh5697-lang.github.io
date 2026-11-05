@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Out of bounds: IAF hands over Race Course sports complex to Centre - The New Indian Express"
+date: 2026-11-05 22:42:09 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxPQkZBMF8xTTMxRktGWDdkdjlaVldWY0ZZd2VlU29uMEhId0JWcWZ4TDJMZ0NSZWJObkxyS0xXS0g5cnNxU0d1MGpkdzNicERYYk10bEcxVGM1RHhHX1Z2TVk5OTEzUjVVSjVweG15QUNqa3FMczducFJnMG1Vb1R2YXZhdmptNldJNEpRdk5lZ3dOdWNXakVYbFdGVU5SX3NscmRvUldnNVZzZXUwc2pNX0ZlT3h2X2PSAcQBQVVfeXFMTWpoeVpURHRqMnpHMnZFNVQ1Nm1KUHBVbmhoWGhFbXItRmluQk9QcGZyZVhwaFRjY3BBS1dlWVVKWWF4RlZjZTlXRm9HYTJucHFfd0dTVy1aUHRJbnRLRk9icC1Zcjg5YzJOYTh2b1NKeW44cWRSUUxNUjBhSHpZdEJEQ0xBcXRKUW9VSTlqSlhFeWZfQWFOVkpyaU9Gc2NCQzJhUS1xcWlZM3pobzM5Wnp4VmgxY3lZS2hDNlhETVk3NmNoUg?oc=5"
+---
+
+Out of bounds: IAF hands over Race Course sports complex to Centre The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxPQkZBMF8xTTMxRktGWDdkdjlaVldWY0ZZd2VlU29uMEhId0JWcWZ4TDJMZ0NSZWJObkxyS0xXS0g5cnNxU0d1MGpkdzNicERYYk10bEcxVGM1RHhHX1Z2TVk5OTEzUjVVSjVweG15QUNqa3FMczducFJnMG1Vb1R2YXZhdmptNldJNEpRdk5lZ3dOdWNXakVYbFdGVU5SX3NscmRvUldnNVZzZXUwc2pNX0ZlT3h2X2PSAcQBQVVfeXFMTWpoeVpURHRqMnpHMnZFNVQ1Nm1KUHBVbmhoWGhFbXItRmluQk9QcGZyZVhwaFRjY3BBS1dlWVVKWWF4RlZjZTlXRm9HYTJucHFfd0dTVy1aUHRJbnRLRk9icC1Zcjg5YzJOYTh2b1NKeW44cWRSUUxNUjBhSHpZdEJEQ0xBcXRKUW9VSTlqSlhFeWZfQWFOVkpyaU9Gc2NCQzJhUS1xcWlZM3pobzM5Wnp4VmgxY3lZS2hDNlhETVk3NmNoUg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
