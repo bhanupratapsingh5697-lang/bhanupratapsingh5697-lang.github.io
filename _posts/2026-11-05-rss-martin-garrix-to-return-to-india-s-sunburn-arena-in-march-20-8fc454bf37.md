@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Martin Garrix to return to India’s Sunburn Arena in March 2027, including Kolkata - Telegraph India"
+date: 2026-11-05 11:54:22 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxQZG9kem9aVEhPWEticllnVjMyYTN1cTdzVC1wMzVpRWtSY1A0UkRRSzZBcm5POWR4Z2w2bmk3TDMydGJaRUVVUnpQaHhHeHFaQjZJOWJ6NHg3b1JpN0QxYXVkWUF5ZDcyWkVZQUV3T2Z5SVNpd2xKZ0Fkc0lZbnNEbDFtZnNsZ3Z5WmY2VnBJZDBlNjVpSThhWko3ZV9HYkZHc1BSdUFCYnBQVEE3SGVEZmw5WXZqMUJBRllnQzlCMGN6Z0hQSEs2ay1zZTVxTkVudUHSAdcBQVVfeXFMT3pxRlpFcmd1UXN3b2tXLWFaSlNkMkNVeHVLQ05jMmdUTnRXc25GRW5HVVdMMjRxZURENkZYcFVsTUwyeG45cTNkRzJtWWlHNzlhTUdlcDJmM2dfanZqV3pPVFVCZkZIbERmUFNDUkVuMmtUa3hNRTdUZXh5UUlZQUgwTUdzRVg5aVZzYm5ib1Q1c2dQdmJtQkg0c2taUTlxZ2puclY2OUtYWWRGSlYtX3l2WlNZNHVyMXQzYnRHM3RvVmZwQTc2TlZGdHZwWVBoTm5CbWxxWk0?oc=5"
+---
+
+Martin Garrix to return to India’s Sunburn Arena in March 2027, including Kolkata Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQZG9kem9aVEhPWEticllnVjMyYTN1cTdzVC1wMzVpRWtSY1A0UkRRSzZBcm5POWR4Z2w2bmk3TDMydGJaRUVVUnpQaHhHeHFaQjZJOWJ6NHg3b1JpN0QxYXVkWUF5ZDcyWkVZQUV3T2Z5SVNpd2xKZ0Fkc0lZbnNEbDFtZnNsZ3Z5WmY2VnBJZDBlNjVpSThhWko3ZV9HYkZHc1BSdUFCYnBQVEE3SGVEZmw5WXZqMUJBRllnQzlCMGN6Z0hQSEs2ay1zZTVxTkVudUHSAdcBQVVfeXFMT3pxRlpFcmd1UXN3b2tXLWFaSlNkMkNVeHVLQ05jMmdUTnRXc25GRW5HVVdMMjRxZURENkZYcFVsTUwyeG45cTNkRzJtWWlHNzlhTUdlcDJmM2dfanZqV3pPVFVCZkZIbERmUFNDUkVuMmtUa3hNRTdUZXh5UUlZQUgwTUdzRVg5aVZzYm5ib1Q1c2dQdmJtQkg0c2taUTlxZ2puclY2OUtYWWRGSlYtX3l2WlNZNHVyMXQzYnRHM3RvVmZwQTc2TlZGdHZwWVBoTm5CbWxxWk0?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

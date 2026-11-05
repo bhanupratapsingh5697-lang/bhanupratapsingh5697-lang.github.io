@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Nothing to launch its first AI-native product next month - The Hindu"
+date: 2026-11-05 12:05:23 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxPbGRFZl9wWVVzd2MyU0tyNzBuV1U4TGV2QUI0b2FCQ0tIbG1tbng3cnU3U0lBelBCclpJenp4TC14Ym1uRTlVQzlhbjJJT0lHYWtGNWZ0X0NmREktWWZWejQ3YXNId3lVaC1ZVnN4dk03TXhtaC1Sd3hGTmRLWWZCbFY0T01zcmFkRjhDd2VpWlhjQjRqOXlRbS1sZWlOd0p6dkJXdjBfUko5NWMwRHU5bVUxNUFOTWNybFJCQmdvR29YTWk2RkxDatIBzwFBVV95cUxNZVRsX0xydkJNQmUtcTFObGs5dkQ1cGlISHltSTVoUVhCWUhZOG45YjlMR0k3NVRoRFVhb2p3TzJLa0FKa3dTSVhST2Fvay1la29SckJHNjRqdURqb1F0ZWlFTkRKUGN6SmxySFBBRWRPamVBcFpuQXc5WnVTZksxN1kzckp6c0pWRm9iQ1BCenZkaldvX3hGVVIyY0dfbHVUY18wZ3JNdGRRQmZzd0NaYjZiSVhocDhSRHFOMmQwR3QzWFpZRENhUXNIVUdXNlU?oc=5"
+---
+
+Nothing to launch its first AI-native product next month The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPbGRFZl9wWVVzd2MyU0tyNzBuV1U4TGV2QUI0b2FCQ0tIbG1tbng3cnU3U0lBelBCclpJenp4TC14Ym1uRTlVQzlhbjJJT0lHYWtGNWZ0X0NmREktWWZWejQ3YXNId3lVaC1ZVnN4dk03TXhtaC1Sd3hGTmRLWWZCbFY0T01zcmFkRjhDd2VpWlhjQjRqOXlRbS1sZWlOd0p6dkJXdjBfUko5NWMwRHU5bVUxNUFOTWNybFJCQmdvR29YTWk2RkxDatIBzwFBVV95cUxNZVRsX0xydkJNQmUtcTFObGs5dkQ1cGlISHltSTVoUVhCWUhZOG45YjlMR0k3NVRoRFVhb2p3TzJLa0FKa3dTSVhST2Fvay1la29SckJHNjRqdURqb1F0ZWlFTkRKUGN6SmxySFBBRWRPamVBcFpuQXc5WnVTZksxN1kzckp6c0pWRm9iQ1BCenZkaldvX3hGVVIyY0dfbHVUY18wZ3JNdGRRQmZzd0NaYjZiSVhocDhSRHFOMmQwR3QzWFpZRENhUXNIVUdXNlU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

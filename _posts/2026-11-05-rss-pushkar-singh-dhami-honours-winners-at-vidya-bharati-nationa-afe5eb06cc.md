@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Pushkar Singh Dhami honours winners at Vidya Bharati national sports meet | Hindustan Times - Hindustan Times"
+date: 2026-11-05 11:50:41 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxQNUhvZWl2dklxYzh5bGFadE9fSGZWcjdNRXJhdWd5YWFyVnh1RWpPaF9rcFQxLThSUEhuLVRwRWFWYjhIOGlYVkt6MV9CRk9IRmpGdEszTXNkQ0FkX3daaW4yd080TlBJeHZHYUdNcTZheTA2MkI2ZS1IREdiTlQ4VmNoRWlZbTlkM2haSDhDLWYwQWlGNlpiRGdmcmJrc2JSZE1MSzRTN3VZaThiSFE5S1ZIdmhzS3hHQWJVTjY5U0xFYTNGRDNyNHVZbXlzd9IB0wFBVV95cUxQSFZQTmFfR0dIWXBhbTBLYVdyT1hzRE1pVU5GeEd0UTBIUDlPMkxwcnFYYkhNVU04bURRVEpVYU56SjJLMkVTSV8tbDJjUWRLNWpYeEloLWVMQXZVbjlqQW1VYk9BT2llZHZfRjJiOTdVcmEwQlVDY0QwbFlRdDNRWkxSVFdrc3lqX1ZhejlCSGFwNy1QeURWdkc2TThWVHN6cTRMelF1bWpyY0Ztbkh5a1RkRlBSajQtSklkNXd1eERaUWVPZlpVcmFrUjllWHpILTdZ?oc=5"
+---
+
+Pushkar Singh Dhami honours winners at Vidya Bharati national sports meet | Hindustan Times Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxQNUhvZWl2dklxYzh5bGFadE9fSGZWcjdNRXJhdWd5YWFyVnh1RWpPaF9rcFQxLThSUEhuLVRwRWFWYjhIOGlYVkt6MV9CRk9IRmpGdEszTXNkQ0FkX3daaW4yd080TlBJeHZHYUdNcTZheTA2MkI2ZS1IREdiTlQ4VmNoRWlZbTlkM2haSDhDLWYwQWlGNlpiRGdmcmJrc2JSZE1MSzRTN3VZaThiSFE5S1ZIdmhzS3hHQWJVTjY5U0xFYTNGRDNyNHVZbXlzd9IB0wFBVV95cUxQSFZQTmFfR0dIWXBhbTBLYVdyT1hzRE1pVU5GeEd0UTBIUDlPMkxwcnFYYkhNVU04bURRVEpVYU56SjJLMkVTSV8tbDJjUWRLNWpYeEloLWVMQXZVbjlqQW1VYk9BT2llZHZfRjJiOTdVcmEwQlVDY0QwbFlRdDNRWkxSVFdrc3lqX1ZhejlCSGFwNy1QeURWdkc2TThWVHN6cTRMelF1bWpyY0Ztbkh5a1RkRlBSajQtSklkNXd1eERaUWVPZlpVcmFrUjllWHpILTdZ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

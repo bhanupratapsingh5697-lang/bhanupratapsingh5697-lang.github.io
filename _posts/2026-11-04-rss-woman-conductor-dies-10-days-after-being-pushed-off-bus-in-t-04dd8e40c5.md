@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Woman Conductor Dies 10 Days After Being Pushed Off Bus In Telangana - NDTV"
+date: 2026-11-04 16:11:24 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxQUFdDMG1SWlF1RlJLS1NxeEg3S2xWRng1NmJvZ0w2TW9XYUs3YVBneUIzOE52dE0xeC1xMjFZWGotVEptY1FTeHkzUDFHQllEYTRFclNsUllYYVJtN1BWcGNzM3ZKZkdXZVlnZU41ZHRTMk41SzJqdFAzdnFHTUh1MFJfTG9qZnR0WjhtVUQtcnBSNG1pUXBVTU5ZR2tWeHBFVmtDS1lBMDZ4RWxKNUHSAbYBQVVfeXFMTm51a3Bmek9lTzVJZmxGdGRWUm1XZG1MSXg4WUZ2ZE9MU2w4cDBYd3BwWkJpYnZfclVlUjFrM3otWkZoT0tVUEZ6cVcyLXVXQ3pwd1RCVWs0OW5CSDhkQTNlNWVCWGN5aEhDb3BJVlRocXppMUNzLWJWN1EwcklreW5jYlB0RUJROXE3OFpzV3RqcldzX0dEcGdSckowaHR4ZVV0Z0JJZm52VEx1ckU5N3hxQU1WREE?oc=5"
+---
+
+Woman Conductor Dies 10 Days After Being Pushed Off Bus In Telangana NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxQUFdDMG1SWlF1RlJLS1NxeEg3S2xWRng1NmJvZ0w2TW9XYUs3YVBneUIzOE52dE0xeC1xMjFZWGotVEptY1FTeHkzUDFHQllEYTRFclNsUllYYVJtN1BWcGNzM3ZKZkdXZVlnZU41ZHRTMk41SzJqdFAzdnFHTUh1MFJfTG9qZnR0WjhtVUQtcnBSNG1pUXBVTU5ZR2tWeHBFVmtDS1lBMDZ4RWxKNUHSAbYBQVVfeXFMTm51a3Bmek9lTzVJZmxGdGRWUm1XZG1MSXg4WUZ2ZE9MU2w4cDBYd3BwWkJpYnZfclVlUjFrM3otWkZoT0tVUEZ6cVcyLXVXQ3pwd1RCVWs0OW5CSDhkQTNlNWVCWGN5aEhDb3BJVlRocXppMUNzLWJWN1EwcklreW5jYlB0RUJROXE3OFpzV3RqcldzX0dEcGdSckowaHR4ZVV0Z0JJZm52VEx1ckU5N3hxQU1WREE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

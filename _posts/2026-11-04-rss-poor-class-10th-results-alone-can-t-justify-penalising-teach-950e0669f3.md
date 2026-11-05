@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Poor Class 10th Results Alone Can't Justify Penalising Teacher Without Finding Of Misconduct: Rajasthan... - Live Law"
+date: 2026-11-04 11:10:53 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxQS21zQUcwcnA2ZHZOVHVNaWNTeDMtRWoyZXBUUGRSY2VoRWF6djFiZ3diN2VkdlVxSG5FWm83LVBVSkI4VmdOSGZfSjB6eUVwc3lYNWxQMnRJV0pfcERZSWdVT3BJSHJtQVdpRm5sTF9LTDlSNTlNRVRZNmNUdE1OWTF1dkF3Yl9iVXlUcm45a0g1STk0SzVmUHJJeE9FNGIzY01qTzdHa3dKNTlJUGYzSVdCTnFERG5nQ2dOdm00TVBQbjFWdEtCeUlFWEhKdUF2UE1hamRjRnZiQdIB3wFBVV95cUxPQ3BfUklSQTUwT25LNkozUjBoQUt1LU1mamRPeURwbUF6eWUwT1lUNTZxUTFmU2lKSk5XeGExTTFhc1R6RzVOaG41THowRlNaN09lcS1aUFFFX2RONjkzNnNrZDd6NWFpMkhJUi0zbUtGQjRKLWtTTzAtbkd6QWpXUjczWTd6d2VUN0JkRmZrYTlUZFI0LUhGc254TGgyT2F3YlI0bUZ6dFFTNlJtU0lQa3Mwa1dDa2w1aE1NRXJOUHNueVZiMlJsXzJDNWVmWVdmRS16MmlCVm1BTmZsdGw0?oc=5"
+---
+
+Poor Class 10th Results Alone Can't Justify Penalising Teacher Without Finding Of Misconduct: Rajasthan... Live Law
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQS21zQUcwcnA2ZHZOVHVNaWNTeDMtRWoyZXBUUGRSY2VoRWF6djFiZ3diN2VkdlVxSG5FWm83LVBVSkI4VmdOSGZfSjB6eUVwc3lYNWxQMnRJV0pfcERZSWdVT3BJSHJtQVdpRm5sTF9LTDlSNTlNRVRZNmNUdE1OWTF1dkF3Yl9iVXlUcm45a0g1STk0SzVmUHJJeE9FNGIzY01qTzdHa3dKNTlJUGYzSVdCTnFERG5nQ2dOdm00TVBQbjFWdEtCeUlFWEhKdUF2UE1hamRjRnZiQdIB3wFBVV95cUxPQ3BfUklSQTUwT25LNkozUjBoQUt1LU1mamRPeURwbUF6eWUwT1lUNTZxUTFmU2lKSk5XeGExTTFhc1R6RzVOaG41THowRlNaN09lcS1aUFFFX2RONjkzNnNrZDd6NWFpMkhJUi0zbUtGQjRKLWtTTzAtbkd6QWpXUjczWTd6d2VUN0JkRmZrYTlUZFI0LUhGc254TGgyT2F3YlI0bUZ6dFFTNlJtU0lQa3Mwa1dDa2w1aE1NRXJOUHNueVZiMlJsXzJDNWVmWVdmRS16MmlCVm1BTmZsdGw0?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

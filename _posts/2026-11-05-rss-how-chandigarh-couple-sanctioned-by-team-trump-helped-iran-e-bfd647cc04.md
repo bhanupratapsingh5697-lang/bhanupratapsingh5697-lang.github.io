@@ -1,0 +1,17 @@
+---
+layout: post
+title: "How Chandigarh Couple Sanctioned By Team Trump Helped Iran Evade Oil Curbs - NDTV"
+date: 2026-11-05 11:38:13 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxQeEM2czJKRUtld01ERXV1dXF3T3RITExKRl9CM0p5bDNCSlViUGljcGN1c1BabHp0TWtoTUpJU0hIQWdHWUVZMm1QY3RJU0FRckg1VWhXV2htZWZEMGt2eTJFalpMZThGaHlubVo4VS13U19PTzh5T0U3RzlIa1p4WTl5S1JraWRkTnAwZnZpQWNEV1hPZ0pzdVBHNHI0ZnFKUUR5SHNtRzRaRW5iTUpOR2xzTjd5QdIBvgFBVV95cUxNd1NORkU0RlNXMzZqUWYwdzY4WEZGZDA1RUl6S2hYNjItTFBMQmVpZHhhMEg3OV95RUNsWk5YWHhOQWtILVVIdW80eHJIbkZVY0h3Z3RCaXB6d1lLLWpuRDBUaF9sS18yTzV4TnEzNDZUNWhEcXUzOWphVGxDczhnSTBiSlFzUkx6ZEVIZWY1T0I1YUZOSEs4NnhqVGZEb3hfSFljZ1pjSU5fR3pHZDdoYjBLbHJXZTJXLVN2Vzdn?oc=5"
+---
+
+How Chandigarh Couple Sanctioned By Team Trump Helped Iran Evade Oil Curbs NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxQeEM2czJKRUtld01ERXV1dXF3T3RITExKRl9CM0p5bDNCSlViUGljcGN1c1BabHp0TWtoTUpJU0hIQWdHWUVZMm1QY3RJU0FRckg1VWhXV2htZWZEMGt2eTJFalpMZThGaHlubVo4VS13U19PTzh5T0U3RzlIa1p4WTl5S1JraWRkTnAwZnZpQWNEV1hPZ0pzdVBHNHI0ZnFKUUR5SHNtRzRaRW5iTUpOR2xzTjd5QdIBvgFBVV95cUxNd1NORkU0RlNXMzZqUWYwdzY4WEZGZDA1RUl6S2hYNjItTFBMQmVpZHhhMEg3OV95RUNsWk5YWHhOQWtILVVIdW80eHJIbkZVY0h3Z3RCaXB6d1lLLWpuRDBUaF9sS18yTzV4TnEzNDZUNWhEcXUzOWphVGxDczhnSTBiSlFzUkx6ZEVIZWY1T0I1YUZOSEs4NnhqVGZEb3hfSFljZ1pjSU5fR3pHZDdoYjBLbHJXZTJXLVN2Vzdn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

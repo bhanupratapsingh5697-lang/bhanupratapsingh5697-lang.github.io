@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Himachal to Earn ₹400 Cr from Power Sale to Rajasthan: CM Sukhu - Rediff MoneyWiz"
+date: 2026-11-04 19:58:30 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxPbHNJa1AtNnd2NFZ5M0pJN1VaV2dNN2xjdXh5VGhEOUM5MEFEYnpoLUhjSE11QkFBZG80SHc4bnBNQjdFY2JFNXdEM2dHTjlHc1RLc0RYeWJPanpUc1ROSmNVNHNIRzhQN1J4Z1BCVEFGSnd6Q05Kc3lPdXdFMG0zdjZET21hcmFRazJWUnFuRXNGdnh2M0xDTlF0Wk01Vm40azJScVc3ZnhRemV4QTFCcHJEb9IBuAFBVV95cUxOZW9CamgyUHlCN2pUOG9RUkpPTko5aXlaeFVlMDRUWnd4UXlCUTdGcmNSWlBoTEs2S2c2M2dSTkxsRFdka2ZKeEFSZDJRUWROV3VfUGcyZlpQRVNwRDROc3FpSTdJbDB4bDhXOUpCNWRBQ05OX1ZIbV92d0FtT2l0ak1kandESHNkSWozSzlmdEJ6bDZmdl9CR0pzcERQbHNjbDR4SDdsYjNYaXE5Y2dFLXRrOVV0X3Bn?oc=5"
+---
+
+Himachal to Earn ₹400 Cr from Power Sale to Rajasthan: CM Sukhu Rediff MoneyWiz
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxPbHNJa1AtNnd2NFZ5M0pJN1VaV2dNN2xjdXh5VGhEOUM5MEFEYnpoLUhjSE11QkFBZG80SHc4bnBNQjdFY2JFNXdEM2dHTjlHc1RLc0RYeWJPanpUc1ROSmNVNHNIRzhQN1J4Z1BCVEFGSnd6Q05Kc3lPdXdFMG0zdjZET21hcmFRazJWUnFuRXNGdnh2M0xDTlF0Wk01Vm40azJScVc3ZnhRemV4QTFCcHJEb9IBuAFBVV95cUxOZW9CamgyUHlCN2pUOG9RUkpPTko5aXlaeFVlMDRUWnd4UXlCUTdGcmNSWlBoTEs2S2c2M2dSTkxsRFdka2ZKeEFSZDJRUWROV3VfUGcyZlpQRVNwRDROc3FpSTdJbDB4bDhXOUpCNWRBQ05OX1ZIbV92d0FtT2l0ak1kandESHNkSWozSzlmdEJ6bDZmdl9CR0pzcERQbHNjbDR4SDdsYjNYaXE5Y2dFLXRrOVV0X3Bn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

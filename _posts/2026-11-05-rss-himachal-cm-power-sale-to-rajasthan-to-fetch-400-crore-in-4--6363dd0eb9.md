@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Himachal CM: Power sale to Rajasthan to fetch ₹400 crore in 4 months | Hindustan Times - Hindustan Times"
+date: 2026-11-05 07:51:30 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxNck93V0pqZ0h1N2Y3OFR5akxnOHh2bU5id0hlUnVMQzFoUHh1WlZhY0dKY0RmYkRVQXZTeDVDb1JZUTdqVDMwZmNseW00ajhfRDN0SEhPU0p5R0pvMnNnZnVKQTN1dkYydkViTEV4SER4N05lWF9ub1hvdkRWWUN2NjlYM2hyRFNXYjNIUXJkd3VZajJCZGZLcFhBdTdnQjBYajZrbXRUYVhsNVlDREtxendjY3dpRGltRlF1a2U1UkxxMEdmdUxBU2tCU0FvU2hCeUI1Nlg0SXLSAd4BQVVfeXFMTkNQUFBlWDJMSDg3U2g2LVVhTlYwTXN4V2wxVDBEMHUwTzJNaXVfVlBGX09LQ2RrZHdvOWtBRlVOZWswNW00N2VQZi1FNWFfdVNVS21MUkFVdGc2d3lKS2FuOW9uY3dEU2xMNFFOc1VfYkI0MHVkMjVLUkZyZVd2N2tQc0lmNmpMTm9DM0N3MUtSQVZYSUVEa2tONUJpcTlBWGF0bnpadWJ0aHByeWdjR2VFdmZhSTlfdUxqZVVxcmw4RUdSQmMyMHhoNHJqSndEYmdBc0QxRjNDdEg4ZkhB?oc=5"
+---
+
+Himachal CM: Power sale to Rajasthan to fetch ₹400 crore in 4 months | Hindustan Times Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxNck93V0pqZ0h1N2Y3OFR5akxnOHh2bU5id0hlUnVMQzFoUHh1WlZhY0dKY0RmYkRVQXZTeDVDb1JZUTdqVDMwZmNseW00ajhfRDN0SEhPU0p5R0pvMnNnZnVKQTN1dkYydkViTEV4SER4N05lWF9ub1hvdkRWWUN2NjlYM2hyRFNXYjNIUXJkd3VZajJCZGZLcFhBdTdnQjBYajZrbXRUYVhsNVlDREtxendjY3dpRGltRlF1a2U1UkxxMEdmdUxBU2tCU0FvU2hCeUI1Nlg0SXLSAd4BQVVfeXFMTkNQUFBlWDJMSDg3U2g2LVVhTlYwTXN4V2wxVDBEMHUwTzJNaXVfVlBGX09LQ2RrZHdvOWtBRlVOZWswNW00N2VQZi1FNWFfdVNVS21MUkFVdGc2d3lKS2FuOW9uY3dEU2xMNFFOc1VfYkI0MHVkMjVLUkZyZVd2N2tQc0lmNmpMTm9DM0N3MUtSQVZYSUVEa2tONUJpcTlBWGF0bnpadWJ0aHByeWdjR2VFdmZhSTlfdUxqZVVxcmw4RUdSQmMyMHhoNHJqSndEYmdBc0QxRjNDdEg4ZkhB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
