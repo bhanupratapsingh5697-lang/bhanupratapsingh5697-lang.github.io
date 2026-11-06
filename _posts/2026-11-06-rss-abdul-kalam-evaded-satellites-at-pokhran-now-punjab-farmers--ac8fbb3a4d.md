@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Abdul Kalam Evaded Satellites At Pokhran. Now Punjab Farmers Are Doing It - NDTV"
+date: 2026-11-06 19:30:51 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxQd0U4UFdTbFpmT0RqMV9ybDByU2Q2Z0lXcTNLV09WN0ZmcTZUMjF1by1tb3NoT0plSVZ6ZVBWaUhoeFZhU2FXQ29iYzJMNXV4R3hZTGZRY01Id1R4RVZXUnZ1YmJPbXQyMm1XdXpXeE9Jb1NNMkpJUjYxVFFad0U5aWdSYVdQQTE1V1JESkNoU2tuX3lPNkpsLTlDWWxTcWRhLVp4LWdQeU5KdllzUlZLcl9wUdIBuwFBVV95cUxOdDEtRmNsb28wTFZ5b1BKLVVsN1YzT1lWOHVSTjFybmJyVDJGWXJ2ZlBEWHRJamFZckQ3TG9SQ0pHX1dmeGNTeWNTTFNzLVN4djZ5MWtfT1ZrUkxBZndFUy1mZElvTkdkejhiYmJDcUdkM3FpNjJVOHk4ZnlFVkZDM3A2Z1FKSUVyeVRIekRUMkg0NHFkSDB4blhfYVJVMmNxLVlMenNoUzZGMVMzQlZQemc0Vmt5OGhHZDFr?oc=5"
+---
+
+Abdul Kalam Evaded Satellites At Pokhran. Now Punjab Farmers Are Doing It NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxQd0U4UFdTbFpmT0RqMV9ybDByU2Q2Z0lXcTNLV09WN0ZmcTZUMjF1by1tb3NoT0plSVZ6ZVBWaUhoeFZhU2FXQ29iYzJMNXV4R3hZTGZRY01Id1R4RVZXUnZ1YmJPbXQyMm1XdXpXeE9Jb1NNMkpJUjYxVFFad0U5aWdSYVdQQTE1V1JESkNoU2tuX3lPNkpsLTlDWWxTcWRhLVp4LWdQeU5KdllzUlZLcl9wUdIBuwFBVV95cUxOdDEtRmNsb28wTFZ5b1BKLVVsN1YzT1lWOHVSTjFybmJyVDJGWXJ2ZlBEWHRJamFZckQ3TG9SQ0pHX1dmeGNTeWNTTFNzLVN4djZ5MWtfT1ZrUkxBZndFUy1mZElvTkdkejhiYmJDcUdkM3FpNjJVOHk4ZnlFVkZDM3A2Z1FKSUVyeVRIekRUMkg0NHFkSDB4blhfYVJVMmNxLVlMenNoUzZGMVMzQlZQemc0Vmt5OGhHZDFr?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "VISTAR: India’s shift towards a real-time, technology-driven statistical system | Explained - The Hindu"
+date: 2026-11-06 11:06:02 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi4gFBVV95cUxNWmJqQVdlSmZzOUk1dmJ6SlpQSnFEaGpjbzdBTVFvVGl5OFVUWXdqUFJsUlozc2xsOFJMSk12WHB2UXE0aU9VMENfb1hycDVBejZoMzlrMGY1ek9lTVpyX3B3ZEZRQUtwVW5ITTRyTFduQmQtVmlpV0dxX1N1TmhoSzl2eF9HS2RSQXpUU2pYMml2eXBWLUVCQWJHUi1tM1M0QlhoZVB1NENpcTNUTnFzMUt5SUJpc0Nib2ZEaHAxNVZQc0ZZS2ZFTjZaZjlWZXIzcUx3eFMzN0lXV2s1MlR5M25n0gHoAUFVX3lxTE5SdTdQc3RlTl9kSGdoMXJLLVVhbGdVTlNodi1HbWpFYVo0dG95SjJwNldyZC1MdFFWSmFfVVBsNHRoRGE0RUVDRjNERzAtby1iQV8tYUVrSDBiYURrYVM5LWtLOEx5dGpieFJUdnZEWkpmeFpVWmM3VjlsdEQxMzFlWFhEOTVfUXg2R2dDRFRFVXF6QTg5QkNybDBHczFOanVLMVN4cFZlWEw4WHlaSVkxbmtqbUlWVlVRNkEzNm9ucUZCYmRSU0hSempaWGxIWXRPbkJ5cFFpQnVfZ2t6Tk03V3kzbDNqejY?oc=5"
+---
+
+VISTAR: India’s shift towards a real-time, technology-driven statistical system | Explained The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4gFBVV95cUxNWmJqQVdlSmZzOUk1dmJ6SlpQSnFEaGpjbzdBTVFvVGl5OFVUWXdqUFJsUlozc2xsOFJMSk12WHB2UXE0aU9VMENfb1hycDVBejZoMzlrMGY1ek9lTVpyX3B3ZEZRQUtwVW5ITTRyTFduQmQtVmlpV0dxX1N1TmhoSzl2eF9HS2RSQXpUU2pYMml2eXBWLUVCQWJHUi1tM1M0QlhoZVB1NENpcTNUTnFzMUt5SUJpc0Nib2ZEaHAxNVZQc0ZZS2ZFTjZaZjlWZXIzcUx3eFMzN0lXV2s1MlR5M25n0gHoAUFVX3lxTE5SdTdQc3RlTl9kSGdoMXJLLVVhbGdVTlNodi1HbWpFYVo0dG95SjJwNldyZC1MdFFWSmFfVVBsNHRoRGE0RUVDRjNERzAtby1iQV8tYUVrSDBiYURrYVM5LWtLOEx5dGpieFJUdnZEWkpmeFpVWmM3VjlsdEQxMzFlWFhEOTVfUXg2R2dDRFRFVXF6QTg5QkNybDBHczFOanVLMVN4cFZlWEw4WHlaSVkxbmtqbUlWVlVRNkEzNm9ucUZCYmRSU0hSempaWGxIWXRPbkJ5cFFpQnVfZ2t6Tk03V3kzbDNqejY?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

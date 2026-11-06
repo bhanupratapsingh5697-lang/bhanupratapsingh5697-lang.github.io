@@ -1,0 +1,17 @@
+---
+layout: post
+title: "U.S. midterm elections: What India is watching after Trump’s setback | Worldview - The Hindu"
+date: 2026-11-06 21:50:03 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxQc3RlbGhFWTBtcllTN0o5X2hYRjZ3dWJIX2FUSFYweUFrODBlcnZiRzcwalhrcU5kSnVFV25PcWRGSHNaWkE2WkVWTm5MRlp5ZUVPVVR3ZjItZDhaUzJUQWZhOENmNTNOSVZ3SEtLWkZpRW9HUnZ4UU5rekVSaUo3NFdEZjd6ZnZNUTlGTUs0M2dKalJYM09ySmxJMnhvX3JpUU5tOTRsNVpmUWFyWldYcUdFRXVlRTJ2NmdoV1I1Z0tDUkE3V0ZSUkV2ZE7SAdMBQVVfeXFMTWFLUzVvdlptSFo5VXd3a3YzN1RUQnBMLTMxa3ZIXzhsVWZxZEpoYWtjaVdGUTNEX2NxTkVvOENtWXR0UG9fUFdTaXo2Q0pkQVZZSEVKNEFwNktwLWdpcVpVb196UFBaSm1Id01yeGJsYlJ6ZFQ4d254R0RLbUg1WDRYV3Zpb3Zrek1ESVdleldJVDhNUzJzcXFCYWVxSFZlLU9naFRPXzF2SzdIMUZQSmg4ZVdzMmE4aUx0SGI1N2tHMFFtQmkzdTBra0xDVGVsNFhSQQ?oc=5"
+---
+
+U.S. midterm elections: What India is watching after Trump’s setback | Worldview The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxQc3RlbGhFWTBtcllTN0o5X2hYRjZ3dWJIX2FUSFYweUFrODBlcnZiRzcwalhrcU5kSnVFV25PcWRGSHNaWkE2WkVWTm5MRlp5ZUVPVVR3ZjItZDhaUzJUQWZhOENmNTNOSVZ3SEtLWkZpRW9HUnZ4UU5rekVSaUo3NFdEZjd6ZnZNUTlGTUs0M2dKalJYM09ySmxJMnhvX3JpUU5tOTRsNVpmUWFyWldYcUdFRXVlRTJ2NmdoV1I1Z0tDUkE3V0ZSUkV2ZE7SAdMBQVVfeXFMTWFLUzVvdlptSFo5VXd3a3YzN1RUQnBMLTMxa3ZIXzhsVWZxZEpoYWtjaVdGUTNEX2NxTkVvOENtWXR0UG9fUFdTaXo2Q0pkQVZZSEVKNEFwNktwLWdpcVpVb196UFBaSm1Id01yeGJsYlJ6ZFQ4d254R0RLbUg1WDRYV3Zpb3Zrek1ESVdleldJVDhNUzJzcXFCYWVxSFZlLU9naFRPXzF2SzdIMUZQSmg4ZVdzMmE4aUx0SGI1N2tHMFFtQmkzdTBra0xDVGVsNFhSQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

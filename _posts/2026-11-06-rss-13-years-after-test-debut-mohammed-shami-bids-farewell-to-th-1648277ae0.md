@@ -1,0 +1,17 @@
+---
+layout: post
+title: "13 years after Test debut, Mohammed Shami bids farewell to the longest format - India Today"
+date: 2026-11-06 23:33:14 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxONURVbmpteXpkOTFaRmhrd0plNDJteDd5bzh0d1JfYVV2a015d1hxVDFQLUlBVGZrQ1prdW5IR0J0Vno0aXNiZGl2S3o4RDl1NWRiNTRyVXlEWG4wYnNWOFB0S1hieU5YWGFiMXFCTVpLLXFHSjR0SFhEaXNjd3dxckU2RUs1ZGFjWXhCUVV0X2xUM3VieFI5UlFiTXdRSkt5YWpYZWwyR0xzWElRbkpRSEp1Sk9QQ3U00gG-AUFVX3lxTFB1TFhCS29ONGtLTzRNbFB0QkVJVU9MTzRJUzlfS2RHUzdNWGczb0tpWnNWMnhsS3FDeDNuMjFWUmZBR25lQlB2RThtZzAyVmZKaG9LRkx3SVFCb1dseWNOQWg5VDU0M2wxVnJZci03aC1jNnBFMTVuZElyM1pybWh6SVZ4N3FNcGw5c1ZKcEY0a3RoR3ZQWU9ueWdVYlBFYlVvWWlRckF4Mmg1OXhTeUczM0hkZ0pHWG5Ha1JnVnc?oc=5"
+---
+
+13 years after Test debut, Mohammed Shami bids farewell to the longest format India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxONURVbmpteXpkOTFaRmhrd0plNDJteDd5bzh0d1JfYVV2a015d1hxVDFQLUlBVGZrQ1prdW5IR0J0Vno0aXNiZGl2S3o4RDl1NWRiNTRyVXlEWG4wYnNWOFB0S1hieU5YWGFiMXFCTVpLLXFHSjR0SFhEaXNjd3dxckU2RUs1ZGFjWXhCUVV0X2xUM3VieFI5UlFiTXdRSkt5YWpYZWwyR0xzWElRbkpRSEp1Sk9QQ3U00gG-AUFVX3lxTFB1TFhCS29ONGtLTzRNbFB0QkVJVU9MTzRJUzlfS2RHUzdNWGczb0tpWnNWMnhsS3FDeDNuMjFWUmZBR25lQlB2RThtZzAyVmZKaG9LRkx3SVFCb1dseWNOQWg5VDU0M2wxVnJZci03aC1jNnBFMTVuZElyM1pybWh6SVZ4N3FNcGw5c1ZKcEY0a3RoR3ZQWU9ueWdVYlBFYlVvWWlRckF4Mmg1OXhTeUczM0hkZ0pHWG5Ha1JnVnc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

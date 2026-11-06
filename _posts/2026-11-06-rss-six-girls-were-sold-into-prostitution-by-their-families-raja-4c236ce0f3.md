@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Six girls were sold into prostitution by their families, Rajasthan cops used decoy to save them - The Indian Express"
+date: 2026-11-06 17:30:41 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxQNkcwUTlMdW5UMzNxdklzRXdWLUFFYmpJdlg4SWZmcUZpTU5kdDd5YnJyX1NLVnhLeGhUek1SMm9jX2tkOWhDSUNNcWNBY3ZxVFdqWVB5dnJBaFFDZ0RtT0szVGVNSDdPOU9oaU83dTMzRl9SbEtJOUNhYlV2V2JkMTI0MUlyamRKMVlGeW5uNUhPQXptaDVkcmNLd3JlZlIwLW42S2syalRZbGZOWVJaMkhR0gG4AUFVX3lxTE5sUm45WWJZYWNEcnRhS3pZa2UwOTVGQlUzTFc3Q0JHc200Zm1sUWVsbnNkbTJ6QUltdzhVS0hybW9UcG5lMGRYb3gyZ2Npcl8xWEhhYzJCZDNCWmVRczZ2cEhFa3pGSHJwTFRlTWZOaTgxYkUwMVVSU2NKYTlIcXBmcFVXb182TEdSa0lqNkplSXF1Vlc2VFBvUWlaZTRldlhfejhtdm5NWmtIbmt0bE02N1NMQ2lnR0Y?oc=5"
+---
+
+Six girls were sold into prostitution by their families, Rajasthan cops used decoy to save them The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxQNkcwUTlMdW5UMzNxdklzRXdWLUFFYmpJdlg4SWZmcUZpTU5kdDd5YnJyX1NLVnhLeGhUek1SMm9jX2tkOWhDSUNNcWNBY3ZxVFdqWVB5dnJBaFFDZ0RtT0szVGVNSDdPOU9oaU83dTMzRl9SbEtJOUNhYlV2V2JkMTI0MUlyamRKMVlGeW5uNUhPQXptaDVkcmNLd3JlZlIwLW42S2syalRZbGZOWVJaMkhR0gG4AUFVX3lxTE5sUm45WWJZYWNEcnRhS3pZa2UwOTVGQlUzTFc3Q0JHc200Zm1sUWVsbnNkbTJ6QUltdzhVS0hybW9UcG5lMGRYb3gyZ2Npcl8xWEhhYzJCZDNCWmVRczZ2cEhFa3pGSHJwTFRlTWZOaTgxYkUwMVVSU2NKYTlIcXBmcFVXb182TEdSa0lqNkplSXF1Vlc2VFBvUWlaZTRldlhfejhtdm5NWmtIbmt0bE02N1NMQ2lnR0Y?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

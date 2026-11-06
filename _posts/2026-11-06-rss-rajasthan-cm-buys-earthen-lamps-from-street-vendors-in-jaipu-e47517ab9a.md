@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan CM buys earthen lamps from street vendors in Jaipur on Dhanteras - ThePrint"
+date: 2026-11-06 21:20:18 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxQemV1VXZwT0I3a1c3TjhaeVZQQVdTQi1pa1E2WTBiaC16N3RIMTI4WFlFMUhnZ0RfVTNjYUdMeFlWeFBpRXVidE80UVdUWVFJQVlQMjBEVnBjUnpKWmhEejF3aDRiZndhRENQNTUzbVhfUWlIeEpZc1ZFbGxhZFY4dUhvWWpJUUlld1Fpa0wyU19hYjJBZmlsUGZTYXB6RXJUZWFIUjNxSms0LXJYQmfSAbMBQVVfeXFMT1FhcVdzOHJqYkNua25DdXpUejRVcXduUk9MR3A2VUNBYUtCY01qOTJhbnhrWkZqMXRtU3FsdXNMVld2Z3hYS2JZY2xQVUQ1cmhfNFR4WXgyd244Wm10bWNXZ1V4dGVkbzFqTGpFUl9DbGlBcGxpTllSMzZFZmFhY2NJSzkycURVWUhfb0R1VmpucGpVWFRORWliWFpqMm9KOWZReUZqSzdhSjhJLVdmZHlNVVE?oc=5"
+---
+
+Rajasthan CM buys earthen lamps from street vendors in Jaipur on Dhanteras ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxQemV1VXZwT0I3a1c3TjhaeVZQQVdTQi1pa1E2WTBiaC16N3RIMTI4WFlFMUhnZ0RfVTNjYUdMeFlWeFBpRXVidE80UVdUWVFJQVlQMjBEVnBjUnpKWmhEejF3aDRiZndhRENQNTUzbVhfUWlIeEpZc1ZFbGxhZFY4dUhvWWpJUUlld1Fpa0wyU19hYjJBZmlsUGZTYXB6RXJUZWFIUjNxSms0LXJYQmfSAbMBQVVfeXFMT1FhcVdzOHJqYkNua25DdXpUejRVcXduUk9MR3A2VUNBYUtCY01qOTJhbnhrWkZqMXRtU3FsdXNMVld2Z3hYS2JZY2xQVUQ1cmhfNFR4WXgyd244Wm10bWNXZ1V4dGVkbzFqTGpFUl9DbGlBcGxpTllSMzZFZmFhY2NJSzkycURVWUhfb0R1VmpucGpVWFRORWliWFpqMm9KOWZReUZqSzdhSjhJLVdmZHlNVVE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

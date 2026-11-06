@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India pacer Mohammed Shami retires from Test cricket - The Indian Express"
+date: 2026-11-06 23:28:48 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMisAFBVV95cUxOQ2ZiNTlLaUJ6VlBsY20zWEJVTmVxYVZSM0xmRm9RZTlBUkFibnNOc2ZFakRTdWxoN0FraXQ4WU1VTVNZaHlQT196NFNJU2ltOUZhWFhuVW5aTGJYekI5MW5VcHltOEJGQTdZMGxpc3YzUk9WTUlVaERnRE5PTHBFbHg2R190MzZtRmdBZWZ0OW51M3JCVXNOeDYzVWNYUEdKM0Y4R1BDQUFNa01MLWVtOdIBtwFBVV95cUxOYzhNaEtrMi1zQXpzWGNYVENnTHpyeVdyU2hySm9yMXhUZ3RKS1RmT2NhbnNtYTBYQWhVUTROWGlWZTF2STFDM2NheXppeG9Pbl9MRHd2MVl6VHBQbE5hWU04N1h2akdKLVh5WGQ2VHlRSXhqU3lwZ0tMT0d3dlBhRF9lYy1wUGRZYmZkMUhpbVkxTGVVcXRwR2d0QnlNOFVKSjhLYXVaUXB5WjhtbWtGeWFsdVYwLWs?oc=5"
+---
+
+India pacer Mohammed Shami retires from Test cricket The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisAFBVV95cUxOQ2ZiNTlLaUJ6VlBsY20zWEJVTmVxYVZSM0xmRm9RZTlBUkFibnNOc2ZFakRTdWxoN0FraXQ4WU1VTVNZaHlQT196NFNJU2ltOUZhWFhuVW5aTGJYekI5MW5VcHltOEJGQTdZMGxpc3YzUk9WTUlVaERnRE5PTHBFbHg2R190MzZtRmdBZWZ0OW51M3JCVXNOeDYzVWNYUEdKM0Y4R1BDQUFNa01MLWVtOdIBtwFBVV95cUxOYzhNaEtrMi1zQXpzWGNYVENnTHpyeVdyU2hySm9yMXhUZ3RKS1RmT2NhbnNtYTBYQWhVUTROWGlWZTF2STFDM2NheXppeG9Pbl9MRHd2MVl6VHBQbE5hWU04N1h2akdKLVh5WGQ2VHlRSXhqU3lwZ0tMT0d3dlBhRF9lYy1wUGRZYmZkMUhpbVkxTGVVcXRwR2d0QnlNOFVKSjhLYXVaUXB5WjhtbWtGeWFsdVYwLWs?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

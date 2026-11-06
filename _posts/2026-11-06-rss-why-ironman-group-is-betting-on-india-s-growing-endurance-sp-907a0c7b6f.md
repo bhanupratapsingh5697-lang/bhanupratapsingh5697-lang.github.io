@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Why Ironman Group is betting on India's growing endurance sports market with UTMB expansion plans - CNBC TV18"
+date: 2026-11-06 21:40:52 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxPVEJIZHlCWlp2SnZrb2NNR0FYckhrZlFfeXlMc2ZtNU9qUEFYQ1lrdjJfVnJ1alpDV1ZyazZISS1jX29XOTR3TzVUdHRrQWpfcnQ5V2ZKNlZTby1IYUNDZDZZMHlyV1JseUlJeWtlYkFzMHhUMExnc1VMZTNQLXFiYWtmR2IwV2E3YzdVeTBsMkRYSnYtN1FRUEF4MnctUXFPOVZtSXZEdWJMdzNKbGNpVHV2WE5yRktMdUgxTmlPZE9vZ0JX0gHKAUFVX3lxTE95emZ6bk5GQnhTcXBFbVREcmJralEtYXozX2pMeUI1c3ZsNmtnZ2h6WThxajhDZG01UmNFU1laWTZKREc0NmNkam9uR1R3dm9JaWtrNG9FaHBtbUktSlJRaHZpcy04MHA3ZlhLQUhtV2ZhZWRJblVacHM2ZS04ZUxWaldvTGt3Q2ZYZEtvcGxuQ3otcEdqV0JrWE5NZ3UxN0ZYVFR0akE1YXVpTHhWVjY1dUdYcjJ3MTNWOGZlWjhlLUN6SDlVYzJXUUE?oc=5"
+---
+
+Why Ironman Group is betting on India's growing endurance sports market with UTMB expansion plans CNBC TV18
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxPVEJIZHlCWlp2SnZrb2NNR0FYckhrZlFfeXlMc2ZtNU9qUEFYQ1lrdjJfVnJ1alpDV1ZyazZISS1jX29XOTR3TzVUdHRrQWpfcnQ5V2ZKNlZTby1IYUNDZDZZMHlyV1JseUlJeWtlYkFzMHhUMExnc1VMZTNQLXFiYWtmR2IwV2E3YzdVeTBsMkRYSnYtN1FRUEF4MnctUXFPOVZtSXZEdWJMdzNKbGNpVHV2WE5yRktMdUgxTmlPZE9vZ0JX0gHKAUFVX3lxTE95emZ6bk5GQnhTcXBFbVREcmJralEtYXozX2pMeUI1c3ZsNmtnZ2h6WThxajhDZG01UmNFU1laWTZKREc0NmNkam9uR1R3dm9JaWtrNG9FaHBtbUktSlJRaHZpcy04MHA3ZlhLQUhtV2ZhZWRJblVacHM2ZS04ZUxWaldvTGt3Q2ZYZEtvcGxuQ3otcEdqV0JrWE5NZ3UxN0ZYVFR0akE1YXVpTHhWVjY1dUdYcjJ3MTNWOGZlWjhlLUN6SDlVYzJXUUE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

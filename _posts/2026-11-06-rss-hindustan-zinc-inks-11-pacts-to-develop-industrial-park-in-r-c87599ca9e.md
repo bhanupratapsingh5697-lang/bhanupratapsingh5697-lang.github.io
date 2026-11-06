@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Hindustan Zinc inks 11 pacts to develop industrial park in Rajasthan - Daily Pioneer"
+date: 2026-11-06 04:14:15 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMioAFBVV95cUxOc1Z6bzZZWjdYUlZXVnl0SWdGdVYzSDctUmM1SWw5ZkQwVzBFZXpWR2ExVnpad01mRVNtTnZJcTlvN180TUdUV0tvWFBFRVBlVFV2MW9KM1dBNWZNa0FWRnBiVVowQ2RxT2N4TTNvQWVIQWdBLUsyRVNuWHpmaU9MLUlNT1pYU09lSFB4RmVXMFBER3RtV2ZLaXBCd0pfVEVK0gGuAUFVX3lxTFAwYXRzNDI4M1o0YVMzYlV1RmdoSEFWXzBqekFPUzh5MXhrbEttVHplSEY2alMwdGMxNDN3UUEzWXJZQzZlaVREb1N1bEtoU2Rud0Fsd3dHRHViS3FVSlBtTUhXalF5VGJQM3R5VGpVaktpRDU4OHhtQ3hibWdnNGF4elZUR2VfSmt1cFhXTHh3ZlhyZWd3MVdtWWp5RkN3N1FkcDNGYkNjS1RFaWh3QQ?oc=5"
+---
+
+Hindustan Zinc inks 11 pacts to develop industrial park in Rajasthan Daily Pioneer
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMioAFBVV95cUxOc1Z6bzZZWjdYUlZXVnl0SWdGdVYzSDctUmM1SWw5ZkQwVzBFZXpWR2ExVnpad01mRVNtTnZJcTlvN180TUdUV0tvWFBFRVBlVFV2MW9KM1dBNWZNa0FWRnBiVVowQ2RxT2N4TTNvQWVIQWdBLUsyRVNuWHpmaU9MLUlNT1pYU09lSFB4RmVXMFBER3RtV2ZLaXBCd0pfVEVK0gGuAUFVX3lxTFAwYXRzNDI4M1o0YVMzYlV1RmdoSEFWXzBqekFPUzh5MXhrbEttVHplSEY2alMwdGMxNDN3UUEzWXJZQzZlaVREb1N1bEtoU2Rud0Fsd3dHRHViS3FVSlBtTUhXalF5VGJQM3R5VGpVaktpRDU4OHhtQ3hibWdnNGF4elZUR2VfSmt1cFhXTHh3ZlhyZWd3MVdtWWp5RkN3N1FkcDNGYkNjS1RFaWh3QQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

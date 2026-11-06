@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India’s only floating post office gets longer working hours - The Times of India"
+date: 2026-11-07 00:25:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxOd0N1YkU3Y18yY2FQWEZ1eU90YXhiTldEcTdycEtpTFBoc0J1YzlPV2I5djdhLW4zNF80TzVtOWFjV080emExSzBWbHFFOFQtTkdOaG11d2lwTW1PVDA1TW1nMDlxWmotU29tRzZnbDVQbFRBWEkzcnRaRzV1TUFCeDE3dGZ3NUpJT29QVHhQVzlGSWt4WTNMYTFxRXhDRkZzLUUxeERoNkJ6ZHdtRUctd0hIX2ZyMXFFbHR3d2xvaHNWQVZK0gHKAUFVX3lxTE5CU0FPUmVEcVBUR3RFV3NQU2tvcGRQVEdTVl9OYTlTaEFPRTJqbjlMWFdxeEhIWWpnSFBQazF3Vm9XRUI2dVgtaHhJNzF2WlJmaURTbFU2dTM3QW40NDQtY2dTaElWUDJobzVHYW9aLTBpUHhNenRZWk5iX3Y0eHgtM0d4VzR2cUtiRUJ0Y0I4NWVFV0RCVVBFZ3d6b1lsSEpoWjA0T0ZvaWpUYVhqU2J2R1NLVFF2bHdHcDBHZHNVQmF4bWxJcmpBeUE?oc=5"
+---
+
+India’s only floating post office gets longer working hours The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxOd0N1YkU3Y18yY2FQWEZ1eU90YXhiTldEcTdycEtpTFBoc0J1YzlPV2I5djdhLW4zNF80TzVtOWFjV080emExSzBWbHFFOFQtTkdOaG11d2lwTW1PVDA1TW1nMDlxWmotU29tRzZnbDVQbFRBWEkzcnRaRzV1TUFCeDE3dGZ3NUpJT29QVHhQVzlGSWt4WTNMYTFxRXhDRkZzLUUxeERoNkJ6ZHdtRUctd0hIX2ZyMXFFbHR3d2xvaHNWQVZK0gHKAUFVX3lxTE5CU0FPUmVEcVBUR3RFV3NQU2tvcGRQVEdTVl9OYTlTaEFPRTJqbjlMWFdxeEhIWWpnSFBQazF3Vm9XRUI2dVgtaHhJNzF2WlJmaURTbFU2dTM3QW40NDQtY2dTaElWUDJobzVHYW9aLTBpUHhNenRZWk5iX3Y0eHgtM0d4VzR2cUtiRUJ0Y0I4NWVFV0RCVVBFZ3d6b1lsSEpoWjA0T0ZvaWpUYVhqU2J2R1NLVFF2bHdHcDBHZHNVQmF4bWxJcmpBeUE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
