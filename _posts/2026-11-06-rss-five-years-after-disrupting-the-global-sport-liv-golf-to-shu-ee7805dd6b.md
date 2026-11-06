@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Five Years After Disrupting The Global Sport, LIV Golf To Shut Down - News18"
+date: 2026-11-06 11:41:14 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxNdjVPQ2pFblcydDhTVFNidkl4T0VrU0dtM3ZfeklxZzQ0eF9qNXp2ZmxLMVRlVW9nWGpVNmt4WExVT2EwNlZIcC05cDBMVGxCSW9RYUNUSzNMUXNpV01XczdQeTEwUE5kSDRGVmNiR2cySEhITUVGTEpLaHVtYjVjM0ZxQ1pybkdoZllyNUhkdW5YSUpfbTl1aHVQdTdENXZxRVFPVlBmXzc5OWY4RDRRMXZqNDdRR1U1dWhnRHlkMkVpcDJlWkZZ0gHMAUFVX3lxTE9hclh3bHVvYWNGUUg0bHY3aTMtckxJai00RjVYMVRSSnRXRzNGLVd2ZXd0V1E3THRXbVdxR0gxMzBzaVJ4NkY0OGRBN3RiWDFxYnBlUkFjQTMydy1vTjMzSTRFVDBXM2N5b2VjZUtNZUI5bU1aa0hBd09RZmpLZGItX3dvMzZuZlc1Sl8xeXBYbEpsT05MZUJEUU1tU3hNV3h6bnExT3FTX3NXR0V0OTVocEpuZW5JaGc2dU9relhMM0Fpa09FeVRJX2hWVQ?oc=5"
+---
+
+Five Years After Disrupting The Global Sport, LIV Golf To Shut Down News18
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxNdjVPQ2pFblcydDhTVFNidkl4T0VrU0dtM3ZfeklxZzQ0eF9qNXp2ZmxLMVRlVW9nWGpVNmt4WExVT2EwNlZIcC05cDBMVGxCSW9RYUNUSzNMUXNpV01XczdQeTEwUE5kSDRGVmNiR2cySEhITUVGTEpLaHVtYjVjM0ZxQ1pybkdoZllyNUhkdW5YSUpfbTl1aHVQdTdENXZxRVFPVlBmXzc5OWY4RDRRMXZqNDdRR1U1dWhnRHlkMkVpcDJlWkZZ0gHMAUFVX3lxTE9hclh3bHVvYWNGUUg0bHY3aTMtckxJai00RjVYMVRSSnRXRzNGLVd2ZXd0V1E3THRXbVdxR0gxMzBzaVJ4NkY0OGRBN3RiWDFxYnBlUkFjQTMydy1vTjMzSTRFVDBXM2N5b2VjZUtNZUI5bU1aa0hBd09RZmpLZGItX3dvMzZuZlc1Sl8xeXBYbEpsT05MZUJEUU1tU3hNV3h6bnExT3FTX3NXR0V0OTVocEpuZW5JaGc2dU9relhMM0Fpa09FeVRJX2hWVQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "82.32% turnout in third phase polling for Rajasthan panchayat elections - The Statesman"
+date: 2026-11-05 21:40:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxQSkNtb09yT0dZYWVyWWxDQ0hlTVlydFVGWVNYUE5Pa0E0TkQyMXNkd0loQ1JMSzh6NkZ2YXFQMHkzMC1haGFobkJwWlU3ZzZYV0dmenl2aWtmSGhNWklFeVJzYkpCdHdfbE5OX2tydTBJbDJSU0cySU1rcXhEbjJ2X1ppcjRTVTZ4WkR0ZnFsTExNM1dxQVR2dHFfQ0NfdktoN2pEdm9WM0FCdFp5eXRFdjR2QU9vYzM1ZWNOSU9n0gHDAUFVX3lxTFBLZlIzU01FRDVvRUtzWkM0YXNNWXFQRnNrMWIwaFprT1hJcXptLTJhejZHSG91amJfX21hdzZ3UVU0YndseE55TEpmb1hDaFNJc3JiSUE5WGdBRFdET2w5eTdTa1BiSDZOdW5BWHNFSGpuWmNVRWotd3dzMVZVVTFYY1NVSTRURmNQamozcUN3eFF2cG5OUzB0Y3k4cFE3ZHFPbUw4eC1zZnJYZnBiUlJJMUNCMlJ0VEtaZWtNb1NfWUZySQ?oc=5"
+---
+
+82.32% turnout in third phase polling for Rajasthan panchayat elections The Statesman
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxQSkNtb09yT0dZYWVyWWxDQ0hlTVlydFVGWVNYUE5Pa0E0TkQyMXNkd0loQ1JMSzh6NkZ2YXFQMHkzMC1haGFobkJwWlU3ZzZYV0dmenl2aWtmSGhNWklFeVJzYkpCdHdfbE5OX2tydTBJbDJSU0cySU1rcXhEbjJ2X1ppcjRTVTZ4WkR0ZnFsTExNM1dxQVR2dHFfQ0NfdktoN2pEdm9WM0FCdFp5eXRFdjR2QU9vYzM1ZWNOSU9n0gHDAUFVX3lxTFBLZlIzU01FRDVvRUtzWkM0YXNNWXFQRnNrMWIwaFprT1hJcXptLTJhejZHSG91amJfX21hdzZ3UVU0YndseE55TEpmb1hDaFNJc3JiSUE5WGdBRFdET2w5eTdTa1BiSDZOdW5BWHNFSGpuWmNVRWotd3dzMVZVVTFYY1NVSTRURmNQamozcUN3eFF2cG5OUzB0Y3k4cFE3ZHFPbUw4eC1zZnJYZnBiUlJJMUNCMlJ0VEtaZWtNb1NfWUZySQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

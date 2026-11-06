@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Perpetrators of attacks against Blue Helmets must be held accountable: India at UN - The Hindu"
+date: 2026-11-06 11:16:54 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxQamVKYktNdTJELXNPVTRYRVkzOUhzNUVfbVIxRlF4cnk0T2dmMzYxNVp3ci1hZHBRMWFHNFhCY0pwMTZOd3dxNVRsVTBrTjJHdWlUbmUyemE1Ui1iVlc1Z1FlZ3dZUFk5XzJxM2RYeEJIM2xpN0tLbW1kaHp6MjZac2loak0wdlduN3AwcF9TbUlXUXFralI0MkpDZDVfYzRMdXY0MG0tclJ0NzJRM0d4cThGSEZGd3hOZEE2T1IwU0lJN3d1WUVUbjdKTEpvNVRLaFVoU2w3c9IB3gFBVV95cUxQWUFQUFNmV2doSTdPTUxYcHlMLTFXYU1iTmMtU1lucFFIcEFCQjNiSmlYMlZCcTZpNnVZSTQtaXdoSEJ1WUpuQU5yNzZuZVNzLVZNeW1kM1ZVZ0hWX1J3RkFyRTJ4THRIMXl2UWpJZGpERnd5MW9FZnlOMkJZOGxFekR2dXdZQVdneWJaX1d6MkVFRTBwX2JVOTgxTXg4VDRzem1ERHhQdlNJbGxIZHVNTzZEOV9NemNXV0JNekR0X3VRSG5xRC1WQVFRM25YWnNxNE5pZ01EWlo5dEJObWc?oc=5"
+---
+
+Perpetrators of attacks against Blue Helmets must be held accountable: India at UN The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQamVKYktNdTJELXNPVTRYRVkzOUhzNUVfbVIxRlF4cnk0T2dmMzYxNVp3ci1hZHBRMWFHNFhCY0pwMTZOd3dxNVRsVTBrTjJHdWlUbmUyemE1Ui1iVlc1Z1FlZ3dZUFk5XzJxM2RYeEJIM2xpN0tLbW1kaHp6MjZac2loak0wdlduN3AwcF9TbUlXUXFralI0MkpDZDVfYzRMdXY0MG0tclJ0NzJRM0d4cThGSEZGd3hOZEE2T1IwU0lJN3d1WUVUbjdKTEpvNVRLaFVoU2w3c9IB3gFBVV95cUxQWUFQUFNmV2doSTdPTUxYcHlMLTFXYU1iTmMtU1lucFFIcEFCQjNiSmlYMlZCcTZpNnVZSTQtaXdoSEJ1WUpuQU5yNzZuZVNzLVZNeW1kM1ZVZ0hWX1J3RkFyRTJ4THRIMXl2UWpJZGpERnd5MW9FZnlOMkJZOGxFekR2dXdZQVdneWJaX1d6MkVFRTBwX2JVOTgxTXg4VDRzem1ERHhQdlNJbGxIZHVNTzZEOV9NemNXV0JNekR0X3VRSG5xRC1WQVFRM25YWnNxNE5pZ01EWlo5dEJObWc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

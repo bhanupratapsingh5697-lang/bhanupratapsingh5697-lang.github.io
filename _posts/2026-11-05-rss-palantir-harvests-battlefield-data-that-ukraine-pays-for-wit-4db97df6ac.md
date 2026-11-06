@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Palantir harvests battlefield data that Ukraine pays for ‘with blood’ - Al Jazeera"
+date: 2026-11-05 17:15:35 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxPTExPQndoc1QyZTBad1lLWnhqbnNpTTNEdlZDb2FtSEdhbW9oNEJVWFdEdUliS21zN0s5emZreldRRkhHVXNzcGZ6RG0yZzNRSndMTk9OdDJhd1Nqa0JfWW9mczFneWxnTnZJdFJOZXVtYTF1T2tsTlljbkxiTVZtYmVnNkI4TG5HelB6YzNpY0h4NFJjQUtYSXEtUjNxNHkyVGppWDR2aWJ6MnRTdGhlTFlvd9IBuAFBVV95cUxNSkdJSE5nOFFMeEpvb1FTTjhpWG1FT3JlRVBScGxXR0w4WnJzUTFEaW5rQ1VwUl9xSkd0Zk9yNU9qTVZTSG9KWUVmckhJRE1SdDZJeWc3Vlp6NWpab19CdThyV1cyNUVRSHh4bGVRaVVfX2NxTmRWNzdtZ3hvRnYyTjIxTFpSWC1zMGxudmotUXBMZmphVXRIZDJpVVFsVUt0MVZjRTdzVW5DajNlQkdPX0lyaE12dUo2?oc=5"
+---
+
+Palantir harvests battlefield data that Ukraine pays for ‘with blood’ Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxPTExPQndoc1QyZTBad1lLWnhqbnNpTTNEdlZDb2FtSEdhbW9oNEJVWFdEdUliS21zN0s5emZreldRRkhHVXNzcGZ6RG0yZzNRSndMTk9OdDJhd1Nqa0JfWW9mczFneWxnTnZJdFJOZXVtYTF1T2tsTlljbkxiTVZtYmVnNkI4TG5HelB6YzNpY0h4NFJjQUtYSXEtUjNxNHkyVGppWDR2aWJ6MnRTdGhlTFlvd9IBuAFBVV95cUxNSkdJSE5nOFFMeEpvb1FTTjhpWG1FT3JlRVBScGxXR0w4WnJzUTFEaW5rQ1VwUl9xSkd0Zk9yNU9qTVZTSG9KWUVmckhJRE1SdDZJeWc3Vlp6NWpab19CdThyV1cyNUVRSHh4bGVRaVVfX2NxTmRWNzdtZ3hvRnYyTjIxTFpSWC1zMGxudmotUXBMZmphVXRIZDJpVVFsVUt0MVZjRTdzVW5DajNlQkdPX0lyaE12dUo2?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Keralam bizman arrested for raping Rajasthan tourist - The Times of India"
+date: 2026-11-05 23:07:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxQX0dyNkhORTlGZWdYS2I4cEVyYTVXaFBCc2M3dExJZkNGcTNmSzRkaXBSclh2OGtEanM3d3dIOGhwLTcxOW1WNEFvaWFEMkN2NkhDRXowcWVHeFprOXBfRExqaVkxQkVoYnJ4Y0pKS1lBZEZ6cU0xVXZFZmg5ajB6dWVHOUtUQjd0RUlpQzNsTTZMdEExaVRqYVZzREhITHhTNnFrRUhjOHBpNnR3SVZNdmpRVWZ3MVIwLVdyeGJfWWtLcEpFRXR6YtIBzgFBVV95cUxPYmRuSmkxaWpEVUhIMWRrYlFoRi1VcDN3QW5WR3F3eTdsLW83ZUJOemdoT0t2dEJIQ0FYVlV4dy1HS2ZvallDWFMtZ1FPVi0xYnVoOVJpMjJJZUFxLVNSN3Zmd3RNOW1UODZFeVdTRUJpUDZlLS1sOFFoTWxzR1AwaGNQblFtSUU4Yk1LVjg5elVMWXdWMjZ3dUlsTjU2ZnJJTDFSejk1Z0NBSXA2ZktFMjlOeUVJVXhXSm8xRUFMTS1tNXNCcXNRSVZ1enFwUQ?oc=5"
+---
+
+Keralam bizman arrested for raping Rajasthan tourist The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQX0dyNkhORTlGZWdYS2I4cEVyYTVXaFBCc2M3dExJZkNGcTNmSzRkaXBSclh2OGtEanM3d3dIOGhwLTcxOW1WNEFvaWFEMkN2NkhDRXowcWVHeFprOXBfRExqaVkxQkVoYnJ4Y0pKS1lBZEZ6cU0xVXZFZmg5ajB6dWVHOUtUQjd0RUlpQzNsTTZMdEExaVRqYVZzREhITHhTNnFrRUhjOHBpNnR3SVZNdmpRVWZ3MVIwLVdyeGJfWWtLcEpFRXR6YtIBzgFBVV95cUxPYmRuSmkxaWpEVUhIMWRrYlFoRi1VcDN3QW5WR3F3eTdsLW83ZUJOemdoT0t2dEJIQ0FYVlV4dy1HS2ZvallDWFMtZ1FPVi0xYnVoOVJpMjJJZUFxLVNSN3Zmd3RNOW1UODZFeVdTRUJpUDZlLS1sOFFoTWxzR1AwaGNQblFtSUU4Yk1LVjg5elVMWXdWMjZ3dUlsTjU2ZnJJTDFSejk1Z0NBSXA2ZktFMjlOeUVJVXhXSm8xRUFMTS1tNXNCcXNRSVZ1enFwUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

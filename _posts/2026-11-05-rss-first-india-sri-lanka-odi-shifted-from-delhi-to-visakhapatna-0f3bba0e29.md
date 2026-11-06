@@ -1,0 +1,17 @@
+---
+layout: post
+title: "First India-Sri Lanka ODI shifted from Delhi to Visakhapatnam - Cricinfo"
+date: 2026-11-05 19:29:10 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiogFBVV95cUxQQnp6R0RvR1p2UmZoXy05LUhCZkdtQjN1TW1CcGZ5Z1hYcHpKYUM3bG1majV0Qmd4ZzY0MjlyeWRIUWlaWENVTEtjWG5zN3hZRXh2enIyTVdVdXFyb3BmT2QtOVRKZzhVdGdEZ2xpYUwxd3Q0bnhCWHUxZXN3NlBCdXB6UnZSYWpaakMyLWI4WFZhaUdjT2k0ZUZXdnRHWFJ0dUHSAbMBQVVfeXFMT2tIeVpPR3hnMU1YZm43WFNhQW11cjltdllCVm9nbUl2Yk1VOHBmRzdUUk5wd1Eta2J3Z0hiTUZ1ZFNtMG1fT185VDZPcXFJelU5YUhFYmFHcUF3bU84Ri11RHJPV1V1a0NzcmNOOENMTkN0Nkl2Zk5WWkNsQnU4dDBGX0hpZURHdll5S2JuLUx2X21NZGFuMi1FLTFjLTlJUl9tN0Q4U1ZTeWpBWFVaQlY5Y2M?oc=5"
+---
+
+First India-Sri Lanka ODI shifted from Delhi to Visakhapatnam Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiogFBVV95cUxQQnp6R0RvR1p2UmZoXy05LUhCZkdtQjN1TW1CcGZ5Z1hYcHpKYUM3bG1majV0Qmd4ZzY0MjlyeWRIUWlaWENVTEtjWG5zN3hZRXh2enIyTVdVdXFyb3BmT2QtOVRKZzhVdGdEZ2xpYUwxd3Q0bnhCWHUxZXN3NlBCdXB6UnZSYWpaakMyLWI4WFZhaUdjT2k0ZUZXdnRHWFJ0dUHSAbMBQVVfeXFMT2tIeVpPR3hnMU1YZm43WFNhQW11cjltdllCVm9nbUl2Yk1VOHBmRzdUUk5wd1Eta2J3Z0hiTUZ1ZFNtMG1fT185VDZPcXFJelU5YUhFYmFHcUF3bU84Ri11RHJPV1V1a0NzcmNOOENMTkN0Nkl2Zk5WWkNsQnU4dDBGX0hpZURHdll5S2JuLUx2X21NZGFuMi1FLTFjLTlJUl9tN0Q4U1ZTeWpBWFVaQlY5Y2M?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Centre takes over 39.5 acres of land housing IAF’s sports complex at Race Course - The Times of India"
+date: 2026-11-06 06:50:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi3gFBVV95cUxNRy1GLTAxUjZoc0M5UWo0dDN3a3p6ZHRNSGR4LTN6QVJPOXMwTEFOM2xIajJQRWpvZGJuLXZ5VEMzNXNDWDNvYV93bFRwdl9ja1FlQWpLTUN6SmxRMXBrZ241R21RUDhMZEpqNjJiSlpmclU3Zk5HLTg0V3M4NEI1cDZ4X2VKTDJUc0RmSnRFaVdsWlhJNVY4YURocTNpTDJ3UjFyTm0yTERxQTRHRlVDS21YekxhZDRiSUZOcTVneFk5WThHMndTSHVTN2k2VXkwWVJkSkg0SE1WY29GeFHSAeMBQVVfeXFMTUlCd0lOeGpLajF3TDFVdDFOTHNXWlZ0NUR0aHVHYnJLLUxma3RORWw4cG1fTmNVXy1iUnpJTGtJT3JDbU4wdEpyRGFBOEhsN1ViSHdoY01PbnotQXJaT29yN0VxbFktSTd1bXNrVHAwblFTbWl1N09TX0FSOEp5OU1PY2ZSSmNqUG9raEdPQm9YS2ZNeGpicDljRU5wVjhkd1A5dk9iNXI2UEIyZUZaRVdfQTZxMXlHbEdzUGNDXzlGNmdNME1FTm5uWk5UbjFOTVVyYWIzTUt2QVplSkZRa1RKaTg?oc=5"
+---
+
+Centre takes over 39.5 acres of land housing IAF’s sports complex at Race Course The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3gFBVV95cUxNRy1GLTAxUjZoc0M5UWo0dDN3a3p6ZHRNSGR4LTN6QVJPOXMwTEFOM2xIajJQRWpvZGJuLXZ5VEMzNXNDWDNvYV93bFRwdl9ja1FlQWpLTUN6SmxRMXBrZ241R21RUDhMZEpqNjJiSlpmclU3Zk5HLTg0V3M4NEI1cDZ4X2VKTDJUc0RmSnRFaVdsWlhJNVY4YURocTNpTDJ3UjFyTm0yTERxQTRHRlVDS21YekxhZDRiSUZOcTVneFk5WThHMndTSHVTN2k2VXkwWVJkSkg0SE1WY29GeFHSAeMBQVVfeXFMTUlCd0lOeGpLajF3TDFVdDFOTHNXWlZ0NUR0aHVHYnJLLUxma3RORWw4cG1fTmNVXy1iUnpJTGtJT3JDbU4wdEpyRGFBOEhsN1ViSHdoY01PbnotQXJaT29yN0VxbFktSTd1bXNrVHAwblFTbWl1N09TX0FSOEp5OU1PY2ZSSmNqUG9raEdPQm9YS2ZNeGpicDljRU5wVjhkd1A5dk9iNXI2UEIyZUZaRVdfQTZxMXlHbEdzUGNDXzlGNmdNME1FTm5uWk5UbjFOTVVyYWIzTUt2QVplSkZRa1RKaTg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

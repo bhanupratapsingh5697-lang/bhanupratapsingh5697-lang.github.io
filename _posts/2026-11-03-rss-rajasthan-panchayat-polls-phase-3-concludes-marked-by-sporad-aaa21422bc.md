@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Panchayat polls phase 3 concludes; marked by sporadic boycotts, clashes - ThePrint"
+date: 2026-11-03 22:21:10 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxPQXRqczBzYmxhWHJWRFVuQm5EWkpldGYwcTd6X2I1YUZyMkF3VFBYbGZEMFZzLU9vUXpFdXRYQUZEZEZoaWdGVGtOdjBUY3loRERqbFFhRTVxZXpJUmQtUndVVDdtNURJVjZUM0h1ZHc2bWxTVW9PTlJNU3FWamJCQUZNcTdETU03NjdJRDdZZkRWNmFqZWFsYkFqZFRJMUY4TmJsaXJqTV9iN2dkRTFpM2cwbFHSAboBQVVfeXFMT0taZkVacnpmdVY1WVk5QlhtM0tvUlR2VFp1RV94eldBdlBGRTRVRjJXdElGRWc2ZUNaVTZrUVRpVTJfNzZjYklnQ1AwNTRvMGFVdlNDRUVjNHR1UnFmX1EzaDJkVmlIQVE5cmtGVjQwXzkxa21HZVI3a2ZwcldwOUpfUWl3bjFJcVdVNVJaTjdDNGJMNDkxOFdNTG5kREQzbXVKbnIxcUpGalNYUUVSNThlTHJELXhQUVNB?oc=5"
+---
+
+Rajasthan: Panchayat polls phase 3 concludes; marked by sporadic boycotts, clashes ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxPQXRqczBzYmxhWHJWRFVuQm5EWkpldGYwcTd6X2I1YUZyMkF3VFBYbGZEMFZzLU9vUXpFdXRYQUZEZEZoaWdGVGtOdjBUY3loRERqbFFhRTVxZXpJUmQtUndVVDdtNURJVjZUM0h1ZHc2bWxTVW9PTlJNU3FWamJCQUZNcTdETU03NjdJRDdZZkRWNmFqZWFsYkFqZFRJMUY4TmJsaXJqTV9iN2dkRTFpM2cwbFHSAboBQVVfeXFMT0taZkVacnpmdVY1WVk5QlhtM0tvUlR2VFp1RV94eldBdlBGRTRVRjJXdElGRWc2ZUNaVTZrUVRpVTJfNzZjYklnQ1AwNTRvMGFVdlNDRUVjNHR1UnFmX1EzaDJkVmlIQVE5cmtGVjQwXzkxa21HZVI3a2ZwcldwOUpfUWl3bjFJcVdVNVJaTjdDNGJMNDkxOFdNTG5kREQzbXVKbnIxcUpGalNYUUVSNThlTHJELXhQUVNB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Violence mars third phase of Rajasthan panchayat elections - The Hindu"
+date: 2026-11-06 06:57:27 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxNYk1ZRHMtaTBNbmt2d2VrSko3RmpiWGpOQWI4YnYwRHJFYXBaV3ZQUG9Wc2FIOTJTUjhscGw0d3dGS0kxVkJBUlBza2JMNDhZY25fbGFIVzZZTGhBWVdBQUhPbnpwclVyeU9qcUx0V2FvMEhOeHNjX0VKbjk5VDMxQXZONXNPSVlESENxOVo2Sk9fdU5ySDdrc3hNd1d3N2cxWjlRWWxORTNuTUQ0Nll3dFVYVU1mRWlUcHVBY0NyRjg5Z2E2Z3fSAcwBQVVfeXFMUGpWeXF6VTdNOHJnVUN4T3BxZGRMMDdkdTktTHBFQXA5bzd6clFWS3NvSzl2MjZ0R2w1Y0xESE1xeHN3QV9kX1E4aVI4X0JqOTBZWFZ5aWJaRXdGalZEZ3JjcEY2WHhjbEQ5MXpZRFJSMEhWQ1hrc2M2UEY1M3g2Y0k0cWJ6Q09GTnp5SnZmQ2I4Ny1nY2lCRlNHRzVuOXZGWGZ0SksxYS00RURhdjVsTWpReTB1ZlpmWFB4NUE0aURuZUJyUUlxUEhBRUhJ?oc=5"
+---
+
+Violence mars third phase of Rajasthan panchayat elections The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxNYk1ZRHMtaTBNbmt2d2VrSko3RmpiWGpOQWI4YnYwRHJFYXBaV3ZQUG9Wc2FIOTJTUjhscGw0d3dGS0kxVkJBUlBza2JMNDhZY25fbGFIVzZZTGhBWVdBQUhPbnpwclVyeU9qcUx0V2FvMEhOeHNjX0VKbjk5VDMxQXZONXNPSVlESENxOVo2Sk9fdU5ySDdrc3hNd1d3N2cxWjlRWWxORTNuTUQ0Nll3dFVYVU1mRWlUcHVBY0NyRjg5Z2E2Z3fSAcwBQVVfeXFMUGpWeXF6VTdNOHJnVUN4T3BxZGRMMDdkdTktTHBFQXA5bzd6clFWS3NvSzl2MjZ0R2w1Y0xESE1xeHN3QV9kX1E4aVI4X0JqOTBZWFZ5aWJaRXdGalZEZ3JjcEY2WHhjbEQ5MXpZRFJSMEhWQ1hrc2M2UEY1M3g2Y0k0cWJ6Q09GTnp5SnZmQ2I4Ny1nY2lCRlNHRzVuOXZGWGZ0SksxYS00RURhdjVsTWpReTB1ZlpmWFB4NUE0aURuZUJyUUlxUEhBRUhJ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

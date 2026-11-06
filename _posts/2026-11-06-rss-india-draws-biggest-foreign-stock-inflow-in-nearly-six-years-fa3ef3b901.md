@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India draws biggest foreign stock inflow in nearly six years as global AI rout deepens - Firstpost"
+date: 2026-11-06 08:02:56 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxNc29UQzhpczdqYVc2R1lkTl9BQjlhMTdnM3RFQ28yY2FkY3p6MjNuNVNvR1ZTOGVtc29DSkxLVXJEMmROUFpKNkJ5SXpBNUNMYXc2THFySEYtaklPeUpZNmRTS2lmUnI0WXdpNFh0SzM4UzVyQ0pheTlQRU1CUk42Y2ZwTzl5N1drR1JLNHJRdS1ZUmVPbEQ4OWo0ZkZFVllBQXM3aUhZQkkzZ0V5UFQwX1dsQdIBuAFBVV95cUxNU0hEbzBSQ3hfb3A5cDRFckdpbkdQX1ZNUjJxa0RueHVqTVk5bHFTQk9xZFRJRUpoX0d6MS1EMHVpSVE0VUJxbFppSTZXd2J3b2s5NEpWTzVWbFFBdEV0MmlpbkhSSDVaaXNEUFB3RTF2Yk8yVWVqT1c2b081cEhwbmEyTUxXaHBrdUp3QkFBdkdEOVZieHo3dXZvb2RSZ2swYy13azhVRHAtYjVpdnBKWG5MUGlIR2RS?oc=5"
+---
+
+India draws biggest foreign stock inflow in nearly six years as global AI rout deepens Firstpost
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxNc29UQzhpczdqYVc2R1lkTl9BQjlhMTdnM3RFQ28yY2FkY3p6MjNuNVNvR1ZTOGVtc29DSkxLVXJEMmROUFpKNkJ5SXpBNUNMYXc2THFySEYtaklPeUpZNmRTS2lmUnI0WXdpNFh0SzM4UzVyQ0pheTlQRU1CUk42Y2ZwTzl5N1drR1JLNHJRdS1ZUmVPbEQ4OWo0ZkZFVllBQXM3aUhZQkkzZ0V5UFQwX1dsQdIBuAFBVV95cUxNU0hEbzBSQ3hfb3A5cDRFckdpbkdQX1ZNUjJxa0RueHVqTVk5bHFTQk9xZFRJRUpoX0d6MS1EMHVpSVE0VUJxbFppSTZXd2J3b2s5NEpWTzVWbFFBdEV0MmlpbkhSSDVaaXNEUFB3RTF2Yk8yVWVqT1c2b081cEhwbmEyTUxXaHBrdUp3QkFBdkdEOVZieHo3dXZvb2RSZ2swYy13azhVRHAtYjVpdnBKWG5MUGlIR2RS?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
