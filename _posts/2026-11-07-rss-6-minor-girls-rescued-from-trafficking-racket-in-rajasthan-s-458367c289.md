@@ -1,0 +1,17 @@
+---
+layout: post
+title: "6 minor girls rescued from trafficking racket in Rajasthan’s Jhalawar - The Assam Tribune"
+date: 2026-11-07 12:19:17 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxPb3dLV19ON2xPcUdqRmNiNThBMHJWODN1SklYNXF3cWs0Y2N0SWJZYlJnTWllQlVBdjN1Yy01OW1XZG5jWERNczlpUDlMTldQZTBzdk9KdTE4ZXQ5c1hJNmlGYW9pRHNEOG9SZnlLRmJtOVNVT29EV2ctd0xTbjNRSFY4R28xRDRtYTB0X0UxVUNoOG1VdlRaUUpmek5aTzZFV1ZfMFJiQk1LNFZiSy1z0gG0AUFVX3lxTE9LZWtVWGJaTW1xUFd5Qkk5Y3k1bEtEVjBUM0VFTXUwU2FNYW9obkcweGlPVEhORHdPZHJQbVFNcWIyTXZvQnJHMDNsaXAyRHM3bVN6Tm1nUmpmYmcwdEtNZXlUYkFSeXZMd3BiUG1VUmdtTUk4anExamxNNjRfaVpJOEtuUzk3NWhjVVo2QTFHTDJ6bFVuOG5NZFRkaG9BbTFxOEhDN1pwdnFpSEM4MXJIeTdvdA?oc=5"
+---
+
+6 minor girls rescued from trafficking racket in Rajasthan’s Jhalawar The Assam Tribune
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxPb3dLV19ON2xPcUdqRmNiNThBMHJWODN1SklYNXF3cWs0Y2N0SWJZYlJnTWllQlVBdjN1Yy01OW1XZG5jWERNczlpUDlMTldQZTBzdk9KdTE4ZXQ5c1hJNmlGYW9pRHNEOG9SZnlLRmJtOVNVT29EV2ctd0xTbjNRSFY4R28xRDRtYTB0X0UxVUNoOG1VdlRaUUpmek5aTzZFV1ZfMFJiQk1LNFZiSy1z0gG0AUFVX3lxTE9LZWtVWGJaTW1xUFd5Qkk5Y3k1bEtEVjBUM0VFTXUwU2FNYW9obkcweGlPVEhORHdPZHJQbVFNcWIyTXZvQnJHMDNsaXAyRHM3bVN6Tm1nUmpmYmcwdEtNZXlUYkFSeXZMd3BiUG1VUmdtTUk4anExamxNNjRfaVpJOEtuUzk3NWhjVVo2QTFHTDJ6bFVuOG5NZFRkaG9BbTFxOEhDN1pwdnFpSEM4MXJIeTdvdA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

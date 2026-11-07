@@ -1,0 +1,17 @@
+---
+layout: post
+title: "MS Dhoni urges parents to get children into sports early: ‘Not everyone will become an athlete’ - The Indian Express"
+date: 2026-11-07 20:00:05 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi6gFBVV95cUxQZFY4cGlhZng5QVBZeklXN3hXTmJkYkJuU2tmd2ZiTXRxM3d6dzFBaXZQZ25vbDhUQUsxcHFQNVlPS0ktVmFNTUpiMHN3dkdlTUluSmotU25ZdWJDVlQyWXktLTI4cFBpamJHalNteHBidVpvSElNVmphYWNZeFBnM05VM05QS3ZKMlQzNEpqUUtpS1UycFVib2dBY3JkT2hoaDJENmxtRE5XSVg3T1YyaWV1NE9lRVRyLVlyWU81ZGNoeGczSklFNkFLSnZSMUwxS2pITVFxWGNtY0RMblg5QjUtRUgwMExRNkHSAfABQVVfeXFMUEE5NXlONWhsVkxjdEg2VndGNkVoNzVHZDVJYnIxNEFnbXFjV0phSnJSejFvS0YzbnNFV3o1VHBCWE1lcnIwV2E3ZUdzU3Nhcm9yeHNKMDdHVG1xZlZiTjlfTlBEeUlSeVNBTjdzUlY1MXQwN3hJUzNvOVBxWVktUUZJS3E2bTRkdlk1TUlCSU90M250X1NBZ0hrZ2J5REJ3TkRWS1lBa0JqSWlPdEsxSHFTdWgxa0tfTmJzaURFTVFpREEzNXVTa1VFSXNHSWZxMmY2QUZuZmVuYURKSF9tQTJ1bEpaUm53VHBmeGp1QlFR?oc=5"
+---
+
+MS Dhoni urges parents to get children into sports early: ‘Not everyone will become an athlete’ The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi6gFBVV95cUxQZFY4cGlhZng5QVBZeklXN3hXTmJkYkJuU2tmd2ZiTXRxM3d6dzFBaXZQZ25vbDhUQUsxcHFQNVlPS0ktVmFNTUpiMHN3dkdlTUluSmotU25ZdWJDVlQyWXktLTI4cFBpamJHalNteHBidVpvSElNVmphYWNZeFBnM05VM05QS3ZKMlQzNEpqUUtpS1UycFVib2dBY3JkT2hoaDJENmxtRE5XSVg3T1YyaWV1NE9lRVRyLVlyWU81ZGNoeGczSklFNkFLSnZSMUwxS2pITVFxWGNtY0RMblg5QjUtRUgwMExRNkHSAfABQVVfeXFMUEE5NXlONWhsVkxjdEg2VndGNkVoNzVHZDVJYnIxNEFnbXFjV0phSnJSejFvS0YzbnNFV3o1VHBCWE1lcnIwV2E3ZUdzU3Nhcm9yeHNKMDdHVG1xZlZiTjlfTlBEeUlSeVNBTjdzUlY1MXQwN3hJUzNvOVBxWVktUUZJS3E2bTRkdlk1TUlCSU90M250X1NBZ0hrZ2J5REJ3TkRWS1lBa0JqSWlPdEsxSHFTdWgxa0tfTmJzaURFTVFpREEzNXVTa1VFSXNHSWZxMmY2QUZuZmVuYURKSF9tQTJ1bEpaUm53VHBmeGp1QlFR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

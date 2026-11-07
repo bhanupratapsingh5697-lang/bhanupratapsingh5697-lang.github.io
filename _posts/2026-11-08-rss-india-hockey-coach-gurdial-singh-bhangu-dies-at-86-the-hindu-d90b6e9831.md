@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India hockey coach Gurdial Singh Bhangu dies at 86 - The Hindu"
+date: 2026-11-08 02:26:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirAFBVV95cUxNYnA5YUhYWThQSWJvSWdnYjB5SW5rLTRJWkdFTlRqZXd3cmRkaFo4T3dQZkp6OS1xbVRlWXpmR0daMEs3R0pBOUZqWnRDTjFKeWJFOUhoc3VNY193dVBMLVFhWVhpc29udkdNbWFNM3hTMzRCQUdmNE9UcnBCR1lMalBPaGoxMWxJd1pqaFFZWXl2ckpMemszUV9tMlRsbXlNcDFxSy1QeU82azE20gGzAUFVX3lxTE8yUU8yUUotY1A0VV8tWG9CcDlSVnlPQS04TUF3MHAwZV9kTW52Q0NmVHNFWTF0dE4tY1hNRVBjWDh4dTcxVlg0S0ZxanFaRVhwOHZGU0lDckVCTEdCX2VWNVlOY3BIUHNpem1BTld2ZFZaUS1LcWIwdG5CYWFKMEdiS3VyMU1RWXBhVEdDajBTNGh3T29ua2VmRjN5UmZfMUROR3p5elBmaC16OUlFT0tDc2pZ?oc=5"
+---
+
+India hockey coach Gurdial Singh Bhangu dies at 86 The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirAFBVV95cUxNYnA5YUhYWThQSWJvSWdnYjB5SW5rLTRJWkdFTlRqZXd3cmRkaFo4T3dQZkp6OS1xbVRlWXpmR0daMEs3R0pBOUZqWnRDTjFKeWJFOUhoc3VNY193dVBMLVFhWVhpc29udkdNbWFNM3hTMzRCQUdmNE9UcnBCR1lMalBPaGoxMWxJd1pqaFFZWXl2ckpMemszUV9tMlRsbXlNcDFxSy1QeU82azE20gGzAUFVX3lxTE8yUU8yUUotY1A0VV8tWG9CcDlSVnlPQS04TUF3MHAwZV9kTW52Q0NmVHNFWTF0dE4tY1hNRVBjWDh4dTcxVlg0S0ZxanFaRVhwOHZGU0lDckVCTEdCX2VWNVlOY3BIUHNpem1BTld2ZFZaUS1LcWIwdG5CYWFKMEdiS3VyMU1RWXBhVEdDajBTNGh3T29ua2VmRjN5UmZfMUROR3p5elBmaC16OUlFT0tDc2pZ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

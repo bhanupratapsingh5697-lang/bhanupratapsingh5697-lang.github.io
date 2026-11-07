@@ -1,0 +1,17 @@
+---
+layout: post
+title: "600 Wrestlers, 1,100 Kg Of Desi Ghee: Rajasthan's Big Push To Rival Haryana On The Mat - News18"
+date: 2026-11-06 14:22:13 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxNbW4xbUVDM1gzVWg0WlY2dGx1NE9VQm15bXI1OThLWVJ5RGV3UFpPZ1pnMHZTdGhveXY1UHVaSTVHWjdsbC1xQklCUkR3SWFSdmZjWHRzb1ZFQms4azZnSG5JSVFLMUxxTXk4dWVBa2VmUHpuWERXS01WbUkxTEdtbmVfclJQN01TdElHdjVLTTA3QWFseGptd0RXa0VxVDJ1ZlF5NF9mdE9uYlRDWFVONy1zNGVIOWM3QzlRVU9hLWd1emRQcENnT0JB0gHPAUFVX3lxTE1kWkJ2cjN3Rzl2cWY5RS1tYW1NSnZTOWFWNmdfejBFQ3h0UnRrVldOTGZEQmxBV18zNnhfUkdHX0NxT1R0T2RVRVVzYnpsZlplRTVRamNfNFV0M1dIaVc5ZlEwallCc200Y0dYaVRoWWlyUUxSeUg0VHpXRThLTUl4cGZXNzVEWXFNQ0dNYS1nM003aDUzckc1cjhyM0xZTFVFUXdKMkJKXzctLVZianpnRk96N0UzQjJoSFRlSnB3SGhaajNMbTZacmpWRlRIQQ?oc=5"
+---
+
+600 Wrestlers, 1,100 Kg Of Desi Ghee: Rajasthan's Big Push To Rival Haryana On The Mat News18
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxNbW4xbUVDM1gzVWg0WlY2dGx1NE9VQm15bXI1OThLWVJ5RGV3UFpPZ1pnMHZTdGhveXY1UHVaSTVHWjdsbC1xQklCUkR3SWFSdmZjWHRzb1ZFQms4azZnSG5JSVFLMUxxTXk4dWVBa2VmUHpuWERXS01WbUkxTEdtbmVfclJQN01TdElHdjVLTTA3QWFseGptd0RXa0VxVDJ1ZlF5NF9mdE9uYlRDWFVONy1zNGVIOWM3QzlRVU9hLWd1emRQcENnT0JB0gHPAUFVX3lxTE1kWkJ2cjN3Rzl2cWY5RS1tYW1NSnZTOWFWNmdfejBFQ3h0UnRrVldOTGZEQmxBV18zNnhfUkdHX0NxT1R0T2RVRVVzYnpsZlplRTVRamNfNFV0M1dIaVc5ZlEwallCc200Y0dYaVRoWWlyUUxSeUg0VHpXRThLTUl4cGZXNzVEWXFNQ0dNYS1nM003aDUzckc1cjhyM0xZTFVFUXdKMkJKXzctLVZianpnRk96N0UzQjJoSFRlSnB3SGhaajNMbTZacmpWRlRIQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
