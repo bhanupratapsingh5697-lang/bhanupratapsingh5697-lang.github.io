@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan CM Bhajanlal Sharma Urges Vocal for Local During Dhanteras - Asianet Newsable"
+date: 2026-11-06 22:11:48 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxOUldIY1JORDFmc1RYcVVKWGRKQ2l4T09NNjV2RTN0c2poQ2Ywb01sVjlKRWNyQ1RQenYwelNySzByNUp2OGNhc1BrNldacHpiQzZvOW1HRnJWNjNFQ1RYLTJyQUtuN1RaeFJSWVUtOHY0UVVRQVlWdGZfZDdoNkoxaHp2MFE0TkxyTXZON3NKem9wSmRWRUhoY1doQWdTNmlDczVrMUprMDFYeU9NY0FSSUhINXV5UnQ2OG1tSjRCZUtYSjBfMGfSAcsBQVVfeXFMT0RkWkJGcE9DbEYyX2lFRHRpdVdLWUhBWkwxT05Ga0poRGFVNWVPTkt0ZE5PTVdUUUl6ZEl3VEp3MkE4WWVxZGozVVY0N0U2UWdLWXphalZmeV9HNnJlbkI4VmdDMlpBOXdoVVM2c3YyQ1pmci1fdV9oQ0NsVjZkMjRERGowRC1tamhiRGhQVlNiVVVKaUZtYXBoRDlOZDNySElTbGdUNWEwM0V0SVFfSl9ocVlkbmtST3kxMERhaTdRYVZjM3RjS2JLS2s?oc=5"
+---
+
+Rajasthan CM Bhajanlal Sharma Urges Vocal for Local During Dhanteras Asianet Newsable
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxOUldIY1JORDFmc1RYcVVKWGRKQ2l4T09NNjV2RTN0c2poQ2Ywb01sVjlKRWNyQ1RQenYwelNySzByNUp2OGNhc1BrNldacHpiQzZvOW1HRnJWNjNFQ1RYLTJyQUtuN1RaeFJSWVUtOHY0UVVRQVlWdGZfZDdoNkoxaHp2MFE0TkxyTXZON3NKem9wSmRWRUhoY1doQWdTNmlDczVrMUprMDFYeU9NY0FSSUhINXV5UnQ2OG1tSjRCZUtYSjBfMGfSAcsBQVVfeXFMT0RkWkJGcE9DbEYyX2lFRHRpdVdLWUhBWkwxT05Ga0poRGFVNWVPTkt0ZE5PTVdUUUl6ZEl3VEp3MkE4WWVxZGozVVY0N0U2UWdLWXphalZmeV9HNnJlbkI4VmdDMlpBOXdoVVM2c3YyQ1pmci1fdV9oQ0NsVjZkMjRERGowRC1tamhiRGhQVlNiVVVKaUZtYXBoRDlOZDNySElTbGdUNWEwM0V0SVFfSl9ocVlkbmtST3kxMERhaTdRYVZjM3RjS2JLS2s?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

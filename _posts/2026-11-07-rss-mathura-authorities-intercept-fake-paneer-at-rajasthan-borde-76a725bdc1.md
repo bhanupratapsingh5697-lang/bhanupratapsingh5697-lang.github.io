@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Mathura authorities intercept fake paneer at Rajasthan border - WION"
+date: 2026-11-07 10:59:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxPMDIyQjIyTU1RUVVxaHR4OVBlcG9ES0pOajI4aEljVk9vOE90V2VXQjJQRmRkVVlLcndsdTBlNHpUdXJJT3ZiZHEzcEpYa285U1RqR0NMZWlteXR5eF85VzVaU2tBZXpLS1ZDWng2TjdENzRaNzFBWFNQaVFoMU5zUkdCSUg2ck80YXN1X0ZLU0FRMzQzeW5RUWY2RS1rLUVaSkZJeXBZU1EtUdIBrwFBVV95cUxNX0NhbXZ2cFlELVg1czduVTZHVEFCTmYyNjAxaGVFMzZsRUlKNmV6YzhZZDJiWGdtSkpRUk14WFA5d2tMamNGTUNibWVfQnhvWnRZS1lsZ3NKNXpNUzluRWlad2NWUzREbzZhX1hWNzlVYU9BdlFkcGJFY1VQM1ZFX1VTbXZSdEFqMDFuSEVSdXFEa0xSNGVieDZuamp6elhDV3F6YS1YdTU0cTVDRU9Z?oc=5"
+---
+
+Mathura authorities intercept fake paneer at Rajasthan border WION
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPMDIyQjIyTU1RUVVxaHR4OVBlcG9ES0pOajI4aEljVk9vOE90V2VXQjJQRmRkVVlLcndsdTBlNHpUdXJJT3ZiZHEzcEpYa285U1RqR0NMZWlteXR5eF85VzVaU2tBZXpLS1ZDWng2TjdENzRaNzFBWFNQaVFoMU5zUkdCSUg2ck80YXN1X0ZLU0FRMzQzeW5RUWY2RS1rLUVaSkZJeXBZU1EtUdIBrwFBVV95cUxNX0NhbXZ2cFlELVg1czduVTZHVEFCTmYyNjAxaGVFMzZsRUlKNmV6YzhZZDJiWGdtSkpRUk14WFA5d2tMamNGTUNibWVfQnhvWnRZS1lsZ3NKNXpNUzluRWlad2NWUzREbzZhX1hWNzlVYU9BdlFkcGJFY1VQM1ZFX1VTbXZSdEFqMDFuSEVSdXFEa0xSNGVieDZuamp6elhDV3F6YS1YdTU0cTVDRU9Z?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sonia Gandhi interview: ‘Great damage done to the fabric of India by BJP’ - The Hindu"
+date: 2026-11-07 06:00:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxQd2FvOHZGS2FpMXVnR3RwUFVLVEtYWjNOU3BZOWxNQ25SMDQ0aXY1aW11dlFZSEczNWdOYkYyb1gwSHRRcTFCQW84NkZZZkFEUmhLOVdlTzYycGZGamtqVHBPcFFYNW1HYmNaT0dpUjcyaE1kSEJ4a0tjRHFud05iWTJHdXJGOVVTcjZsd1RqQjZmZmZDV2NRdm1tbEduVDN5NDl6SERrUlJBd05tUmpreTZMZFNJTGRsTktKX0xLd1pvTWd4WkJBRNIBzwFBVV95cUxNaXhPVkhzVTNPNGpLd1FUTlNabHBYMWM1WDBIdllXb3F5V1pXR1BGZ0wyRk9OWmxqMU5pcWJHUEZpM3FPd3diYWI5bU82eWh3ZzNXS1FYcFB5QUZPcWp0QlFhQjhGSm1nYnN1bFh3UXEycm13bHBQVHh4XzdudmNHNXdJdW0xX0ozTTZOY3pzMkdrS0p1cHM3Rjk5Q3FyOFlDblNOU3FBa2lFUllWalNRUFRuRWh4WHFvdWNVWXJGeHZ6WkFSTXhCc0FiRmUzODg?oc=5"
+---
+
+Sonia Gandhi interview: ‘Great damage done to the fabric of India by BJP’ The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQd2FvOHZGS2FpMXVnR3RwUFVLVEtYWjNOU3BZOWxNQ25SMDQ0aXY1aW11dlFZSEczNWdOYkYyb1gwSHRRcTFCQW84NkZZZkFEUmhLOVdlTzYycGZGamtqVHBPcFFYNW1HYmNaT0dpUjcyaE1kSEJ4a0tjRHFud05iWTJHdXJGOVVTcjZsd1RqQjZmZmZDV2NRdm1tbEduVDN5NDl6SERrUlJBd05tUmpreTZMZFNJTGRsTktKX0xLd1pvTWd4WkJBRNIBzwFBVV95cUxNaXhPVkhzVTNPNGpLd1FUTlNabHBYMWM1WDBIdllXb3F5V1pXR1BGZ0wyRk9OWmxqMU5pcWJHUEZpM3FPd3diYWI5bU82eWh3ZzNXS1FYcFB5QUZPcWp0QlFhQjhGSm1nYnN1bFh3UXEycm13bHBQVHh4XzdudmNHNXdJdW0xX0ozTTZOY3pzMkdrS0p1cHM3Rjk5Q3FyOFlDblNOU3FBa2lFUllWalNRUFRuRWh4WHFvdWNVWXJGeHZ6WkFSTXhCc0FiRmUzODg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

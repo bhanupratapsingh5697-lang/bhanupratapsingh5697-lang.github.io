@@ -1,0 +1,17 @@
+---
+layout: post
+title: "8 calls between Delhi, Washington in May-June: US lobbying firm - The Indian Express"
+date: 2026-11-07 04:18:03 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxNOVp6eHhHNDJpUUY3SWgwUDV6QVFldEtoWUdONElrbVRBNEZSYWZQbGxUdW9od0N2QkV6VXM0QlN1VFN5Nll1UjE5SkJtanF1SVhrUHJQemxsSHFFT3JRMTh6eW4yQWh5eFpIa1M2RUZIUFJ0bFZxYVJiZkYyT3VybVBJUDRLSnNnV0ZEN3F3eHYtZUtRdDFUMFpCVGFnVkpSTTFaRGZwU21JSG5FbklySjJ4Y3ptSUVxc2QtNmNB0gHEAUFVX3lxTE1yQ3ZnZU9hR2NwVHFjTEZqU3l6UVBxbHJacWVha2JLRHIyU053RWNUNFR1WFBaVTRwNFJyc1VhUTR6QUk5d0c2SG83c01zTjJoalhlTGpBbjJ1cTBqX0pBSlI0bzk5MVdyQWppQ3hyWEs1UVNCblc3ZXlLLTdNT3BUSWprZTlKM3F3dGxQbHRnWnhBLWM1d2R1RGhJczEtRTkzUXRfbW5aS0JfTjJxaHlMUGhEX1R1a0dwekhrTU1HeVh3REE?oc=5"
+---
+
+8 calls between Delhi, Washington in May-June: US lobbying firm The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxNOVp6eHhHNDJpUUY3SWgwUDV6QVFldEtoWUdONElrbVRBNEZSYWZQbGxUdW9od0N2QkV6VXM0QlN1VFN5Nll1UjE5SkJtanF1SVhrUHJQemxsSHFFT3JRMTh6eW4yQWh5eFpIa1M2RUZIUFJ0bFZxYVJiZkYyT3VybVBJUDRLSnNnV0ZEN3F3eHYtZUtRdDFUMFpCVGFnVkpSTTFaRGZwU21JSG5FbklySjJ4Y3ptSUVxc2QtNmNB0gHEAUFVX3lxTE1yQ3ZnZU9hR2NwVHFjTEZqU3l6UVBxbHJacWVha2JLRHIyU053RWNUNFR1WFBaVTRwNFJyc1VhUTR6QUk5d0c2SG83c01zTjJoalhlTGpBbjJ1cTBqX0pBSlI0bzk5MVdyQWppQ3hyWEs1UVNCblc3ZXlLLTdNT3BUSWprZTlKM3F3dGxQbHRnWnhBLWM1d2R1RGhJczEtRTkzUXRfbW5aS0JfTjJxaHlMUGhEX1R1a0dwekhrTU1HeVh3REE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
