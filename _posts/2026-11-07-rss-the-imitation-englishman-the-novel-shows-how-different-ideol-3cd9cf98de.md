@@ -1,0 +1,17 @@
+---
+layout: post
+title: "‘The Imitation Englishman’: The novel shows how different ideologies shaped India’s freedom movement - Scroll.in"
+date: 2026-11-07 17:30:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxQeHIydWZUbmhzUGVheFFtZktqRlBpY0pENjJwY3FOTUxTaUp0NzE2WTNsYzF2TDBYYlZFeG1RNmFhSUtpR3ZiNWJ0bHQwdFgwcGh0X2FkOExsa0dvS05Xd01rR2xBd3ZiWGRIZ0czblRsZjVyTTZTV05sdllMUzBVNnhsVmpKTWk2cjczYnh4QUw1YkhMT3pzVlRXVEJzbmhBSHFCeHF1TVhlTnpvMXJBS29VWjRaYzJrMHYtUVktNU1pOHFNTUpvVDJn0gHPAUFVX3lxTE5WOXo5OVVfMkdBSFZiVlFRQmE1ei1hUFBvNllKS3RMNlBvX21lRmJhYy1DZGRGSHZoV1RVUnZ5eEhWYURTRUQ4eFoyOTY0bWQzLVVscDJFVE55YXJMbXhjQkhrVlY1Qk80eE1yenIxcGI3Zml3cVJLLWczNmlCY2xrbDI3Tnk1dTBqZlJjblBSQy1BZ1JQOHlqVzFwNTV5c3BTRk9xSU8zVk9IRjlDSHZaY3BPQ05WMkZsMWFBdXpDZzZuTVBVbTRWbEw2S3ZkTQ?oc=5"
+---
+
+‘The Imitation Englishman’: The novel shows how different ideologies shaped India’s freedom movement Scroll.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxQeHIydWZUbmhzUGVheFFtZktqRlBpY0pENjJwY3FOTUxTaUp0NzE2WTNsYzF2TDBYYlZFeG1RNmFhSUtpR3ZiNWJ0bHQwdFgwcGh0X2FkOExsa0dvS05Xd01rR2xBd3ZiWGRIZ0czblRsZjVyTTZTV05sdllMUzBVNnhsVmpKTWk2cjczYnh4QUw1YkhMT3pzVlRXVEJzbmhBSHFCeHF1TVhlTnpvMXJBS29VWjRaYzJrMHYtUVktNU1pOHFNTUpvVDJn0gHPAUFVX3lxTE5WOXo5OVVfMkdBSFZiVlFRQmE1ei1hUFBvNllKS3RMNlBvX21lRmJhYy1DZGRGSHZoV1RVUnZ5eEhWYURTRUQ4eFoyOTY0bWQzLVVscDJFVE55YXJMbXhjQkhrVlY1Qk80eE1yenIxcGI3Zml3cVJLLWczNmlCY2xrbDI3Tnk1dTBqZlJjblBSQy1BZ1JQOHlqVzFwNTV5c3BTRk9xSU8zVk9IRjlDSHZaY3BPQ05WMkZsMWFBdXpDZzZuTVBVbTRWbEw2S3ZkTQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

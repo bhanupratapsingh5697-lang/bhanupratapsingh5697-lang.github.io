@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan SET Result 2026 declared at uok.ac.in; 9,191 candidates qualify, direct link here - Moneycontrol.com"
+date: 2026-11-06 14:57:59 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi5AFBVV95cUxOY1pEUFFWbDdEb1l2RG9KWGNqTWxMVlhVN1g1RGtLOHRfT3o3WkU3aUtidG95U3ljZldKY3hJdHY2YU0ycG5oc2Rpb3dxbmdHcnI3QjA2NldjWUJLUGcxN3c1SUFTb3cyR1FvUXdua0VjaXVJMmNlZy1LdHhSNVdaMEg4LUlOV2xWWHYwdmhIZE9sNmFyZ05qeWgxWUwyVGx3OVVfcHV3YmRuUlg3WWFOekRtRUk2Z1BVWF9VeFFxOW1leDFPQkdDelM1X0hiaVNidGduTmxLVFJHWGRTVHBJb1oxbHjSAeoBQVVfeXFMT1ZQczVVMFNkbXRBdFA3X0x6M0NRTVFrQjJZZjE1U3h2YlFmWXYzaUl4Zmhpa0hLVHhVaXJrNWF2MWlPNnZkeE1qdjFfT2NKNXc4SUp3YWYya3RmcWEydG5pVVBXQUdRZzFfUEU2SzlMU1hGc3FHUXlqVjNycWU4SGVQMFQzdTVFYjBHbk52bHZCeWhKcVphckp1WWdsdEtZaE1ZQTBmbXMtVkxpMjBDRUtQbVhyNlRaT1dLUmUtSlBGUWZaSk94VU1teThacVdvRENhakhKSzk4WGl4QnFHUnhxWklSNlhFem5n?oc=5"
+---
+
+Rajasthan SET Result 2026 declared at uok.ac.in; 9,191 candidates qualify, direct link here Moneycontrol.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5AFBVV95cUxOY1pEUFFWbDdEb1l2RG9KWGNqTWxMVlhVN1g1RGtLOHRfT3o3WkU3aUtidG95U3ljZldKY3hJdHY2YU0ycG5oc2Rpb3dxbmdHcnI3QjA2NldjWUJLUGcxN3c1SUFTb3cyR1FvUXdua0VjaXVJMmNlZy1LdHhSNVdaMEg4LUlOV2xWWHYwdmhIZE9sNmFyZ05qeWgxWUwyVGx3OVVfcHV3YmRuUlg3WWFOekRtRUk2Z1BVWF9VeFFxOW1leDFPQkdDelM1X0hiaVNidGduTmxLVFJHWGRTVHBJb1oxbHjSAeoBQVVfeXFMT1ZQczVVMFNkbXRBdFA3X0x6M0NRTVFrQjJZZjE1U3h2YlFmWXYzaUl4Zmhpa0hLVHhVaXJrNWF2MWlPNnZkeE1qdjFfT2NKNXc4SUp3YWYya3RmcWEydG5pVVBXQUdRZzFfUEU2SzlMU1hGc3FHUXlqVjNycWU4SGVQMFQzdTVFYjBHbk52bHZCeWhKcVphckp1WWdsdEtZaE1ZQTBmbXMtVkxpMjBDRUtQbVhyNlRaT1dLUmUtSlBGUWZaSk94VU1teThacVdvRENhakhKSzk4WGl4QnFHUnhxWklSNlhFem5n?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

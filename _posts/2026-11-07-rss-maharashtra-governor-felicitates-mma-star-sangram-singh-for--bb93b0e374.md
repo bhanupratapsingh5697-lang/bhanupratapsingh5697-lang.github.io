@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Maharashtra Governor Felicitates MMA Star Sangram Singh For Sport Contributions - Rediff"
+date: 2026-11-07 16:35:25 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiogFBVV95cUxOZ1c5alhYZXAxajlyQkNGMGlSZllRbjZrVmNkTWt3bWVYMGZqSThCcUUzNTZpMjQ5Um80czJTanJGMlJxT2tmWl9ZNk5ualV1U3JQOEJYVkpiejg0eHoxUFBTMVZ6T29EbEZpdC10Q3J3aDBzakkwb1JUNXVRRFBHZ3dDUVhqMHNDTUo5aEFDb0xwNGc5UzZGSC1lV2ZqV2lfTWfSAaQBQVVfeXFMUDFtU0Q2YXdTY1dOUUtoSWwwRkdDU1FKcGlRX3VaLTlkV24wamxiWXRRMHBiT3BZQ1JJZFJMMzN5R0dxX3BXcnJLeTlUbXEtMGlDdHdZc3FfRjNhNnlMZlYtRWNkdW5aZE85LTJtbGZOT19oSkt6N1JjSURnUUpUQWhaT0lMbU1hUjR5TGNiRzZvd3JuVWNPX1A1WEY1ZHhfeEpmaks?oc=5"
+---
+
+Maharashtra Governor Felicitates MMA Star Sangram Singh For Sport Contributions Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiogFBVV95cUxOZ1c5alhYZXAxajlyQkNGMGlSZllRbjZrVmNkTWt3bWVYMGZqSThCcUUzNTZpMjQ5Um80czJTanJGMlJxT2tmWl9ZNk5ualV1U3JQOEJYVkpiejg0eHoxUFBTMVZ6T29EbEZpdC10Q3J3aDBzakkwb1JUNXVRRFBHZ3dDUVhqMHNDTUo5aEFDb0xwNGc5UzZGSC1lV2ZqV2lfTWfSAaQBQVVfeXFMUDFtU0Q2YXdTY1dOUUtoSWwwRkdDU1FKcGlRX3VaLTlkV24wamxiWXRRMHBiT3BZQ1JJZFJMMzN5R0dxX3BXcnJLeTlUbXEtMGlDdHdZc3FfRjNhNnlMZlYtRWNkdW5aZE85LTJtbGZOT19oSkt6N1JjSURnUUpUQWhaT0lMbU1hUjR5TGNiRzZvd3JuVWNPX1A1WEY1ZHhfeEpmaks?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

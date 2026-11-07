@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Great damage done to India's fabric under Modi govt: Sonia Gandhi - Moneycontrol.com"
+date: 2026-11-07 12:50:13 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxOYVhrc1hweUJjNUc0VEFRaWl6WEpEUV9haXBnRXNWVmU1blU1TmJWdmhsbGZiRnlQZEF3V1QxaGhINnZqeGdYck5ScEljUGxUMlJBcVJJOWtrX2wtZE9nT0ZOaEQxd2hmSWlYc3RDNVV4MjVzcnVoRm1zalFZSDdBMzZBS0xMdXhCbTdsMEJmWmtweS1PNG9TMEF0OVpGOUpFTnluRzNId1lLY1c2NXEwZklEa01ZNWhDX3fSAb8BQVVfeXFMTlZqTmVPcks3WnE5VzFGQkxwem5QSi1iWlZJYUh5WHVUT2pvVDVxTU5aZE1vbWVOSnhzSDR6MGIyZXlOd3lQbi1IcnJQSHRyYk81b0xGVkgzRnpSSmRRU2pXc0E3ZUc3YlJ5QUM3MUpJZ2tDUlQyRDVNTDJmdGhTbkloVjRKOXE4c0pfSXk1MnJfMmdVeUNBMmdNOE1vSnA3SWJLNTBueHBCeHNVUUUtOVJIU3JmU3lINEpObzh6RWs?oc=5"
+---
+
+Great damage done to India's fabric under Modi govt: Sonia Gandhi Moneycontrol.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxOYVhrc1hweUJjNUc0VEFRaWl6WEpEUV9haXBnRXNWVmU1blU1TmJWdmhsbGZiRnlQZEF3V1QxaGhINnZqeGdYck5ScEljUGxUMlJBcVJJOWtrX2wtZE9nT0ZOaEQxd2hmSWlYc3RDNVV4MjVzcnVoRm1zalFZSDdBMzZBS0xMdXhCbTdsMEJmWmtweS1PNG9TMEF0OVpGOUpFTnluRzNId1lLY1c2NXEwZklEa01ZNWhDX3fSAb8BQVVfeXFMTlZqTmVPcks3WnE5VzFGQkxwem5QSi1iWlZJYUh5WHVUT2pvVDVxTU5aZE1vbWVOSnhzSDR6MGIyZXlOd3lQbi1IcnJQSHRyYk81b0xGVkgzRnpSSmRRU2pXc0E3ZUc3YlJ5QUM3MUpJZ2tDUlQyRDVNTDJmdGhTbkloVjRKOXE4c0pfSXk1MnJfMmdVeUNBMmdNOE1vSnA3SWJLNTBueHBCeHNVUUUtOVJIU3JmU3lINEpObzh6RWs?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

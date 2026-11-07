@@ -1,0 +1,17 @@
+---
+layout: post
+title: "From Green Crackers To Cold Fireworks, The Woman Chasing Smoke-Free Diwali - NDTV"
+date: 2026-11-07 17:58:08 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxOUXFQX0lrSHpjSE9zaExVRTBhMG9fZDF3dXNHZDBjc3pTcFlFOVBIVFU4TzByQXRDcTFpd0RCaHhWbG9LcHFnZWVKbWE3NWEzaXlPS3dyXy1TRVcyR0tLODBaZG43MDZnLTFLSDR2OXFONDJ5WWZFZWRORVY2T2tqTTduWGRQUXRZQS1XRGdkeXRYdGpXVXhPS3Z6RTJNWTZMdldmbjUxbDVDYjl1RFBPZ2FxYWYySm_SAb8BQVVfeXFMTnEyUHFxcjJzV3NONHB4U2h3M3FMaEVnQl9qZHZoUVVwOFBGZG0yaFVuWmZoUzJQVDUzTWJEVVBDN0JxeFdYOFZKWXhGTGVOUG04NWx6OUZWaHN0SVY4QjFRWGNtWUFWenhibG05UmxKRDV2MVdKRDlTVFpiREdfRlN1OVAyVzVpNlBtM3BXUmhSUEp5U3ZpdnkyOVA5bGdLdEx4bWlHTjNXUVdqaUgtelh0NDRBcVpTWU1iWFdKMUU?oc=5"
+---
+
+From Green Crackers To Cold Fireworks, The Woman Chasing Smoke-Free Diwali NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxOUXFQX0lrSHpjSE9zaExVRTBhMG9fZDF3dXNHZDBjc3pTcFlFOVBIVFU4TzByQXRDcTFpd0RCaHhWbG9LcHFnZWVKbWE3NWEzaXlPS3dyXy1TRVcyR0tLODBaZG43MDZnLTFLSDR2OXFONDJ5WWZFZWRORVY2T2tqTTduWGRQUXRZQS1XRGdkeXRYdGpXVXhPS3Z6RTJNWTZMdldmbjUxbDVDYjl1RFBPZ2FxYWYySm_SAb8BQVVfeXFMTnEyUHFxcjJzV3NONHB4U2h3M3FMaEVnQl9qZHZoUVVwOFBGZG0yaFVuWmZoUzJQVDUzTWJEVVBDN0JxeFdYOFZKWXhGTGVOUG04NWx6OUZWaHN0SVY4QjFRWGNtWUFWenhibG05UmxKRDV2MVdKRDlTVFpiREdfRlN1OVAyVzVpNlBtM3BXUmhSUEp5U3ZpdnkyOVA5bGdLdEx4bWlHTjNXUVdqaUgtelh0NDRBcVpTWU1iWFdKMUU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

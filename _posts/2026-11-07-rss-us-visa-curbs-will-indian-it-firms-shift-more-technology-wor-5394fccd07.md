@@ -1,0 +1,17 @@
+---
+layout: post
+title: "US visa curbs: Will Indian IT firms shift more technology work offshore? - Business Standard"
+date: 2026-11-07 16:46:51 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxPdmZXaFF2Uk02M0FQc0F5T1pnZGtCQ3JEUTJpMDZUOXo1cnM0TmFBZVBTZUxRT3NmcHZxbEZBYlA5dTM4M3JJRDBZUHlFRXVDYm1OcGFHTFp5Z01rZ01GaGVENmVWZ1NROFVvTlVFNWoxanhNb2F5UTFKc0RzTFl3elpzTm1nMHVMMTk4TUNST1hMV194UExPN1RISldBaE9CVGFYNjE3SXZ2WWtmak41MVhBOEF3a0lvX0FzblhIV2xEVHZPdl9Cb0hzN0xCSjlJX0HSAdcBQVVfeXFMTVg1bWM5MTZmSEk3YzlwbV8tSXRyNm16WFR1OEItYjNxTXpsUkpVaDFpc244ZEIwZUN5N3UyaTZPR3NZQnRha2dhWWpERHA0ZEVVWFNBX0psbVZZV2hYbXdMMHpfS3RXMXJpUUZPZzRBZW1NSlJTRHk5UzJ1NFhuYzBoby1Hbmx5N0RwTlIyQ0VxTm9fOVdabVF6bXRuLThHQXdGZ1JNMVEyWWcxczdveS1XM0RHYjBtNTBVOWdGenJwclNJY0tRQml4enoyTFlqeXVZVTJfeU0?oc=5"
+---
+
+US visa curbs: Will Indian IT firms shift more technology work offshore? Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPdmZXaFF2Uk02M0FQc0F5T1pnZGtCQ3JEUTJpMDZUOXo1cnM0TmFBZVBTZUxRT3NmcHZxbEZBYlA5dTM4M3JJRDBZUHlFRXVDYm1OcGFHTFp5Z01rZ01GaGVENmVWZ1NROFVvTlVFNWoxanhNb2F5UTFKc0RzTFl3elpzTm1nMHVMMTk4TUNST1hMV194UExPN1RISldBaE9CVGFYNjE3SXZ2WWtmak41MVhBOEF3a0lvX0FzblhIV2xEVHZPdl9Cb0hzN0xCSjlJX0HSAdcBQVVfeXFMTVg1bWM5MTZmSEk3YzlwbV8tSXRyNm16WFR1OEItYjNxTXpsUkpVaDFpc244ZEIwZUN5N3UyaTZPR3NZQnRha2dhWWpERHA0ZEVVWFNBX0psbVZZV2hYbXdMMHpfS3RXMXJpUUZPZzRBZW1NSlJTRHk5UzJ1NFhuYzBoby1Hbmx5N0RwTlIyQ0VxTm9fOVdabVF6bXRuLThHQXdGZ1JNMVEyWWcxczdveS1XM0RHYjBtNTBVOWdGenJwclNJY0tRQml4enoyTFlqeXVZVTJfeU0?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
