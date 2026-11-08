@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan BJP MLA, former minister Jaswant Yadav dies at age 73 - The Week"
+date: 2026-11-08 14:36:53 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxNbGx5VEdmSUpUMGZyXzhQeGx5MmlBX2tkSWo3XzloUm9uUGhaXy1sNHNCXzVtZmRNZVM0UEtXTUFfTUVZWFdFdHNEYmtkRTh1cU1sWEJQc0JSUmpUTEpuLU9ZOTNhNzNTZ21FcUQyVi1BM0ZzTHQ4cllCNXAtLWhaYkZvZTI3XzI3SVJBS2dtaGV6QzBCUFpDbGhNRTVJdEVldVBJSFcteExjYjBNcldNcS130gG3AUFVX3lxTE1EQ0Nub0lST3VvZkljTGF0UlNTcjhpZG1RRXFjbmlURlAyRnQzS0lka3d6Zmw0YUpEeEVDZFNHd2htak52UnBKNXhYMm5XUmo4UHRJb1dnSjgwdHkybkkxbDRGZE8tUlo5T0tXNFg3Y1psNWM0RHAxMGxITW14Q1pqRm16UXRMQ3hVeUxWdzZNYTlMd3BpNE9ZLS1ULXFNX2ZyS3hDMFpRMEN4dndhSzBxaDFjYW9ZTQ?oc=5"
+---
+
+Rajasthan BJP MLA, former minister Jaswant Yadav dies at age 73 The Week
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxNbGx5VEdmSUpUMGZyXzhQeGx5MmlBX2tkSWo3XzloUm9uUGhaXy1sNHNCXzVtZmRNZVM0UEtXTUFfTUVZWFdFdHNEYmtkRTh1cU1sWEJQc0JSUmpUTEpuLU9ZOTNhNzNTZ21FcUQyVi1BM0ZzTHQ4cllCNXAtLWhaYkZvZTI3XzI3SVJBS2dtaGV6QzBCUFpDbGhNRTVJdEVldVBJSFcteExjYjBNcldNcS130gG3AUFVX3lxTE1EQ0Nub0lST3VvZkljTGF0UlNTcjhpZG1RRXFjbmlURlAyRnQzS0lka3d6Zmw0YUpEeEVDZFNHd2htak52UnBKNXhYMm5XUmo4UHRJb1dnSjgwdHkybkkxbDRGZE8tUlo5T0tXNFg3Y1psNWM0RHAxMGxITW14Q1pqRm16UXRMQ3hVeUxWdzZNYTlMd3BpNE9ZLS1ULXFNX2ZyS3hDMFpRMEN4dndhSzBxaDFjYW9ZTQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

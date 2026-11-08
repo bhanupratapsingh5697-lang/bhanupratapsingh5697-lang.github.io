@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rent-a-grandchild: Businesses offering companions to elderly grow in India - Al Jazeera"
+date: 2026-11-08 14:32:36 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxPOFFYRVBiNW9yb2F6S0pEQU94V3A4RkxaY0k0bHlMeDBTWmt5MzJKbmNKaVBabllMNnE1LU5lcGhoV0lUTk1LbVVYaWk0LWhETDRpdDAwN01wQzZXTDhRS1cxYlZkd0E1MHEzZXp0dXFfYkh5X01HS1YxTnp4UF9XcmZic19iVWUtdEpuYTlqVE5ZOVY2eW9fRGlFSzZIT0JKWE0wbmlfM1ItY0xYeTFiOVdQQ3PSAboBQVVfeXFMUEpHTzBHOFZFeDA3YXhSRmVIckRaelc4REZkQ2w3OW1uanlZcUo2NTZqbEc0WnhKYkcxZVQ2UXd2QXpnbUJabkM2UUIzeUgybkhSYlR2Tk5TRUVnQlVJNEt3aHY5TTNvdnkxQ1Vsdl9SdVpGN3NadUxDZWJtYTFzdk5sLWdGWk9QV0dwWWo0X2Jtd1BlN3hsV21hbkVGb2Q4Ukx3SU02MGp2eDAwZVd2WkFGc0Fwd3NoaHRR?oc=5"
+---
+
+Rent-a-grandchild: Businesses offering companions to elderly grow in India Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxPOFFYRVBiNW9yb2F6S0pEQU94V3A4RkxaY0k0bHlMeDBTWmt5MzJKbmNKaVBabllMNnE1LU5lcGhoV0lUTk1LbVVYaWk0LWhETDRpdDAwN01wQzZXTDhRS1cxYlZkd0E1MHEzZXp0dXFfYkh5X01HS1YxTnp4UF9XcmZic19iVWUtdEpuYTlqVE5ZOVY2eW9fRGlFSzZIT0JKWE0wbmlfM1ItY0xYeTFiOVdQQ3PSAboBQVVfeXFMUEpHTzBHOFZFeDA3YXhSRmVIckRaelc4REZkQ2w3OW1uanlZcUo2NTZqbEc0WnhKYkcxZVQ2UXd2QXpnbUJabkM2UUIzeUgybkhSYlR2Tk5TRUVnQlVJNEt3aHY5TTNvdnkxQ1Vsdl9SdVpGN3NadUxDZWJtYTFzdk5sLWdGWk9QV0dwWWo0X2Jtd1BlN3hsV21hbkVGb2Q4Ukx3SU02MGp2eDAwZVd2WkFGc0Fwd3NoaHRR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

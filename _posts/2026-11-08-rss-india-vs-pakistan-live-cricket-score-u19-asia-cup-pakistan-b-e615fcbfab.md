@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India vs Pakistan Live Cricket Score, U19 Asia Cup: Pakistan beat India by three wickets - The Indian Express"
+date: 2026-11-08 18:48:57 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxORlNaZmg2YUttTW5iUF9TT1lhWkxVOUhoQnp1MEpLZ0Y3RHlqVnU0WVhZNGU0MkFZQndMdUNuOFdvQ2RUb3dlNW5xcmEtTkdjV0xKd2RPUFV1alRaS19zakJHU0pNSEZhaGtPaG9XVVR5WTZBdlduWUxUdUQ0amZqQUxpaGE4cVo0Ylp4WFZLSE5xVDVZaWtKVFdZdVh2UUxEWFp0RUlNUzVBTkJGUmI2Vm9OVXpRckZvaXJoVmJHUWdHTm9OUWh2MkNRZk5qMVnSAdYBQVVfeXFMTUw2QV83T0V2MFI1SkxvMHNIS1JscUxNc3U2bmQ2NmpobWxZb2JTYkVONi0zVEJjS1BSeDJLbW9mLTNYUjQ1LWh6dGl2VmhPc2V6emt5aEpkLVhQbnhRZzdYOG55R3FSemMwT3hQTXBka1hOZzNuSG5BeGdvZEd6M29jUWxLOVRWYmtmTnRnRHdaTlZJZEoxZUhMclRHc05ndjg3Nno4aU90ZTI4UmNGLWtNaUtrY29fVWdLWUxNSDVfeTg3Y092TkxKTnRzLThiSWtsN2RzQQ?oc=5"
+---
+
+India vs Pakistan Live Cricket Score, U19 Asia Cup: Pakistan beat India by three wickets The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxORlNaZmg2YUttTW5iUF9TT1lhWkxVOUhoQnp1MEpLZ0Y3RHlqVnU0WVhZNGU0MkFZQndMdUNuOFdvQ2RUb3dlNW5xcmEtTkdjV0xKd2RPUFV1alRaS19zakJHU0pNSEZhaGtPaG9XVVR5WTZBdlduWUxUdUQ0amZqQUxpaGE4cVo0Ylp4WFZLSE5xVDVZaWtKVFdZdVh2UUxEWFp0RUlNUzVBTkJGUmI2Vm9OVXpRckZvaXJoVmJHUWdHTm9OUWh2MkNRZk5qMVnSAdYBQVVfeXFMTUw2QV83T0V2MFI1SkxvMHNIS1JscUxNc3U2bmQ2NmpobWxZb2JTYkVONi0zVEJjS1BSeDJLbW9mLTNYUjQ1LWh6dGl2VmhPc2V6emt5aEpkLVhQbnhRZzdYOG55R3FSemMwT3hQTXBka1hOZzNuSG5BeGdvZEd6M29jUWxLOVRWYmtmTnRnRHdaTlZJZEoxZUhMclRHc05ndjg3Nno4aU90ZTI4UmNGLWtNaUtrY29fVWdLWUxNSDVfeTg3Y092TkxKTnRzLThiSWtsN2RzQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

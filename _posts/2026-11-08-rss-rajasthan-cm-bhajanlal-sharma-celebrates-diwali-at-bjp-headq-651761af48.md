@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan CM Bhajanlal Sharma Celebrates Diwali at BJP Headquarters - Asianet Newsable"
+date: 2026-11-08 13:42:03 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxPV003ZGdDQktsZHhKTUdsZHZ6cmVuaDZrbHIwNzFSSnlLU0FoR3pZVm1uTmtpNTFfVEc2ZmJuUzZYVTNCcXZtbjJld1E3cEJjWlZRRjQ3UnZkemxOR3QzYTRibTE1cjEtQVN0dWlLYS1RTHoxSFJQeXBXMnNMSG5VZUlLQm9XWDlyR0x4UWMyWGs1NzVzc29CM0JXNTE2SFR5S3EtSm1rQjB2TndIc1VjX1QxM1R1VUxXWjY0Si1WUEVKRGs50gHKAUFVX3lxTE5jaHdqeGZCUXVMcWR3bWtVeUxsNDh1cmpEaUFYdGZOeGFWOGhUd1RKYWdQSHotVEUyWXg5QTZMQ005ZXNrbHhlT3JpcG1JSVRBdGRfd2UyWVVBeHVVc2lYcnZhbWZJYTlhUXFSWHhKcVJNQlRiMmlScXB5SGRkektMOU9JVFRJX3pxejhOZ3pybG9MQ3hvbVhnLXhHdE0xcVZTSWxESWt1ZHZ4Zmt1VF9LM21FcV83Q0wwQ1NfZUZMWUloeWNfaF9HeFE?oc=5"
+---
+
+Rajasthan CM Bhajanlal Sharma Celebrates Diwali at BJP Headquarters Asianet Newsable
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxPV003ZGdDQktsZHhKTUdsZHZ6cmVuaDZrbHIwNzFSSnlLU0FoR3pZVm1uTmtpNTFfVEc2ZmJuUzZYVTNCcXZtbjJld1E3cEJjWlZRRjQ3UnZkemxOR3QzYTRibTE1cjEtQVN0dWlLYS1RTHoxSFJQeXBXMnNMSG5VZUlLQm9XWDlyR0x4UWMyWGs1NzVzc29CM0JXNTE2SFR5S3EtSm1rQjB2TndIc1VjX1QxM1R1VUxXWjY0Si1WUEVKRGs50gHKAUFVX3lxTE5jaHdqeGZCUXVMcWR3bWtVeUxsNDh1cmpEaUFYdGZOeGFWOGhUd1RKYWdQSHotVEUyWXg5QTZMQ005ZXNrbHhlT3JpcG1JSVRBdGRfd2UyWVVBeHVVc2lYcnZhbWZJYTlhUXFSWHhKcVJNQlRiMmlScXB5SGRkektMOU9JVFRJX3pxejhOZ3pybG9MQ3hvbVhnLXhHdE0xcVZTSWxESWt1ZHZ4Zmt1VF9LM21FcV83Q0wwQ1NfZUZMWUloeWNfaF9HeFE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Cricket Vs Baseball: How MLBx Mumbai Reignited Age-Old Sporting Debate - News18"
+date: 2026-11-08 13:28:32 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxOSUpQVjRIZUNnZlBITXowU19EdVdpQ0RYOG1aYXd1V3ByckM3UWJ6MVFVcHNoNlBnalI4b1RrNzR5ekFnQUlrSEVlZlBBNE5VblFmT1V5eXhtX2FDRDVDM1R3RUpCcFBpdjF6VldEM3ExQWhRQWN2cDNXZUlLTUpSLWlYVlJoaEhnZ05ZRERQdGphc3ZuWDN4dFg0WXFoVXZ4SzJabWMwbzk2QzdsNlVHc3lQYUxveEJ6LVJ2adIBwgFBVV95cUxPa1NiQzhBQmQxenVfc2xibDRka1VFc0VZYVRUMnFNb1U5elIzTHNicHd1ZGNfbk5XWnZpVm9YeDJiXzZtclJjaHltTFFUMEllME15dWo4QWxxRmtSLUE3MlpSbWtRVEl2M3d5ai1VNDE2RG96VXJiRHNNcUJFOE5IeU0yc2k0VTlKRnB0NThSUEtkMEg4aDMydHBnTjRnMmRCWUdpZGJVcDVvWUtjdzRWN2xlaDYtQmNnckt0RXV0S0F5QQ?oc=5"
+---
+
+Cricket Vs Baseball: How MLBx Mumbai Reignited Age-Old Sporting Debate News18
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxOSUpQVjRIZUNnZlBITXowU19EdVdpQ0RYOG1aYXd1V3ByckM3UWJ6MVFVcHNoNlBnalI4b1RrNzR5ekFnQUlrSEVlZlBBNE5VblFmT1V5eXhtX2FDRDVDM1R3RUpCcFBpdjF6VldEM3ExQWhRQWN2cDNXZUlLTUpSLWlYVlJoaEhnZ05ZRERQdGphc3ZuWDN4dFg0WXFoVXZ4SzJabWMwbzk2QzdsNlVHc3lQYUxveEJ6LVJ2adIBwgFBVV95cUxPa1NiQzhBQmQxenVfc2xibDRka1VFc0VZYVRUMnFNb1U5elIzTHNicHd1ZGNfbk5XWnZpVm9YeDJiXzZtclJjaHltTFFUMEllME15dWo4QWxxRmtSLUE3MlpSbWtRVEl2M3d5ai1VNDE2RG96VXJiRHNNcUJFOE5IeU0yc2k0VTlKRnB0NThSUEtkMEg4aDMydHBnTjRnMmRCWUdpZGJVcDVvWUtjdzRWN2xlaDYtQmNnckt0RXV0S0F5QQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

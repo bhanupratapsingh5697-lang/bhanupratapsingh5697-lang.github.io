@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan BJP MLA Jaswant Yadav dies at 73 after prolonged illness - The Hindu"
+date: 2026-11-08 14:06:49 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxNcVZRa2xVcmtZM0lOM1JsMG1jTEtaRmlBV0pWYm9nVjRZSkV4M0NwbnJaNVdOWFl6WFhuSkwwZkIzcVpEM1VIZlZBYVVwYWJ4YV9RQmxjYTl1WlhfYlhNYzFZd3NTeVJnRmppV2hBOFV0OHgtZHY2NTlleG1tay1Zb24wajJxeEpVdlJJSkxTaHBzdzJlLVBlQzJzaFlEVDhhOEx3Y0I2RWZESnlVV0trY0tuZ2JqZGppQk5veTFPYkkteERaRldpY0hTcmRzdktW0gHXAUFVX3lxTFAtLUNXWG5seDZnYnNfTzd0TjQycnVYUDhkWEdXQTdCMnRLNUlfUUFBbnY5SUl5V3FYcWNNQWdmUnpTUUtOQ2pJZFVLdWx2VWtVMVBjUVBrMTFnS2FEeDVTN3hEa2dQcTdQRm9aVDlLeXF3WWczMUV4UjYtNGdnSUFISUNmQzBvUERYd0h5YzcwNVJmZjNNNi16LWFfdXdudHB1NVhET081VmMyMHcwbFRyeXo2NUdEaVFvMDlNZUJkYXJJOHRCeDZWZVpnbkhBOGwwSFctVzRB?oc=5"
+---
+
+Rajasthan BJP MLA Jaswant Yadav dies at 73 after prolonged illness The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNcVZRa2xVcmtZM0lOM1JsMG1jTEtaRmlBV0pWYm9nVjRZSkV4M0NwbnJaNVdOWFl6WFhuSkwwZkIzcVpEM1VIZlZBYVVwYWJ4YV9RQmxjYTl1WlhfYlhNYzFZd3NTeVJnRmppV2hBOFV0OHgtZHY2NTlleG1tay1Zb24wajJxeEpVdlJJSkxTaHBzdzJlLVBlQzJzaFlEVDhhOEx3Y0I2RWZESnlVV0trY0tuZ2JqZGppQk5veTFPYkkteERaRldpY0hTcmRzdktW0gHXAUFVX3lxTFAtLUNXWG5seDZnYnNfTzd0TjQycnVYUDhkWEdXQTdCMnRLNUlfUUFBbnY5SUl5V3FYcWNNQWdmUnpTUUtOQ2pJZFVLdWx2VWtVMVBjUVBrMTFnS2FEeDVTN3hEa2dQcTdQRm9aVDlLeXF3WWczMUV4UjYtNGdnSUFISUNmQzBvUERYd0h5YzcwNVJmZjNNNi16LWFfdXdudHB1NVhET081VmMyMHcwbFRyeXo2NUdEaVFvMDlNZUJkYXJJOHRCeDZWZVpnbkhBOGwwSFctVzRB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

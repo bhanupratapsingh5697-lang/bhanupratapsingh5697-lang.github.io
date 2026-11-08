@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India A include Badoni for Rising Stars Asia Cup after Patidar opts out - Cricinfo"
+date: 2026-11-08 12:44:02 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxNbDhPaFcxWTRCS1E2ZlkteWdxbGdXSEJ2cF9HU3FwbEFNRmNOZ3htZEpXUTFqNjF1SlpNREtFSnAxSXdzbHBwN0l3RTdFckVoeXE1Q2NJVWs4U1hXYngxVnpQSThocnNtWFR6TXNhUjlrZVVDWGU5Znl5WERqNGttdmVMV3NONWF5TzhWcWdNaEplTm5uVnpwQXk3WUlqeDNuclJ1NDZCd3lLUXVId1RCTExDVEdJdzd6SU5kRGIxRdIB0AFBVV95cUxNTV9QR1RnbkZET3dwS21ZX2xjdEJucDRxZko1eFcyTFdMV2FvdTZqX3l0RE40cnZfYjd0VlZwTllKRFlCVUhjNFVmcmx2aEpEdm5IOFQwSzBUZ29JNFFYVUxPa1NsVWxxSVlRNHo5UEFseDY0cWJyd2FPSWRnR3JJS2VYUUxLRWZXMTVrNElfNGVGTVdPOFZ5V3NwNUhhVjBjSEJzbnpFcm5QbHZ4YzY4SnBJTTdKYzZsU0hKdmc3ZW9nbEVCQzBYd09aZVAxN1B3?oc=5"
+---
+
+India A include Badoni for Rising Stars Asia Cup after Patidar opts out Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxNbDhPaFcxWTRCS1E2ZlkteWdxbGdXSEJ2cF9HU3FwbEFNRmNOZ3htZEpXUTFqNjF1SlpNREtFSnAxSXdzbHBwN0l3RTdFckVoeXE1Q2NJVWs4U1hXYngxVnpQSThocnNtWFR6TXNhUjlrZVVDWGU5Znl5WERqNGttdmVMV3NONWF5TzhWcWdNaEplTm5uVnpwQXk3WUlqeDNuclJ1NDZCd3lLUXVId1RCTExDVEdJdzd6SU5kRGIxRdIB0AFBVV95cUxNTV9QR1RnbkZET3dwS21ZX2xjdEJucDRxZko1eFcyTFdMV2FvdTZqX3l0RE40cnZfYjd0VlZwTllKRFlCVUhjNFVmcmx2aEpEdm5IOFQwSzBUZ29JNFFYVUxPa1NsVWxxSVlRNHo5UEFseDY0cWJyd2FPSWRnR3JJS2VYUUxLRWZXMTVrNElfNGVGTVdPOFZ5V3NwNUhhVjBjSEJzbnpFcm5QbHZ4YzY4SnBJTTdKYzZsU0hKdmc3ZW9nbEVCQzBYd09aZVAxN1B3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

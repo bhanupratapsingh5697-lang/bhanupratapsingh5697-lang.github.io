@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India vs Pakistan Live Score, U19 Asia Cup: Hamza, Pakistan spoil India's Diwali party with 3-wicket win - India Today"
+date: 2026-11-08 18:21:17 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxPSUgybVpCdVh1eEFQejlTWVdyY0wzQmcxd1c3Y2hxUVBhX0wySHF0d1pNRzVvaWMwNEFONnZmUG5QRXpUM3htdlFnY1VwblVBS0JXX3Q3dVhFeGFBbFU0OUFsNGVOeGUwcGZOYkdDRWRCRzRTWmNOeEY1NW56MlFSOTUtc1oyTk13bFZncU1iS3F4SU51eENMUVYtUGtXajJ4THVVa3NRNUsycFJCN0lkSHZPRnBEVnEwc1ZNVjhpem1oVDlDYlpsMld0dGtpWGVj0gHWAUFVX3lxTE1KcjVKZWlnUWNOWGFVaDMxbWZoWHNRQmh2ZXVlX0VRam9FbTBBRFRtV25NNm5MbUtQZ1RIU3BKckktUU9OVnprTVZUUXFnQi1TLU4wOGU4TTk2MjlXdVVWS0V3NEl6MGV6aDFKUVhWb1hlRkN4VmJkb29YNl95OHh6cWo1WlIza2lRQUdxT3dCVTlXMUxzQUZ4OVNmWnFmMWhCZEtLNzA1ZWNSc1pRZU5ad0lYbjlmdC1kaGpmSU5jeERfeUVxejljMThEbWtBUzJHVVI5Wmc?oc=5"
+---
+
+India vs Pakistan Live Score, U19 Asia Cup: Hamza, Pakistan spoil India's Diwali party with 3-wicket win India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPSUgybVpCdVh1eEFQejlTWVdyY0wzQmcxd1c3Y2hxUVBhX0wySHF0d1pNRzVvaWMwNEFONnZmUG5QRXpUM3htdlFnY1VwblVBS0JXX3Q3dVhFeGFBbFU0OUFsNGVOeGUwcGZOYkdDRWRCRzRTWmNOeEY1NW56MlFSOTUtc1oyTk13bFZncU1iS3F4SU51eENMUVYtUGtXajJ4THVVa3NRNUsycFJCN0lkSHZPRnBEVnEwc1ZNVjhpem1oVDlDYlpsMld0dGtpWGVj0gHWAUFVX3lxTE1KcjVKZWlnUWNOWGFVaDMxbWZoWHNRQmh2ZXVlX0VRam9FbTBBRFRtV25NNm5MbUtQZ1RIU3BKckktUU9OVnprTVZUUXFnQi1TLU4wOGU4TTk2MjlXdVVWS0V3NEl6MGV6aDFKUVhWb1hlRkN4VmJkb29YNl95OHh6cWo1WlIza2lRQUdxT3dCVTlXMUxzQUZ4OVNmWnFmMWhCZEtLNzA1ZWNSc1pRZU5ad0lYbjlmdC1kaGpmSU5jeERfeUVxejljMThEbWtBUzJHVVI5Wmc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

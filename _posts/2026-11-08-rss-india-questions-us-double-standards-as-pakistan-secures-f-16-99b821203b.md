@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India questions US ‘double standards’ as Pakistan secures F-16 upgrade deal - South China Morning Post"
+date: 2026-11-08 13:30:36 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxPd1MwMXlyYVZNbEc2TWk0Z01tNjJLN2ZmUlFSYlpRUXhkbFNGVjk5WU4zRENvZHB4aW1EZV90VTBnZU9SR3FGcFBpNk43eU9ldmpqZXB6WjdHdHRYV1ZCSkN1WTFuVHF6TmNfdzRrcFBYS1NMVmhBVXV2Uk5Vc2t6Vmk4SmwwSUhVeFZ5VHNJTGcwektwR0xzOGhndG5SN3g4dlJqQW43MER3a21BZm1adzJWdTVYaVdRMlhlR2gyZ3lpVnda0gHEAUFVX3lxTE82dG9CQm5zYzA4VHhsSTRHVndJSno1UjVWOVNmQWZCMkRoWDhhOTc1VnlsVHUtdEY0U3EwWm0ydXlROEJLUU9xeURDbEc0eENINEpFeGl6cGU3aERDYnNYUHV1aVBtdktNSTRGdTFYdW96RkpYS1N3Q29rbXJNTHVQemtGNjBYYjV5UVBORkEzU0IyLU92cjM4dnZxSkZJTXo5dTlGZXVNNnpYMWJkR1J0OUtlTmcwVnN1ZkR2Skp3SnVZdWk?oc=5"
+---
+
+India questions US ‘double standards’ as Pakistan secures F-16 upgrade deal South China Morning Post
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxPd1MwMXlyYVZNbEc2TWk0Z01tNjJLN2ZmUlFSYlpRUXhkbFNGVjk5WU4zRENvZHB4aW1EZV90VTBnZU9SR3FGcFBpNk43eU9ldmpqZXB6WjdHdHRYV1ZCSkN1WTFuVHF6TmNfdzRrcFBYS1NMVmhBVXV2Uk5Vc2t6Vmk4SmwwSUhVeFZ5VHNJTGcwektwR0xzOGhndG5SN3g4dlJqQW43MER3a21BZm1adzJWdTVYaVdRMlhlR2gyZ3lpVnda0gHEAUFVX3lxTE82dG9CQm5zYzA4VHhsSTRHVndJSno1UjVWOVNmQWZCMkRoWDhhOTc1VnlsVHUtdEY0U3EwWm0ydXlROEJLUU9xeURDbEc0eENINEpFeGl6cGU3aERDYnNYUHV1aVBtdktNSTRGdTFYdW96RkpYS1N3Q29rbXJNTHVQemtGNjBYYjV5UVBORkEzU0IyLU92cjM4dnZxSkZJTXo5dTlGZXVNNnpYMWJkR1J0OUtlTmcwVnN1ZkR2Skp3SnVZdWk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
