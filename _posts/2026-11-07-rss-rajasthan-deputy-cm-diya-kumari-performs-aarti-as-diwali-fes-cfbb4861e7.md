@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Deputy CM Diya Kumari Performs Aarti As Diwali Fest Begins - Asianet Newsable"
+date: 2026-11-07 21:41:55 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxNMHNSSkxWRjl6dmpNa2N0VkhfUjIyZEltQTVFNnE0Qzc1SEpUTDJZN3dPQ2RTVkFKYi00b0hHQll3MHZ3MTVkTVRmeTUzTDRUTkF1RUxqRlRFVWloYVByUXpRVm1naVFXV29qLU9RVWRYR1BNTXNpaVVrVk80aU9yUEU1aUMxdE5jNk9BNjRybXE2ZGpENDY3UjZyTUVoZ2ZEYVYwdkJRQjU5QVdPVllha29wd3JSdWJUUTh3ZWl0T3JfVzVSYVHSAcsBQVVfeXFMTWJyYXdYbU1Tc0xWTDRoSFpuQXdmaDVIOHo3MzNwbnVJMEV1WWJueUt4V2x1dGNWeERFc3doMGR6dmRvZVhSLUhrZElMWDBOeFN4MHdUc3Z0MHJ6T284RzFoU0NINHZEWlZQZ1NfWUNxYXlpQXVkNHQ2a0Vyd0RJTTZvbmJyYkhKZkdYTVVRLUVMNzVmdExZQmsySlpUTTJHMERYdXpMczFaM1ZLaDhoN01vT1pqWUFzdlBMNTgtaVdLV0s4c21SdzRIMG8?oc=5"
+---
+
+Rajasthan Deputy CM Diya Kumari Performs Aarti As Diwali Fest Begins Asianet Newsable
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxNMHNSSkxWRjl6dmpNa2N0VkhfUjIyZEltQTVFNnE0Qzc1SEpUTDJZN3dPQ2RTVkFKYi00b0hHQll3MHZ3MTVkTVRmeTUzTDRUTkF1RUxqRlRFVWloYVByUXpRVm1naVFXV29qLU9RVWRYR1BNTXNpaVVrVk80aU9yUEU1aUMxdE5jNk9BNjRybXE2ZGpENDY3UjZyTUVoZ2ZEYVYwdkJRQjU5QVdPVllha29wd3JSdWJUUTh3ZWl0T3JfVzVSYVHSAcsBQVVfeXFMTWJyYXdYbU1Tc0xWTDRoSFpuQXdmaDVIOHo3MzNwbnVJMEV1WWJueUt4V2x1dGNWeERFc3doMGR6dmRvZVhSLUhrZElMWDBOeFN4MHdUc3Z0MHJ6T284RzFoU0NINHZEWlZQZ1NfWUNxYXlpQXVkNHQ2a0Vyd0RJTTZvbmJyYkhKZkdYTVVRLUVMNzVmdExZQmsySlpUTTJHMERYdXpMczFaM1ZLaDhoN01vT1pqWUFzdlBMNTgtaVdLV0s4c21SdzRIMG8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

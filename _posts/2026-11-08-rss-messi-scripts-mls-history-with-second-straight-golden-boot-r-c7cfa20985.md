@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Messi scripts MLS history with second straight Golden Boot - Rediff"
+date: 2026-11-08 09:16:14 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMirAFBVV95cUxPdEUtNndFQzFRRjQzTmV0YzdILTN5UlFXLUtqUHVoREp6QnFQY0RWaWNBOWZBY2hGX0VzRXNUSFJqZGFHNm1iX0NOckNqZE1XWVh6S0Y3eXVzTm1hZmFpYWYxM0VlVmFVQThvZURUaWRCb0JTcU5uY25mUVJCcUlLSDQ1NDFpdmk5WU5ydEEydThoVXZWaGFDamlBMGVyeW5vbXJyZkh0UkpYQ1Nj0gGvAUFVX3lxTFBVdFhCNXY0SXAtTHF6TWxKTDNreEI4WmJkMzlNdjA0ZmNhRi01VldxcnU5aG1PS1pUclA3UEs2UXJ0TDhRNlM3b08xNnRnOFRUUXN4SDhnaTZUb29ESVpxZ1VrWlJMNG9kbnowU2JEZWpLd2ZaVmZXRkthblhTeHE1QVdvRDdDcU5yQUhpdVZqdjZzQ1RhMy14VWs3a3pFa1g2eFc1M0duOHpYRjlhTms?oc=5"
+---
+
+Messi scripts MLS history with second straight Golden Boot Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirAFBVV95cUxPdEUtNndFQzFRRjQzTmV0YzdILTN5UlFXLUtqUHVoREp6QnFQY0RWaWNBOWZBY2hGX0VzRXNUSFJqZGFHNm1iX0NOckNqZE1XWVh6S0Y3eXVzTm1hZmFpYWYxM0VlVmFVQThvZURUaWRCb0JTcU5uY25mUVJCcUlLSDQ1NDFpdmk5WU5ydEEydThoVXZWaGFDamlBMGVyeW5vbXJyZkh0UkpYQ1Nj0gGvAUFVX3lxTFBVdFhCNXY0SXAtTHF6TWxKTDNreEI4WmJkMzlNdjA0ZmNhRi01VldxcnU5aG1PS1pUclA3UEs2UXJ0TDhRNlM3b08xNnRnOFRUUXN4SDhnaTZUb29ESVpxZ1VrWlJMNG9kbnowU2JEZWpLd2ZaVmZXRkthblhTeHE1QVdvRDdDcU5yQUhpdVZqdjZzQ1RhMy14VWs3a3pFa1g2eFc1M0duOHpYRjlhTms?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

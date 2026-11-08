@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sonia Gandhi‘s ‘Belonging: A Journey of Love’ | How a love story grew into a deep belonging to India - The Hindu"
+date: 2026-11-07 06:00:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi6AFBVV95cUxPdDV3X1lOLWF4OVczV1R3WTZqazMycUd3RnZZZFlVOUNaX1NUWl9rZklOY1l6MDM5NFlPeGtrbE1FMlJJY0E3a016YVJjckgwdGJqbXg4ejhPcjN4SThtWmcxbGd5djZBb3lJazNidTh3M3ozXzhsVzhSSmI3NVNSNkpSRUJMYnZELVRONno3QkdTQXdTWEJCZHBGYUtfMGRqWV9lMFIxd1Z0alZTVVNQY1VVWHFnS3FScFpvUVc1RGpLbFN5OXdDZDhBbWVGeW5mcEt0YlVud0hPT0pYRmk4Q2tMamIwOHFs0gHvAUFVX3lxTE1kdkRINldZSGxHb2tsRGhRXzdhSUtyeTBzam00VE1SSGNudzN2d2ZJbUREYzRkaERDU0pHMTBnam93SGwyeFFVbGxZSGhmMnlzY3EzaXhURGZjNXNBNDRUYndLa3VmcENaVGRVZE1QMnRLd1YtYjA1dGhyVDF1dm1JSlNqNllNRnJVSVF6MzJ6VURqQW52cUFPZjA0cDB5bVpFeVpkSmpzQkNOSFQyQnpOQW9mQkFNdklOTzgtSFpqdGFMSHdOZXhvT2s0SHRfYzJMRmQwdjVYRUxNVGJvNWtuN3NnZmE1QmFmUnVBWHhB?oc=5"
+---
+
+Sonia Gandhi‘s ‘Belonging: A Journey of Love’ | How a love story grew into a deep belonging to India The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi6AFBVV95cUxPdDV3X1lOLWF4OVczV1R3WTZqazMycUd3RnZZZFlVOUNaX1NUWl9rZklOY1l6MDM5NFlPeGtrbE1FMlJJY0E3a016YVJjckgwdGJqbXg4ejhPcjN4SThtWmcxbGd5djZBb3lJazNidTh3M3ozXzhsVzhSSmI3NVNSNkpSRUJMYnZELVRONno3QkdTQXdTWEJCZHBGYUtfMGRqWV9lMFIxd1Z0alZTVVNQY1VVWHFnS3FScFpvUVc1RGpLbFN5OXdDZDhBbWVGeW5mcEt0YlVud0hPT0pYRmk4Q2tMamIwOHFs0gHvAUFVX3lxTE1kdkRINldZSGxHb2tsRGhRXzdhSUtyeTBzam00VE1SSGNudzN2d2ZJbUREYzRkaERDU0pHMTBnam93SGwyeFFVbGxZSGhmMnlzY3EzaXhURGZjNXNBNDRUYndLa3VmcENaVGRVZE1QMnRLd1YtYjA1dGhyVDF1dm1JSlNqNllNRnJVSVF6MzJ6VURqQW52cUFPZjA0cDB5bVpFeVpkSmpzQkNOSFQyQnpOQW9mQkFNdklOTzgtSFpqdGFMSHdOZXhvT2s0SHRfYzJMRmQwdjVYRUxNVGJvNWtuN3NnZmE1QmFmUnVBWHhB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

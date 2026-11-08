@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sonia’s Babri claim exposes Cong’s anti-Ram face: BJP - The Times of India"
+date: 2026-11-08 03:29:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxQb3MxblgyT1g3THc2aGgteGtnRk5tV2xTTTVPcU5qczIyajI1QjZvQlJuTVoxZWFpQW1oel9qa3ZldXBMTTczbllTb24zSWRDa0k5UWU4enM1bC1oSWw1MkJDMnBPdVA5cVN3ajZSNjRrZVBmZERMTExJQmk0MlU0dVQ2dnRpNWUyU0kxaGw2MlFva3NXal82OHIwTFhTME9ReFZ4R25JZTZock9BNWxaZTB6M1I5LTF4VlHSAb8BQVVfeXFMUEJfaHNSRTdBUk11elRZWWs0NThaTE5ocDJKa0VhNEdWaXNzOXE4VFd5eFRGSV9kWm5EQmttZ1k1ai0zZ1VfblNIemhoYXBfZ2hSRVQ3R1dTMTRLUEJxX0NBZUNTT1RFS2F2bkZlelV5dlJINkNvTGdseTJGZGVpQTYxNEV2Y3ItS0xUeFJUVWxzLUswTlMwcWN1THpQYmdNd1RPNWc0NkFfSEdWdll3RmhtNEZDU1RiUnQwS05JbDA?oc=5"
+---
+
+Sonia’s Babri claim exposes Cong’s anti-Ram face: BJP The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxQb3MxblgyT1g3THc2aGgteGtnRk5tV2xTTTVPcU5qczIyajI1QjZvQlJuTVoxZWFpQW1oel9qa3ZldXBMTTczbllTb24zSWRDa0k5UWU4enM1bC1oSWw1MkJDMnBPdVA5cVN3ajZSNjRrZVBmZERMTExJQmk0MlU0dVQ2dnRpNWUyU0kxaGw2MlFva3NXal82OHIwTFhTME9ReFZ4R25JZTZock9BNWxaZTB6M1I5LTF4VlHSAb8BQVVfeXFMUEJfaHNSRTdBUk11elRZWWs0NThaTE5ocDJKa0VhNEdWaXNzOXE4VFd5eFRGSV9kWm5EQmttZ1k1ai0zZ1VfblNIemhoYXBfZ2hSRVQ3R1dTMTRLUEJxX0NBZUNTT1RFS2F2bkZlelV5dlJINkNvTGdseTJGZGVpQTYxNEV2Y3ItS0xUeFJUVWxzLUswTlMwcWN1THpQYmdNd1RPNWc0NkFfSEdWdll3RmhtNEZDU1RiUnQwS05JbDA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

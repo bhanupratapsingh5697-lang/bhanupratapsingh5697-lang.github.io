@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Gujarat woman’s ST quota claim in Rajasthan dismissed by high court - The Times of India"
+date: 2026-11-07 23:48:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxOT0wwQU44ajJ1dEJSX3ZMRllkV2hQek5ySDRSZldoRk8wT2FZZ2lPelpnZUlvWk5UYllJcHlUeXZWM3dnNnM5a3FTLWh4Mkp0elhGajRHQl9tN3VPVmcySVpZbjdHS0tGZFkzWUtSZnNtNG96LWhjRW1WZEJKRnRMdmxGYjNxa1dSdWNVWDQ3TzhZN2dnOGk5TUhaRkZEcGR0bkIxZDFaQ3RpWFRIUl9NY3ZSOE93N05LVzJhOF9LXzgxN3FUX2FMQzNCb2VSZThfazJld0VTVdIB3AFBVV95cUxQQnM1QnZ5RUZLTVBfS0F4RUZOSENtY0N4ODFtaXp2Y2xOckZld1ltZTFVZnNseVh2aXRhVWhwc2lEQ3J0QXA0TlQ1eXJjb3gzTG9Dd2Y5Q3BmS3dnR05vYWFIcXlCRGIzdHJzWEl4UndpU2IxZFlFRHFhaU5Wc2RtVzVaMVg0UFhTdUJSNU8ycHprc0NWa1FBZmdBWVpIdC1pSDNuUGE0cENrOXV4TUhGOUZEMGhLWVI1eDJ5ekhpN3VEZVJrZFo1TG15V1BCNlliUHBCVlZMUEZRU2VE?oc=5"
+---
+
+Gujarat woman’s ST quota claim in Rajasthan dismissed by high court The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxOT0wwQU44ajJ1dEJSX3ZMRllkV2hQek5ySDRSZldoRk8wT2FZZ2lPelpnZUlvWk5UYllJcHlUeXZWM3dnNnM5a3FTLWh4Mkp0elhGajRHQl9tN3VPVmcySVpZbjdHS0tGZFkzWUtSZnNtNG96LWhjRW1WZEJKRnRMdmxGYjNxa1dSdWNVWDQ3TzhZN2dnOGk5TUhaRkZEcGR0bkIxZDFaQ3RpWFRIUl9NY3ZSOE93N05LVzJhOF9LXzgxN3FUX2FMQzNCb2VSZThfazJld0VTVdIB3AFBVV95cUxQQnM1QnZ5RUZLTVBfS0F4RUZOSENtY0N4ODFtaXp2Y2xOckZld1ltZTFVZnNseVh2aXRhVWhwc2lEQ3J0QXA0TlQ1eXJjb3gzTG9Dd2Y5Q3BmS3dnR05vYWFIcXlCRGIzdHJzWEl4UndpU2IxZFlFRHFhaU5Wc2RtVzVaMVg0UFhTdUJSNU8ycHprc0NWa1FBZmdBWVpIdC1pSDNuUGE0cENrOXV4TUhGOUZEMGhLWVI1eDJ5ekhpN3VEZVJrZFo1TG15V1BCNlliUHBCVlZMUEZRU2VE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

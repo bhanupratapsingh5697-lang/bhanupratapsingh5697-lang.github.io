@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Are sneakers the new diamond? What’s behind urban India’s latest footwear craze - Telegraph India"
+date: 2026-11-08 08:17:34 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxOOGZWZjdvNmdGVDRVTUlQNjhiWTdMbzFGV29QeXBUNURxNWVUZnJKak45dS1aSjRUcDlGYlJSbk5fNTR3M1FVNTAxVVROYk5oUG5hc25FaC1pOEx2X2xJUzJNblllLW9qSjRUTmlLSkp5T0xuZFVnTGpwMUphaFVmcWxycEViSDRMaTFqeEJ2OTRxQWlLbkNiQ2RNaUJFVzk0cklrQkQyaU9nR0ZQNG41c09jUjZpcU9pY2dTVdIBwgFBVV95cUxONHVWNDNDVHVSelZLaGhER3ZNWXJDWGc2NGFjY1U4cktRMTNKNlFzOGhRb2otS19VaW5CaUNaR2ZKNmJlckcyRlkzYmFxaTlTWi0xZGIyVldQVjJ5UXVxUm9IWVpzRUtTVVV6Y05nOUpRU2cxcTNpSjdfc3YxTlp5Z21FWHZxTERfVFR2cmJSSWd0REtCVFM3aDR5WTdGTm94VjQzNkVrTnlsZjJTYm1maEMtQnY0OG1zNFhRcy1HWHpFUQ?oc=5"
+---
+
+Are sneakers the new diamond? What’s behind urban India’s latest footwear craze Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxOOGZWZjdvNmdGVDRVTUlQNjhiWTdMbzFGV29QeXBUNURxNWVUZnJKak45dS1aSjRUcDlGYlJSbk5fNTR3M1FVNTAxVVROYk5oUG5hc25FaC1pOEx2X2xJUzJNblllLW9qSjRUTmlLSkp5T0xuZFVnTGpwMUphaFVmcWxycEViSDRMaTFqeEJ2OTRxQWlLbkNiQ2RNaUJFVzk0cklrQkQyaU9nR0ZQNG41c09jUjZpcU9pY2dTVdIBwgFBVV95cUxONHVWNDNDVHVSelZLaGhER3ZNWXJDWGc2NGFjY1U4cktRMTNKNlFzOGhRb2otS19VaW5CaUNaR2ZKNmJlckcyRlkzYmFxaTlTWi0xZGIyVldQVjJ5UXVxUm9IWVpzRUtTVVV6Y05nOUpRU2cxcTNpSjdfc3YxTlp5Z21FWHZxTERfVFR2cmJSSWd0REtCVFM3aDR5WTdGTm94VjQzNkVrTnlsZjJTYm1maEMtQnY0OG1zNFhRcy1HWHpFUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

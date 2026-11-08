@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Making Digital India truly Viksit: Why technology needs governance reform - Deccan Herald"
+date: 2026-11-08 00:28:49 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxQYTNfZHVFV3Q5SkJRT0dveFpjMUhpSEZpeGZjQmplTUpVenpvSDNrR3ZLeUxDUk9wYmlWNUs3UWRxZkIzYXhrYWVGUUg5WmNDYklYeG1fWmZTQXFzazVjNmYzZjU1WWRTZ2Z0Qko4bkIzdHNPUzBwSDdyb3hXMENBRHlYSndEMjQyb0YzR1d0andkbkFLLVpEVl9oLXZUV25XSjJYOHRCNTQ5V3lZeGN3aXhGcHB1aGZZ0gHIAUFVX3lxTE4yd1pYNnczZG1Ib29PbnhVcWhkU1ljb2xQRDg4RnVia283SDA5dHdHQnE3TzJBeE5vVXUzUWF3OUZiZ2djN2xWSzV2b2xfQUF2ZC14UVFacnkxS3NURWUzRTMzZ2RtM3Zhb0JkTnNjRG1EbDhIbVNTTEhfSjREVUZIYU54eldhNW5nalFEQUstUnR0VHNGNUVGVnRtMnltWGFNa0N5NUwySkQ0endfRk1NMnBfcGJmNmFIVDFlWVd5WmZDZ3dRTUh2?oc=5"
+---
+
+Making Digital India truly Viksit: Why technology needs governance reform Deccan Herald
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQYTNfZHVFV3Q5SkJRT0dveFpjMUhpSEZpeGZjQmplTUpVenpvSDNrR3ZLeUxDUk9wYmlWNUs3UWRxZkIzYXhrYWVGUUg5WmNDYklYeG1fWmZTQXFzazVjNmYzZjU1WWRTZ2Z0Qko4bkIzdHNPUzBwSDdyb3hXMENBRHlYSndEMjQyb0YzR1d0andkbkFLLVpEVl9oLXZUV25XSjJYOHRCNTQ5V3lZeGN3aXhGcHB1aGZZ0gHIAUFVX3lxTE4yd1pYNnczZG1Ib29PbnhVcWhkU1ljb2xQRDg4RnVia283SDA5dHdHQnE3TzJBeE5vVXUzUWF3OUZiZ2djN2xWSzV2b2xfQUF2ZC14UVFacnkxS3NURWUzRTMzZ2RtM3Zhb0JkTnNjRG1EbDhIbVNTTEhfSjREVUZIYU54eldhNW5nalFEQUstUnR0VHNGNUVGVnRtMnltWGFNa0N5NUwySkQ0endfRk1NMnBfcGJmNmFIVDFlWVd5WmZDZ3dRTUh2?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
