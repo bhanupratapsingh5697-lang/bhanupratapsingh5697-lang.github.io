@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Warfare technology finds new use on Britain's farms to boost crop yields - Business Standard"
+date: 2026-11-08 14:58:15 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxNSGJDVVNST3VZVEJCX2U3aENkU3NtYTFnT3VYTV9Fa2pyRkVuRC1pd1h3U29jRkhpSkhoWll5TkptSU14aUl4cWFQcWpqakFRSkxNZlRsWHNRYVVDVzRCTS1BYVNxNk1LbjNITDc5SEI0WG9MTXI1N1JMbzFBLWJBWDNiYzlpaTlLYlNjQjd0Nm5PQ0FaMUJzQkZTY0tFYzRaM3FBa3pQdWpKeXVWb3ZzN29hTm1kLXpmcENhaEc4VkptalNjMWJhblVPWkRVWHRuWWVR0gHYAUFVX3lxTE5hRnh3ZmFWZjFac01lVjd2OFp6YWVReUp0Z0JhVmtEYS1rVnMxX0JIOU03YXFSQUUwQVpsd1FEVldrdU1HRlNqbl96UmpPQkl0Zk5hRmR2ZFJ1SzR6SXZyVWpyakZsY0luVUtXN2Jaa0pJclVvS3lZd3c4dXcwbklmaG5iOVY1RGFwOU9YY0IzTVR6OW5ZR3lHSzI3WDVUV2xaeWQtaURTSGFJX1pkODJGNENGTUNfYlllbDFILVFJVWk4ODVyQkZLN2k4YVJtWWpZS0ROc0xVMQ?oc=5"
+---
+
+Warfare technology finds new use on Britain's farms to boost crop yields Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNSGJDVVNST3VZVEJCX2U3aENkU3NtYTFnT3VYTV9Fa2pyRkVuRC1pd1h3U29jRkhpSkhoWll5TkptSU14aUl4cWFQcWpqakFRSkxNZlRsWHNRYVVDVzRCTS1BYVNxNk1LbjNITDc5SEI0WG9MTXI1N1JMbzFBLWJBWDNiYzlpaTlLYlNjQjd0Nm5PQ0FaMUJzQkZTY0tFYzRaM3FBa3pQdWpKeXVWb3ZzN29hTm1kLXpmcENhaEc4VkptalNjMWJhblVPWkRVWHRuWWVR0gHYAUFVX3lxTE5hRnh3ZmFWZjFac01lVjd2OFp6YWVReUp0Z0JhVmtEYS1rVnMxX0JIOU03YXFSQUUwQVpsd1FEVldrdU1HRlNqbl96UmpPQkl0Zk5hRmR2ZFJ1SzR6SXZyVWpyakZsY0luVUtXN2Jaa0pJclVvS3lZd3c4dXcwbklmaG5iOVY1RGFwOU9YY0IzTVR6OW5ZR3lHSzI3WDVUV2xaeWQtaURTSGFJX1pkODJGNENGTUNfYlllbDFILVFJVWk4ODVyQkZLN2k4YVJtWWpZS0ROc0xVMQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

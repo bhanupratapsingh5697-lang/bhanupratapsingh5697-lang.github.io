@@ -1,0 +1,17 @@
+---
+layout: post
+title: "27-Year-Old Status Quo Order Still Binding; Rajasthan High Court Holds Respondents Guilty Of Contempt - Live Law"
+date: 2026-11-07 14:00:27 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxNWXNldnYzNllBenJMbWRBRmpYNnJWb1NkM01mbE9rRHRVbHNzSktpV0xuRFNkOFo5eWc4ZTN4TW95SklETndhT1hrX1lyNkFDSy1KQm5DVGxwcmdTMW92VHdBd0lURmhLX3F3Y3VyaEVHRlMxVFdCMWFqUzk5Ql91ZmNabGRBNEI4RWJjMEtGWnBHeWhyVUFkTzRxYk82eHpGVEZ2RXktMXE4ZV9EUzU5Q2w1UEZOWl85U1VGcG1hal9mcC1NQXdGUk5McDlwZHNMTmfSAdcBQVVfeXFMTmk4Qi1xN3gtM1VudTlRRmhXVVNNM3NPVDR6UUlxTVNhbUdDQl8yeTZtc21zY1pnbFlZa2tOZ2psOFJ6S250em1qTjJubk5PX0NrYnU3QlZsZXMxR1Zud2pkV3VCRWVWdzNmaUdhNG00N21Dajh1RVBVYS1ZdTFUcHdUSFZMbmRlZEpwN3hSTi0ydUhmeENQeFR4YThic1NOVU90Ry1QcW52Vk9FV19ka1JHcDRkT2M4WFJkRWJQRWFIOS03VXJxekhtMjUwRUJBcjl4bjhKZ28?oc=5"
+---
+
+27-Year-Old Status Quo Order Still Binding; Rajasthan High Court Holds Respondents Guilty Of Contempt Live Law
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNWXNldnYzNllBenJMbWRBRmpYNnJWb1NkM01mbE9rRHRVbHNzSktpV0xuRFNkOFo5eWc4ZTN4TW95SklETndhT1hrX1lyNkFDSy1KQm5DVGxwcmdTMW92VHdBd0lURmhLX3F3Y3VyaEVHRlMxVFdCMWFqUzk5Ql91ZmNabGRBNEI4RWJjMEtGWnBHeWhyVUFkTzRxYk82eHpGVEZ2RXktMXE4ZV9EUzU5Q2w1UEZOWl85U1VGcG1hal9mcC1NQXdGUk5McDlwZHNMTmfSAdcBQVVfeXFMTmk4Qi1xN3gtM1VudTlRRmhXVVNNM3NPVDR6UUlxTVNhbUdDQl8yeTZtc21zY1pnbFlZa2tOZ2psOFJ6S250em1qTjJubk5PX0NrYnU3QlZsZXMxR1Zud2pkV3VCRWVWdzNmaUdhNG00N21Dajh1RVBVYS1ZdTFUcHdUSFZMbmRlZEpwN3hSTi0ydUhmeENQeFR4YThic1NOVU90Ry1QcW52Vk9FV19ka1JHcDRkT2M4WFJkRWJQRWFIOS03VXJxekhtMjUwRUJBcjl4bjhKZ28?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

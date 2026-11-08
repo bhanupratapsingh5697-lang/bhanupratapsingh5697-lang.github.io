@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indian Tourists Spread Newspaper, Eat On Vietnam Airport Floor. Video Goes Viral - NDTV"
+date: 2026-11-07 18:12:57 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxPQnhkbjZfU0xKdzg4WXU0RU5aZ0duZkpBVHc1cEtWRHUyaUt2cXNHYTRqR1BaekFPMTRWYkhnQ3lIT3REeGF6RC1rTkJ6eGNldjZ6a2dZLVYySDlfcG1Ld2s1bFJCS3hWU3VsaXJsbjUzVG1sLWZ6LVJ0ZlpacnloWDRtX2hPRUE2NGd2a2tPbjR0MEZLcUJfTFVhYVFJMm5BUnhGb0Q1M2pSYVBCZHZaQ2dzYl9zd9IBvgFBVV95cUxObGxialdGcnRZZUZzcERISU4yR1pfT0hsUG0xTXYyWG9qSUVfR1NCR2ZDeVdWbWllck1DYWVTMzZEdWhQVXpYeXFUUk1oOFpPTEVENzdlSWN3c1lTbms0MVpUNFJTN1h1TTA0WmlxVDVJZU9SbmQydnB1NWxLNUtaaVhIOVNLTGp3WFJxaFY0U0Y0dUVPZnpUTDVZbkhaaFkzbWJ3SFhqcjQtZDU4emFfSl9NVDUxRHY5S2dLVFJR?oc=5"
+---
+
+Indian Tourists Spread Newspaper, Eat On Vietnam Airport Floor. Video Goes Viral NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxPQnhkbjZfU0xKdzg4WXU0RU5aZ0duZkpBVHc1cEtWRHUyaUt2cXNHYTRqR1BaekFPMTRWYkhnQ3lIT3REeGF6RC1rTkJ6eGNldjZ6a2dZLVYySDlfcG1Ld2s1bFJCS3hWU3VsaXJsbjUzVG1sLWZ6LVJ0ZlpacnloWDRtX2hPRUE2NGd2a2tPbjR0MEZLcUJfTFVhYVFJMm5BUnhGb0Q1M2pSYVBCZHZaQ2dzYl9zd9IBvgFBVV95cUxObGxialdGcnRZZUZzcERISU4yR1pfT0hsUG0xTXYyWG9qSUVfR1NCR2ZDeVdWbWllck1DYWVTMzZEdWhQVXpYeXFUUk1oOFpPTEVENzdlSWN3c1lTbms0MVpUNFJTN1h1TTA0WmlxVDVJZU9SbmQydnB1NWxLNUtaaVhIOVNLTGp3WFJxaFY0U0Y0dUVPZnpUTDVZbkhaaFkzbWJ3SFhqcjQtZDU4emFfSl9NVDUxRHY5S2dLVFJR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

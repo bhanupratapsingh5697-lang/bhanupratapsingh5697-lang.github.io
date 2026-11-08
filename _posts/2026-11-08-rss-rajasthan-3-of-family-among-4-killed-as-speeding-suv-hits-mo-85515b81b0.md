@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: 3 of family among 4 killed as speeding SUV hits motorcycle - Vartha Bharati"
+date: 2026-11-08 23:32:10 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxNX3VVTjRLUndxd1lGWVlPdlBpYkVFTDhMRWI1NnJsVXpObTZhWG1VQ2swMFo3eHdQaUhZOElxT2hwcHZ0U25kRjF4M1F4b0dDbXV3YXFIaFcweENzZFpDeEwyQlNKcllIb0JzRjRmUGYxVEdoWHRGN29UOGQ1OWJaVGR5OS00UFNITG56Wl9udTRFNjRnRmtaekYxQTh2bEJoZ1ZRM25MSGNLYThTVjZfb19sODRwUdIBuwFBVV95cUxOTnQxeFBtS0xhMHpoM2ZjZXVxS2VKcDgtRU9FRkpHVGxWbXlDTXBPTjJqeGhKcEVRV2ZHaUstdGdlY2w4d2FRZFlkSXdYeTVnWWxhMkhzMEhmMHBTUWZLRTZvRjExZE5zbWhBRFFvZTVmZHFOa3BJYzgwYmNFMUZQeVdlemhfTEYxVU8wYkN2cTR4Q3ZuZGk5RFVDeHRZODFOdjNtaDNWQ2g2Y0ljY1ZoalhJUUpmcHlXc3NN?oc=5"
+---
+
+Rajasthan: 3 of family among 4 killed as speeding SUV hits motorcycle Vartha Bharati
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxNX3VVTjRLUndxd1lGWVlPdlBpYkVFTDhMRWI1NnJsVXpObTZhWG1VQ2swMFo3eHdQaUhZOElxT2hwcHZ0U25kRjF4M1F4b0dDbXV3YXFIaFcweENzZFpDeEwyQlNKcllIb0JzRjRmUGYxVEdoWHRGN29UOGQ1OWJaVGR5OS00UFNITG56Wl9udTRFNjRnRmtaekYxQTh2bEJoZ1ZRM25MSGNLYThTVjZfb19sODRwUdIBuwFBVV95cUxOTnQxeFBtS0xhMHpoM2ZjZXVxS2VKcDgtRU9FRkpHVGxWbXlDTXBPTjJqeGhKcEVRV2ZHaUstdGdlY2w4d2FRZFlkSXdYeTVnWWxhMkhzMEhmMHBTUWZLRTZvRjExZE5zbWhBRFFvZTVmZHFOa3BJYzgwYmNFMUZQeVdlemhfTEYxVU8wYkN2cTR4Q3ZuZGk5RFVDeHRZODFOdjNtaDNWQ2g2Y0ljY1ZoalhJUUpmcHlXc3NN?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

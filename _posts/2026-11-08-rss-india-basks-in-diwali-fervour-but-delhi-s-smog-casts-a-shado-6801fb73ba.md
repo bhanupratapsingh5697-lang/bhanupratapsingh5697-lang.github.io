@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India basks in Diwali fervour, but Delhi's smog casts a shadow over celebrations - The New Indian Express"
+date: 2026-11-08 20:11:24 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxNTkl3ZGRFZmpvR0NET2lKTTBhcjhzTm42eTZqeGo1ZnR2ZGVsNHpVeVo2X3VkcWZSUWdxM3VWandldi1TWDlLYjJrNDlKNm9FT0YyZzhuRl9UeE5pUEdvSV8zQ1F2d2ZWTWlrcGpnck1pc09EeEgzSkdvdzdIYTgyTS1qaGxwa05hMy0xMXNrOUtOX3hpeV9aRkZhcmtYNkRCOURlOXNjcHQzR0lLbkJXZ1EweVl2VUJVemVvdzNMSHlkaS1HRExZYkk0SnNQUWRmUFHSAd8BQVVfeXFMT0ItRnlxVDRHRUNlMjlEMXlWeHloLTRhYnU4VkZXT1V3RWJ6dUtzVWdtRy1EaUJtZ0F1Ykp0WXgzbnFXejQxZVpMZHprSE1sbER1MkJ5WDVqaVI0d2txNFQ3ZkFoWHI3c1BJSTN4dXdVM1c2OUJiYVBFZGFyNzhCRlo4Y1lnUkxQME1sYUtGcXJOZmo1eWRGc2RvZ2NNREFWclRPR3NEbVZwZS1EOEp0UExVLWprRTVWNEpXR2Vtc1JHdjBocVMyY1ZnekZZUHBCM1l4ak1ySVQwQVJvNmtmQQ?oc=5"
+---
+
+India basks in Diwali fervour, but Delhi's smog casts a shadow over celebrations The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNTkl3ZGRFZmpvR0NET2lKTTBhcjhzTm42eTZqeGo1ZnR2ZGVsNHpVeVo2X3VkcWZSUWdxM3VWandldi1TWDlLYjJrNDlKNm9FT0YyZzhuRl9UeE5pUEdvSV8zQ1F2d2ZWTWlrcGpnck1pc09EeEgzSkdvdzdIYTgyTS1qaGxwa05hMy0xMXNrOUtOX3hpeV9aRkZhcmtYNkRCOURlOXNjcHQzR0lLbkJXZ1EweVl2VUJVemVvdzNMSHlkaS1HRExZYkk0SnNQUWRmUFHSAd8BQVVfeXFMT0ItRnlxVDRHRUNlMjlEMXlWeHloLTRhYnU4VkZXT1V3RWJ6dUtzVWdtRy1EaUJtZ0F1Ykp0WXgzbnFXejQxZVpMZHprSE1sbER1MkJ5WDVqaVI0d2txNFQ3ZkFoWHI3c1BJSTN4dXdVM1c2OUJiYVBFZGFyNzhCRlo4Y1lnUkxQME1sYUtGcXJOZmo1eWRGc2RvZ2NNREFWclRPR3NEbVZwZS1EOEp0UExVLWprRTVWNEpXR2Vtc1JHdjBocVMyY1ZnekZZUHBCM1l4ak1ySVQwQVJvNmtmQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
