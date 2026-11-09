@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Virat Kohli leads from the front in rainy preparations - The Times of India"
+date: 2026-11-09 10:15:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxNSlNoUG5iYWtnZE1jYzRtUm4tNWUwbDFlNWZBYVFmTU8xVFU0UEFwdXFMT3ZtNjNKZW0yYlBGUEFkU1A1aTF1VUNPalljWWhDNllFSVVxRlotOHpZakI1Vm0waHhKdVBoMzdsNXRnUjlfYk01Vm1QUlM3YnBobGw2TUxwcnREdVpYZGRTVEp6dTdsemhha2g1THRCZ0YtbFhqamtZUUpjUHZYQWNjMElrSGx4NU1Ma2RTbWtyNlFqYjR5YjhlRU4wN21FSXpTUDFjZXfSAdcBQVVfeXFMT3ZTbUhPZU9nU25GQXE3RTY2cE95LVRVRHVFeGxMdTdJR0xaazV3dWdrdXN2MEN4SllFVC13V3p3dkc1bk96WTlSTU5MZURGeVB4c01aWEsteEhybjFGMXdRT1E5aS14LWQzVTh4VHg3RE1OWUg4SUFxQkFCTkxWYlRoQ3ZyVWZsS0tpTFNSQW4tQ3lLSk44YnhMUDA4OGJpNHc2clY3MGlHMnVyWkZzYm81MG9TUnJZVmF1Y1dqSmdKdVMzQW5KRUR6TWlxVHl6alBmS0RLcnc?oc=5"
+---
+
+Virat Kohli leads from the front in rainy preparations The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNSlNoUG5iYWtnZE1jYzRtUm4tNWUwbDFlNWZBYVFmTU8xVFU0UEFwdXFMT3ZtNjNKZW0yYlBGUEFkU1A1aTF1VUNPalljWWhDNllFSVVxRlotOHpZakI1Vm0waHhKdVBoMzdsNXRnUjlfYk01Vm1QUlM3YnBobGw2TUxwcnREdVpYZGRTVEp6dTdsemhha2g1THRCZ0YtbFhqamtZUUpjUHZYQWNjMElrSGx4NU1Ma2RTbWtyNlFqYjR5YjhlRU4wN21FSXpTUDFjZXfSAdcBQVVfeXFMT3ZTbUhPZU9nU25GQXE3RTY2cE95LVRVRHVFeGxMdTdJR0xaazV3dWdrdXN2MEN4SllFVC13V3p3dkc1bk96WTlSTU5MZURGeVB4c01aWEsteEhybjFGMXdRT1E5aS14LWQzVTh4VHg3RE1OWUg4SUFxQkFCTkxWYlRoQ3ZyVWZsS0tpTFNSQW4tQ3lLSk44YnhMUDA4OGJpNHc2clY3MGlHMnVyWkZzYm81MG9TUnJZVmF1Y1dqSmdKdVMzQW5KRUR6TWlxVHl6alBmS0RLcnc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

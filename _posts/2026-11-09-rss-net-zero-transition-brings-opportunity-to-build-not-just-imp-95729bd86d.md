@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Net Zero transition brings opportunity to build, not just import, technology - The Indian Express"
+date: 2026-11-09 06:48:25 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxPWVJjVXBjaXdrTERzOTJJZHlmX01sM0haRnlqUlBOY2dTWHFnY3NyeW96UWJTb0dEdHNpZjVnMWR0cldsMFhFTDdXalpTUFY4emQ5Nk1GczAtdWlwdGZSYUxaT2dKUHZpQkx2UkhiOExkdVctbEVIYTJzNXZPZnVDOTJ0andtRkh6X0ZrUmxENnZUVVpJV2xHal94UjR6b202VTFDaDhlUlNSQWo4RVVfazBOS3FuRjhkY2hWY2N1UC1qWVVoemFLd0RRZ0RlcnPSAdYBQVVfeXFMTm5JZDY5NTMwTlJrdzB5QWcyQ2phRF9WeWhFVlQ1SkQ4ZFZjNFB4NHc4NUtFTUhNMG94NEtLenJPNUdVOHhZOFpQcUQ5ZFNEcXdaa3hfTThGeHpvT3NweEJDNTRWTXpLTnUyQzVpVC1zdjlBZThIMDNhS2kwR3ExOVJpeG01QVNldkJQMGUxb0g1ckU1VnRObDRhb2M2dko4dmVFOW9tcVgyemtuZUN5OHU0X2xSNC1JMnV3d3FiQlRta3BZaTh5aUctY09zY3pBMzlPQWo0Zw?oc=5"
+---
+
+Net Zero transition brings opportunity to build, not just import, technology The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxPWVJjVXBjaXdrTERzOTJJZHlmX01sM0haRnlqUlBOY2dTWHFnY3NyeW96UWJTb0dEdHNpZjVnMWR0cldsMFhFTDdXalpTUFY4emQ5Nk1GczAtdWlwdGZSYUxaT2dKUHZpQkx2UkhiOExkdVctbEVIYTJzNXZPZnVDOTJ0andtRkh6X0ZrUmxENnZUVVpJV2xHal94UjR6b202VTFDaDhlUlNSQWo4RVVfazBOS3FuRjhkY2hWY2N1UC1qWVVoemFLd0RRZ0RlcnPSAdYBQVVfeXFMTm5JZDY5NTMwTlJrdzB5QWcyQ2phRF9WeWhFVlQ1SkQ4ZFZjNFB4NHc4NUtFTUhNMG94NEtLenJPNUdVOHhZOFpQcUQ5ZFNEcXdaa3hfTThGeHpvT3NweEJDNTRWTXpLTnUyQzVpVC1zdjlBZThIMDNhS2kwR3ExOVJpeG01QVNldkJQMGUxb0g1ckU1VnRObDRhb2M2dko4dmVFOW9tcVgyemtuZUN5OHU0X2xSNC1JMnV3d3FiQlRta3BZaTh5aUctY09zY3pBMzlPQWo0Zw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

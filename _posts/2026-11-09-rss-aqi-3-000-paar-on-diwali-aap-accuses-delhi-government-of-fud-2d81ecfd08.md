@@ -1,0 +1,17 @@
+---
+layout: post
+title: "AQI 3,000 paar on Diwali: AAP accuses Delhi government of fudging data - India Today"
+date: 2026-11-09 10:34:01 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxPUUFhdFI2YU16WUcwdGdYMnBhZ3ZBZWlTYUZKTy1XWV9EU3ZoVjZZSl9ySk9JMlJSZk1CLWt1NUlCUjdnTzBhdnJ0V2FkZEFLUmJoYzNucHBDMF9JVEJjbjY4OGZ1SHFxRmlQdWFBSkZibm1LQmp2M0R1QnFxNWMzSkFUVURjTVVBMXBDWmI2d3VsRHdscXlMOGVCSFpYUUFTalBaQk11TGs3Q21LOHNKVWlPTEpZZ3ZIcnFld3BhaG9qQVdZV0VMYTd6OEFfckktanpDctIB2gFBVV95cUxObmdzQl9xWnpjYURUSnhpYllFSTllcE9GUHR2d1JQMHVBb1pMMGhEQWcyakRwQkdTN2xFTHBDd2NkblI0MWNsRFRyR2dldVNONkM0UF96bUU4TlhFdlNBQWJYVXpXa292SmNKUHFmeGRtMUxiVWFXdVVNeTJteWNub2JzSmNucnZnRl90RTRkTGJudF9DWDJ3Umx2bGlkWFIxNklsMkNSZXRrRjd1aURLTXNVTEJiVTV2dmFiRURpUnFCbURlaER4Z1FKNFNfX3JJU21xcFVNZjNlZw?oc=5"
+---
+
+AQI 3,000 paar on Diwali: AAP accuses Delhi government of fudging data India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPUUFhdFI2YU16WUcwdGdYMnBhZ3ZBZWlTYUZKTy1XWV9EU3ZoVjZZSl9ySk9JMlJSZk1CLWt1NUlCUjdnTzBhdnJ0V2FkZEFLUmJoYzNucHBDMF9JVEJjbjY4OGZ1SHFxRmlQdWFBSkZibm1LQmp2M0R1QnFxNWMzSkFUVURjTVVBMXBDWmI2d3VsRHdscXlMOGVCSFpYUUFTalBaQk11TGs3Q21LOHNKVWlPTEpZZ3ZIcnFld3BhaG9qQVdZV0VMYTd6OEFfckktanpDctIB2gFBVV95cUxObmdzQl9xWnpjYURUSnhpYllFSTllcE9GUHR2d1JQMHVBb1pMMGhEQWcyakRwQkdTN2xFTHBDd2NkblI0MWNsRFRyR2dldVNONkM0UF96bUU4TlhFdlNBQWJYVXpXa292SmNKUHFmeGRtMUxiVWFXdVVNeTJteWNub2JzSmNucnZnRl90RTRkTGJudF9DWDJ3Umx2bGlkWFIxNklsMkNSZXRrRjd1aURLTXNVTEJiVTV2dmFiRURpUnFCbURlaER4Z1FKNFNfX3JJU21xcFVNZjNlZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

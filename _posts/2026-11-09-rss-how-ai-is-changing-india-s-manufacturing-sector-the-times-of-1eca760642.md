@@ -1,0 +1,17 @@
+---
+layout: post
+title: "How AI is changing India’s manufacturing sector - The Times of India"
+date: 2026-11-09 09:00:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiwAFBVV95cUxOVGcxcWUtWXdyb0NqRkd2aTFMUFBLcWFQRm10aDd2d0Y3UnhuODk4RTcwbUlKYjRhMkdVZ1A3ZTVpeFo4LXpUY2lVUHN5TGFGSUgwWENDTzFDRzFob1JXNWFpdFRHSVE0c3M1TmJCNWNqNFE0RU45VG9zdm9SeEQtZmV1OVZYa1hnTUwyQ3NMaDFyaFRDdklMc1RVcEY1MXhPc0VKdFo4c2pTV3ZvaEpqekJtQXZNZ1lCU2ZFM2RGQXbSAcYBQVVfeXFMUHE1bFFUM2RDOF9LUVJZS0tJbGlFQ3AwbDhpRUxQUXcyN2hJWF9IQm96bkdXRGgxVXhrT2trSEVhU29LREVvS1lHeXFSRHRtY1VvdU4zbWNYeHpUTGtZZUlkS0tXbmdyYmRQVmh1WmNGX0oxSmwzLWhNTHdBNzBqX3huWUZVTU5CbzFza20zeE1NR3UybU5feHBTRjBPN0VLUnc4c1d6MDhESzBGNkc5eXFDMktXbW9LN0JhRm8zeFUzdm9QdXpB?oc=5"
+---
+
+How AI is changing India’s manufacturing sector The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwAFBVV95cUxOVGcxcWUtWXdyb0NqRkd2aTFMUFBLcWFQRm10aDd2d0Y3UnhuODk4RTcwbUlKYjRhMkdVZ1A3ZTVpeFo4LXpUY2lVUHN5TGFGSUgwWENDTzFDRzFob1JXNWFpdFRHSVE0c3M1TmJCNWNqNFE0RU45VG9zdm9SeEQtZmV1OVZYa1hnTUwyQ3NMaDFyaFRDdklMc1RVcEY1MXhPc0VKdFo4c2pTV3ZvaEpqekJtQXZNZ1lCU2ZFM2RGQXbSAcYBQVVfeXFMUHE1bFFUM2RDOF9LUVJZS0tJbGlFQ3AwbDhpRUxQUXcyN2hJWF9IQm96bkdXRGgxVXhrT2trSEVhU29LREVvS1lHeXFSRHRtY1VvdU4zbWNYeHpUTGtZZUlkS0tXbmdyYmRQVmh1WmNGX0oxSmwzLWhNTHdBNzBqX3huWUZVTU5CbzFza20zeE1NR3UybU5feHBTRjBPN0VLUnc4c1d6MDhESzBGNkc5eXFDMktXbW9LN0JhRm8zeFUzdm9QdXpB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

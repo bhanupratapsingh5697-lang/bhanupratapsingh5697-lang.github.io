@@ -1,0 +1,17 @@
+---
+layout: post
+title: "How Indian Americans Are Finding A New Sporting Passion In The US - Rediff"
+date: 2026-11-09 11:38:04 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxQeFdqWHN6cllQeHRUcGxHTWFaaTNXTFdOUXp2M2xiS3kyYmxQT2QyWExsNWJ4SVFCcjhrN19uZEU3RVpTZU9OQmNvX1VhQ0ZOdDFCTWl1Qk1UcXhHQ0RmVFl6a1pNX01nMi1rUG51NEQ1TW1EU0RBNVZ0YjJfOHlIcHB0N1d1NmgxSUZTSnBKS2xPZlVsU2xfTFQ3ZzQ2MkJkajFpLXRBQVZZSHFmMkHSAbABQVVfeXFMTk5nU05kNDFBREs5b1ZnVEM1UlRPQWlCOV9OWXVJTWpwemJJRk5MXzRvVXBCZklWMExKNkUwYXRvWXRzMnhlTFZiOW1WUUJvUkx3NEF1aDE4UEhTbkY3QVdtX3pCelJtdTVsd1V6RE9XZHZmVjFmZUhFd1dXSGRIdkNwaGJHckR4REx3cnFvWmxHVVJDZG05ZVhVOVMya01nZEh1c3hoR2l1NE9VM1BHcU8?oc=5"
+---
+
+How Indian Americans Are Finding A New Sporting Passion In The US Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxQeFdqWHN6cllQeHRUcGxHTWFaaTNXTFdOUXp2M2xiS3kyYmxQT2QyWExsNWJ4SVFCcjhrN19uZEU3RVpTZU9OQmNvX1VhQ0ZOdDFCTWl1Qk1UcXhHQ0RmVFl6a1pNX01nMi1rUG51NEQ1TW1EU0RBNVZ0YjJfOHlIcHB0N1d1NmgxSUZTSnBKS2xPZlVsU2xfTFQ3ZzQ2MkJkajFpLXRBQVZZSHFmMkHSAbABQVVfeXFMTk5nU05kNDFBREs5b1ZnVEM1UlRPQWlCOV9OWXVJTWpwemJJRk5MXzRvVXBCZklWMExKNkUwYXRvWXRzMnhlTFZiOW1WUUJvUkx3NEF1aDE4UEhTbkY3QVdtX3pCelJtdTVsd1V6RE9XZHZmVjFmZUhFd1dXSGRIdkNwaGJHckR4REx3cnFvWmxHVVJDZG05ZVhVOVMya01nZEh1c3hoR2l1NE9VM1BHcU8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "99 of world's 100 most polluted cities are in India; Punjab takes top two spots - CNBC TV18"
+date: 2026-11-09 07:41:24 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxONGNIbDN3M21yMUNFaElDS1pFbkthSWZreFJuelNZek91cmVYdGpKM2Y1V2xLR1RFYVc4WEtDZWpxVEx6elJHU1VhTlUwQTBmSWt1YXpRcW9LMWpHM0tBUGZGSHZKMWFMeGtkYmlCc2RTNHJMdE84NENJZUxDb2xzRXdfMDZXc2tTRG5yeVc0MlFGQmRIcGFUbVY0QllsOV9QamotS01kcXVjc3BWdEs4WDltVlZ1emtsNkpSYlE2cEw2S0piUXBMLUZpUTRWSjBFbUZQWdIB2gFBVV95cUxPTGtnblBsTWhhTjlrSk13MHBSYXBJTzZGLTFVem9odk42Ml96dTdEak1xcFZYaUFSZFl3NWtyNnFMZ19fWlgwdGdDdEd6WjFoMWdtdllDaWRFcXVxLUI1VnBJenRhRzc0blhhTXhPY0R5ZGJqUERJbFlvU3JzeFlRUEprVmozZS1KcEh5Z0JuU05iWXd2LU1yd2NYdFQwZktNNjVWajdaTjRiRURDa2NFZEtNWWluc19qWDVOR21qY3puUkhLclpxVjFJa1c2NzJvajJDX2NhNjhLdw?oc=5"
+---
+
+99 of world's 100 most polluted cities are in India; Punjab takes top two spots CNBC TV18
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxONGNIbDN3M21yMUNFaElDS1pFbkthSWZreFJuelNZek91cmVYdGpKM2Y1V2xLR1RFYVc4WEtDZWpxVEx6elJHU1VhTlUwQTBmSWt1YXpRcW9LMWpHM0tBUGZGSHZKMWFMeGtkYmlCc2RTNHJMdE84NENJZUxDb2xzRXdfMDZXc2tTRG5yeVc0MlFGQmRIcGFUbVY0QllsOV9QamotS01kcXVjc3BWdEs4WDltVlZ1emtsNkpSYlE2cEw2S0piUXBMLUZpUTRWSjBFbUZQWdIB2gFBVV95cUxPTGtnblBsTWhhTjlrSk13MHBSYXBJTzZGLTFVem9odk42Ml96dTdEak1xcFZYaUFSZFl3NWtyNnFMZ19fWlgwdGdDdEd6WjFoMWdtdllDaWRFcXVxLUI1VnBJenRhRzc0blhhTXhPY0R5ZGJqUERJbFlvU3JzeFlRUEprVmozZS1KcEh5Z0JuU05iWXd2LU1yd2NYdFQwZktNNjVWajdaTjRiRURDa2NFZEtNWWluc19qWDVOR21qY3puUkhLclpxVjFJa1c2NzJvajJDX2NhNjhLdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
