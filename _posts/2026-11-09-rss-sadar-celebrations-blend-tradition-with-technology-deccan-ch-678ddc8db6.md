@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sadar Celebrations Blend Tradition With Technology - Deccan Chronicle"
+date: 2026-11-09 22:50:38 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxQUXRuNWZKY2J2S01BODJyd1lBMUJqYTBERThZU016c2JHcjFGOHZKUmExaHp6Y1RDUkx4dTY1WWcwMlJ5R2pTRm1KcHFaNGRxbDhXM0V2NEVqTkhZMFo1YmFiX3pkWjBlUHlnYjFyYnUwZXNORW0zZnJOR3U5QUxnYTVtTkh3WVFnNUdCak5pcDJiVWNGSU1Cc2JQWGNiV1A5R1p5R0YtNzdtWTdnRlVjT1JoYnZyRTDSAbwBQVVfeXFMT0VKX1FRWEF6WjhZLWVBX0pDeV9lelo5NmFLYlJKQjgyclZjcUhmT0R1eUFzcUlKU1JYNHZfRG05VDdVZGZaX2oxYVJNZmpua2tONC1oVmxKa05tREVFcTdSODVnNXNKQVU2b1JFS3YxMVdpRWV3OFFQQ3Yza3VnRTByNVpjWlRiTHBUeGh1aV9pU0Y3NUlKeHBwNmY0Z0J0TVJYSlkwYmN2dlNQR1lwOUhXOWw0bGdvREhFcEo?oc=5"
+---
+
+Sadar Celebrations Blend Tradition With Technology Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxQUXRuNWZKY2J2S01BODJyd1lBMUJqYTBERThZU016c2JHcjFGOHZKUmExaHp6Y1RDUkx4dTY1WWcwMlJ5R2pTRm1KcHFaNGRxbDhXM0V2NEVqTkhZMFo1YmFiX3pkWjBlUHlnYjFyYnUwZXNORW0zZnJOR3U5QUxnYTVtTkh3WVFnNUdCak5pcDJiVWNGSU1Cc2JQWGNiV1A5R1p5R0YtNzdtWTdnRlVjT1JoYnZyRTDSAbwBQVVfeXFMT0VKX1FRWEF6WjhZLWVBX0pDeV9lelo5NmFLYlJKQjgyclZjcUhmT0R1eUFzcUlKU1JYNHZfRG05VDdVZGZaX2oxYVJNZmpua2tONC1oVmxKa05tREVFcTdSODVnNXNKQVU2b1JFS3YxMVdpRWV3OFFQQ3Yza3VnRTByNVpjWlRiTHBUeGh1aV9pU0Y3NUlKeHBwNmY0Z0J0TVJYSlkwYmN2dlNQR1lwOUhXOWw0bGdvREhFcEo?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

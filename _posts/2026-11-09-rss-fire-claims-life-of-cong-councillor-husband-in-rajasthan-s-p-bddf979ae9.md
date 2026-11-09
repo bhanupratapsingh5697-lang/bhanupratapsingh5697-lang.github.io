@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Fire claims life of Cong councillor, husband in Rajasthan’s Pali district - ThePrint"
+date: 2026-11-09 13:18:26 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxQOGY4TnZFX1BWM25EczhwbWNRLWF5S1AzR0x5bjlxaHdLN0cwN2lPN1hnNElOTGc4dm1kNlBWcVVzTGo0Sk1tbVViTzl6TFhIOEJKRktxNGN0N2F0aWdFRFByZ0s0WE4tck9FLU5FdWZxQzJ3V3hqNnBiTFFDQUs0TDctakQ4a3JJb3dTR2FMaWI4TXFMZlExc2U4THpaWGN5Xy1aVmhwMkN4Z9IBrwFBVV95cUxOUGpMUTR4MVJlQXlBWDVJUXNZR09BWnVkNEs5XzRLZ3B3aEFleEJKa1VRNWlkeHpxaE9xQU4wek1CX2toY2ZKMEEzeGk0MTVuckpaaXVPN21IcTdlX0ttUFE1YTdVcGlyTHhIQUlXTXBmVlp3M25PenRteUVJN0NlMTlfdF9BZUpwWXJKa2EwbklTZzQ5aWhMZ0t0RzJUMlFSREo3bkdrT3V1V1h2UzdV?oc=5"
+---
+
+Fire claims life of Cong councillor, husband in Rajasthan’s Pali district ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQOGY4TnZFX1BWM25EczhwbWNRLWF5S1AzR0x5bjlxaHdLN0cwN2lPN1hnNElOTGc4dm1kNlBWcVVzTGo0Sk1tbVViTzl6TFhIOEJKRktxNGN0N2F0aWdFRFByZ0s0WE4tck9FLU5FdWZxQzJ3V3hqNnBiTFFDQUs0TDctakQ4a3JJb3dTR2FMaWI4TXFMZlExc2U4THpaWGN5Xy1aVmhwMkN4Z9IBrwFBVV95cUxOUGpMUTR4MVJlQXlBWDVJUXNZR09BWnVkNEs5XzRLZ3B3aEFleEJKa1VRNWlkeHpxaE9xQU4wek1CX2toY2ZKMEEzeGk0MTVuckpaaXVPN21IcTdlX0ttUFE1YTdVcGlyTHhIQUlXTXBmVlp3M25PenRteUVJN0NlMTlfdF9BZUpwWXJKa2EwbklTZzQ5aWhMZ0t0RzJUMlFSREo3bkdrT3V1V1h2UzdV?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

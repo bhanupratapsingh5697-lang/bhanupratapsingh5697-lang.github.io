@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Ramayana Box Office Collection Day 4: Ranbir Kapoor-Sai Pallavi Film Shoots Past Rs 200 Crore Mark In India - NDTV"
+date: 2026-11-09 08:30:39 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi5AFBVV95cUxNOWsyOUwyV1c5dkJYd0FBREQ4WWtQcnd2NU1kVVcwaTVTU2V6YTFXNmxGVjhvZ1luT0laMjRTWmdOUDI2bDgwNUZINWp5dkxuTzd0azlWd3Myd2xFa1lwVk5iTHJwWjAxSlBnX0hPX2QydEN2ZUxQMWR3NE16c3pLY244ZFZuWFJtREdIOXNwR3NiTF9sM0cxQnJqVVF6N3VTQUxuUzhUbEFYV3FZX3pBVGNvYTFfdjliR3Vhdm9aeEJNaUV1dnVaWEplRy1pS3FlTjJ4RHh3VHFuMjZJVWhsWXRaVUnSAewBQVVfeXFMUHN6T3k0MF9UUGc4S2FIb2ZzS0ZSRndVOTJqNlRRSXNxbzkxN3BlT2RqYXRUZWFheUJ1LXRvVUdBZjF3QjVHR0czdVZFVm9COU5wVTQ1aVJESmJkb1JNVDl1SHBMZnNkdlN5TWVSX2cyNkhlTTFHMUV2ZzFxTmdUSFhoOXZIajk2bDkwLURhNFpCNU1zWmxLLTBzbTRsOEtWOGZhUWFoQ0NiY0NVLUlic3FhRnlaZTYza09hNGZIajBQSWdQQU5nVnJFZHRfMWR0SXRKZ1hFaU9JTDJlWWJ5T2ZZTkJCNl83bWlLcHo?oc=5"
+---
+
+Ramayana Box Office Collection Day 4: Ranbir Kapoor-Sai Pallavi Film Shoots Past Rs 200 Crore Mark In India NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5AFBVV95cUxNOWsyOUwyV1c5dkJYd0FBREQ4WWtQcnd2NU1kVVcwaTVTU2V6YTFXNmxGVjhvZ1luT0laMjRTWmdOUDI2bDgwNUZINWp5dkxuTzd0azlWd3Myd2xFa1lwVk5iTHJwWjAxSlBnX0hPX2QydEN2ZUxQMWR3NE16c3pLY244ZFZuWFJtREdIOXNwR3NiTF9sM0cxQnJqVVF6N3VTQUxuUzhUbEFYV3FZX3pBVGNvYTFfdjliR3Vhdm9aeEJNaUV1dnVaWEplRy1pS3FlTjJ4RHh3VHFuMjZJVWhsWXRaVUnSAewBQVVfeXFMUHN6T3k0MF9UUGc4S2FIb2ZzS0ZSRndVOTJqNlRRSXNxbzkxN3BlT2RqYXRUZWFheUJ1LXRvVUdBZjF3QjVHR0czdVZFVm9COU5wVTQ1aVJESmJkb1JNVDl1SHBMZnNkdlN5TWVSX2cyNkhlTTFHMUV2ZzFxTmdUSFhoOXZIajk2bDkwLURhNFpCNU1zWmxLLTBzbTRsOEtWOGZhUWFoQ0NiY0NVLUlic3FhRnlaZTYza09hNGZIajBQSWdQQU5nVnJFZHRfMWR0SXRKZ1hFaU9JTDJlWWJ5T2ZZTkJCNl83bWlLcHo?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

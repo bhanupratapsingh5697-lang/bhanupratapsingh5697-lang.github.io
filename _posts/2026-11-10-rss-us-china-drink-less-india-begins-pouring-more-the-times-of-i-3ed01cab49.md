@@ -1,0 +1,17 @@
+---
+layout: post
+title: "US, China drink less, India begins pouring more - The Times of India"
+date: 2026-11-10 03:09:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxPX0FxNDJteTZYSUdUN0todzBaSXNjQ0dQV3Q4TnpaaWMtVlVQcHJqeTZBRHJrc0NRbFFzYVZqZ3BKaERSZElpTTlFdEFEcm5vZmR4a3JKUGhGak90c1lZcXlWcVRjczFxUjdTLUdEQXN4OU9mRkIyV2pZWVVkQVZtZTB2aWZTYmpxZzJXbGRWWV9qZ1RWanJqR1d5c0NGMlp1aXlSOFF6VW5PTHNxeG5kN2ZWTVcxcDlUUU9HVUNtOGNQTG1YTkd2Z28ya9IB0AFBVV95cUxNT05DV1Zwa1ByaXluZjBhMXp4SXpVcE4wTDZqZHMxVkJPdTJQUkY4U0ViSG1lYmJVYzZyWWQ4b1JjZ2tsU0JxYjdGTkRjUUp0cGE1Tl9MRVc1cUQtWmtVUUYybTE0NUIzTUE3Y0RMd0JGeU5mRHo0NzBvWVRDc2E1OV9zYnhyVFFhdENBSEMtT2d0czRGblI2ZmZ4b0h4NHlLakVMblJ2bUFNVzJtNFM5VnhIVlhLQTRXenZacVhreldOYjlFR3VRYmk0amJzQmZs?oc=5"
+---
+
+US, China drink less, India begins pouring more The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxPX0FxNDJteTZYSUdUN0todzBaSXNjQ0dQV3Q4TnpaaWMtVlVQcHJqeTZBRHJrc0NRbFFzYVZqZ3BKaERSZElpTTlFdEFEcm5vZmR4a3JKUGhGak90c1lZcXlWcVRjczFxUjdTLUdEQXN4OU9mRkIyV2pZWVVkQVZtZTB2aWZTYmpxZzJXbGRWWV9qZ1RWanJqR1d5c0NGMlp1aXlSOFF6VW5PTHNxeG5kN2ZWTVcxcDlUUU9HVUNtOGNQTG1YTkd2Z28ya9IB0AFBVV95cUxNT05DV1Zwa1ByaXluZjBhMXp4SXpVcE4wTDZqZHMxVkJPdTJQUkY4U0ViSG1lYmJVYzZyWWQ4b1JjZ2tsU0JxYjdGTkRjUUp0cGE1Tl9MRVc1cUQtWmtVUUYybTE0NUIzTUE3Y0RMd0JGeU5mRHo0NzBvWVRDc2E1OV9zYnhyVFFhdENBSEMtT2d0czRGblI2ZmZ4b0h4NHlLakVMblJ2bUFNVzJtNFM5VnhIVlhLQTRXenZacVhreldOYjlFR3VRYmk0amJzQmZs?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

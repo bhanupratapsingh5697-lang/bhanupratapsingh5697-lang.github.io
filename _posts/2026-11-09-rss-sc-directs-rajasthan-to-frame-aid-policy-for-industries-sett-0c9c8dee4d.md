@@ -1,0 +1,17 @@
+---
+layout: post
+title: "SC Directs Rajasthan to Frame Aid Policy for Industries Setting Up ZLD Plants - Deccan Chronicle"
+date: 2026-11-09 15:11:54 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxOUWI2cVFxLTNUR1hVczR3Yk9sLVVGVjljT1RUMFhXMjgtWHZDaFdCY2xSaTRLSkQzNFdCNk1qbUt4VkVwTG1BN2ZiWlVMdDlLRXlvQkhnUEVUNDJNNVY0TFFpTEVuN0IzV3MzNEJKRFdJbnB0R3lONDRYVFhESzE5LTRobWtTZHNMcjZjMGtLRURtdU9YZWhBZzB3eTBVa0tVMnRXZW1ZNm1SOTBLUGJvRGJWR0xLSExEVGtHdHVkQUZ5QdIBxwFBVV95cUxNSlA2RjJEODBJNnl5dUJ1Y01qU1Bzc0dMZ3pULTNodFRkRzFBU2E1Z2lQSE5PX3J5TUdvSGItZDkyTl9ZWDRPbGJlbEhBS194b0hjaVpBSzVWSm1yMFE5Q0dya1VuTXVjdkdpNEpoMEhEYV9nNmVCU3dUQy1OMjNGSUc0cUMyUDFZb3lXS2ZFaXZuSGtfaFRRTDdqWTJOOEpRN3duaFM1SWNmV25FOVU1V25lNVBWTHJpenp6S0RRWWNkNHYtUlhv?oc=5"
+---
+
+SC Directs Rajasthan to Frame Aid Policy for Industries Setting Up ZLD Plants Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOUWI2cVFxLTNUR1hVczR3Yk9sLVVGVjljT1RUMFhXMjgtWHZDaFdCY2xSaTRLSkQzNFdCNk1qbUt4VkVwTG1BN2ZiWlVMdDlLRXlvQkhnUEVUNDJNNVY0TFFpTEVuN0IzV3MzNEJKRFdJbnB0R3lONDRYVFhESzE5LTRobWtTZHNMcjZjMGtLRURtdU9YZWhBZzB3eTBVa0tVMnRXZW1ZNm1SOTBLUGJvRGJWR0xLSExEVGtHdHVkQUZ5QdIBxwFBVV95cUxNSlA2RjJEODBJNnl5dUJ1Y01qU1Bzc0dMZ3pULTNodFRkRzFBU2E1Z2lQSE5PX3J5TUdvSGItZDkyTl9ZWDRPbGJlbEhBS194b0hjaVpBSzVWSm1yMFE5Q0dya1VuTXVjdkdpNEpoMEhEYV9nNmVCU3dUQy1OMjNGSUc0cUMyUDFZb3lXS2ZFaXZuSGtfaFRRTDdqWTJOOEpRN3duaFM1SWNmV25FOVU1V25lNVBWTHJpenp6S0RRWWNkNHYtUlhv?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

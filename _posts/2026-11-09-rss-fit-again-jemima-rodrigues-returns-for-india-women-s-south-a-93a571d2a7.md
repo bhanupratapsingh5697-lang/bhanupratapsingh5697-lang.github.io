@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Fit-again Jemima Rodrigues returns for India Women's South Africa Tour - Rediff"
+date: 2026-11-09 17:57:19 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxQb0xUYm9BTmJfNHNqcm0wdHJNeVJaczZDS1ptazVSSHRsejZzMlhMRzIyaXQ3bi1YOU1WYkZfdUxkOVdIdU5RaEJELWhOZC1Ib1JkUFZ5TnphNkQ1VFF1NDYydzhydTl1cVNKOUQtR3p5LS1VUVNfdFotQmRObDlRUlFTUURxLUpMY2VUR1c4MllvREFsQTFzNEw1Sk1SazNrbXIwVjFyaUR5UW85YV9HaHhKNnVxMklpUUlqadIBvwFBVV95cUxOY1l4UUxzMGI3U1pTTHBBdktjNDNnRllhdmxqMkFjLVVLUFp4YXpUN0tkcFJ0RzVIcW1RXzF5dlc3bUxGNzg1SzFfaG5pTW9veWFqOVl4MzRSSWl6MUI4S0hnU201QXJEaW1qWTFDYm9RTmM4Z0hFcmpkZEo1c0l1LVBqWWRCUElXX0Z4dWJzdENnX1pzTGN6SkNITm5ZTVptN3E4VTZUUkswMUQ1cFpuVlM5WGJjWC1kNkZ1SW5WSQ?oc=5"
+---
+
+Fit-again Jemima Rodrigues returns for India Women's South Africa Tour Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxQb0xUYm9BTmJfNHNqcm0wdHJNeVJaczZDS1ptazVSSHRsejZzMlhMRzIyaXQ3bi1YOU1WYkZfdUxkOVdIdU5RaEJELWhOZC1Ib1JkUFZ5TnphNkQ1VFF1NDYydzhydTl1cVNKOUQtR3p5LS1VUVNfdFotQmRObDlRUlFTUURxLUpMY2VUR1c4MllvREFsQTFzNEw1Sk1SazNrbXIwVjFyaUR5UW85YV9HaHhKNnVxMklpUUlqadIBvwFBVV95cUxOY1l4UUxzMGI3U1pTTHBBdktjNDNnRllhdmxqMkFjLVVLUFp4YXpUN0tkcFJ0RzVIcW1RXzF5dlc3bUxGNzg1SzFfaG5pTW9veWFqOVl4MzRSSWl6MUI4S0hnU201QXJEaW1qWTFDYm9RTmM4Z0hFcmpkZEo1c0l1LVBqWWRCUElXX0Z4dWJzdENnX1pzTGN6SkNITm5ZTVptN3E4VTZUUkswMUQ1cFpuVlM5WGJjWC1kNkZ1SW5WSQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

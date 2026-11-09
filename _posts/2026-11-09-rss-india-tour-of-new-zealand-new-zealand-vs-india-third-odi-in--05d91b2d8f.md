@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India tour of New Zealand: New Zealand vs India third ODI in Hamilton on November 10, 2026 - The Hindu"
+date: 2026-11-09 09:38:07 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxNZXBlOHNxUS1nTl9ZZVFBYzFFSWpHYUxtdmZTbGFxLUEtdEgxUjJPVTd6VU5SLVgxYzZ2SkhHX2pXbG52SVRISm00bjktRVFmV20xaS1hWXZSVngxdFVVVHFLdDJCTWxWeV9YYlcwbUp5SmtOdmhuSTlRUlFETDNVSmNzVVV5ZWlvbjFlMjdLTjVhYUNvbzRXeDQ1Z2doSm1sRHhITjJvc2tSc1ZMLXB4dGR0VFhQUzJGZHJLaHZR0gHEAUFVX3lxTE15b0J1OEY1U1VMYXRIVGROR3FVZWpFQ2MzVE1TbV9tWFNBaTFPLW1ISDNRXzZmeV9jYnhwSTN0RGhSX09BbWlQTHJzV2kxMGpINHU2aUtvYWdwNnNHQUtBRmpnUjFjTWtmSkFCS1V6SlpuT2lyR1VGTEo0REdVYzFIX1FGSkM5Um5kUUk4V0pWeHRYYVdVTVRVTFFiS09ndHpXeGc3djliYXNwWFFvRFVZY0NsYjctMndDcGw2TTNadkRHN0o?oc=5"
+---
+
+India tour of New Zealand: New Zealand vs India third ODI in Hamilton on November 10, 2026 The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxNZXBlOHNxUS1nTl9ZZVFBYzFFSWpHYUxtdmZTbGFxLUEtdEgxUjJPVTd6VU5SLVgxYzZ2SkhHX2pXbG52SVRISm00bjktRVFmV20xaS1hWXZSVngxdFVVVHFLdDJCTWxWeV9YYlcwbUp5SmtOdmhuSTlRUlFETDNVSmNzVVV5ZWlvbjFlMjdLTjVhYUNvbzRXeDQ1Z2doSm1sRHhITjJvc2tSc1ZMLXB4dGR0VFhQUzJGZHJLaHZR0gHEAUFVX3lxTE15b0J1OEY1U1VMYXRIVGROR3FVZWpFQ2MzVE1TbV9tWFNBaTFPLW1ISDNRXzZmeV9jYnhwSTN0RGhSX09BbWlQTHJzV2kxMGpINHU2aUtvYWdwNnNHQUtBRmpnUjFjTWtmSkFCS1V6SlpuT2lyR1VGTEo0REdVYzFIX1FGSkM5Um5kUUk4V0pWeHRYYVdVTVRVTFFiS09ndHpXeGc3djliYXNwWFFvRFVZY0NsYjctMndDcGw2TTNadkRHN0o?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
