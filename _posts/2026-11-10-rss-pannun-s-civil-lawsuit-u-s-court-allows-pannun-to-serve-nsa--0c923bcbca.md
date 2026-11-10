@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Pannun’s civil lawsuit: U.S. court allows Pannun to serve NSA Doval and former intelligence chief Goyal - The Hindu"
+date: 2026-11-10 13:57:11 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxOR19YVE5nYkxSekoxX2xLbmNUR0laSV9Uc0g1ZGE3ZnczcG5MRHliSnFVWEU1RUN2MHhBOVdrMU9KQmlVZ3RaY2VfMEM3cHRlX0toLVk4YjRPLVo0SWxTS1YtVXJfWVd3dHJtUjRQRWMwUEhJZWpOYWhwR3ExR2RIV1ZxQXFfSEh3WFN0M3FJbUZqSjgwS2ltdFZKM0FvUGlEZ2ZWNjhrelpRSEJzdlhnTjdRRWk4bEVDRkhWU0ZXUEZUa3VqSUtHYkhzUjg5UF90OGtB0gHaAUFVX3lxTE5yZTFFaGt0VHRHVVNCWWY5dmFlcDFPbk9TaDQ4UTFKZU9VZXExbk9xM1VPVzY1RDZkUGNycDJNZWZ5cE9odUFGVktmRUJKZ0tUd0pxSWk0S3BXdi1SemtuUXk0LV9PeU81Y3JsYW9CQTljZ21SVTl3cE9lalJTWkhrcmIxTXRuOXhURGQtVXVxR3owSjh3ekF6ZXZxNGJiNUlrUmtQRTZuUUNiQ3pyYmZJTHA1VGsySF9FMkdONzZDc1lCYWp1WWMxcnpPdjRhaktNcjVfaVZlRl9n?oc=5"
+---
+
+Pannun’s civil lawsuit: U.S. court allows Pannun to serve NSA Doval and former intelligence chief Goyal The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOR19YVE5nYkxSekoxX2xLbmNUR0laSV9Uc0g1ZGE3ZnczcG5MRHliSnFVWEU1RUN2MHhBOVdrMU9KQmlVZ3RaY2VfMEM3cHRlX0toLVk4YjRPLVo0SWxTS1YtVXJfWVd3dHJtUjRQRWMwUEhJZWpOYWhwR3ExR2RIV1ZxQXFfSEh3WFN0M3FJbUZqSjgwS2ltdFZKM0FvUGlEZ2ZWNjhrelpRSEJzdlhnTjdRRWk4bEVDRkhWU0ZXUEZUa3VqSUtHYkhzUjg5UF90OGtB0gHaAUFVX3lxTE5yZTFFaGt0VHRHVVNCWWY5dmFlcDFPbk9TaDQ4UTFKZU9VZXExbk9xM1VPVzY1RDZkUGNycDJNZWZ5cE9odUFGVktmRUJKZ0tUd0pxSWk0S3BXdi1SemtuUXk0LV9PeU81Y3JsYW9CQTljZ21SVTl3cE9lalJTWkhrcmIxTXRuOXhURGQtVXVxR3owSjh3ekF6ZXZxNGJiNUlrUmtQRTZuUUNiQ3pyYmZJTHA1VGsySF9FMkdONzZDc1lCYWp1WWMxcnpPdjRhaktNcjVfaVZlRl9n?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

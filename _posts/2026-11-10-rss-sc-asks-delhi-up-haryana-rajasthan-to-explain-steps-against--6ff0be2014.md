@@ -1,0 +1,17 @@
+---
+layout: post
+title: "SC asks Delhi, UP, Haryana, Rajasthan to explain steps against polluting vehicles - India Today"
+date: 2026-11-10 12:44:14 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxOU0ZSUEtCbVVwZnFIajVZckFkRDQyUkluNUZyajJHTEkxWmJBRkt3V0VmdWVxdUdONDN3NEJ6VG41VURMc0N5dkdRWTNqanYxdzhmN0RDc1NOaXhqZklRbDc1U1JoMmZneFpIMXUwM2xmZ194REs4SUpIUWpzclJQM2FOVXlxZkNudHo5VjVSSEktLVZvNEpaa1dpTmp6NG1lRWVEUFg2SURiVF9iNXkxLXdFMUtZdS1xSlpocnY1VWQ3bm5mMVpPY2kxVmVSeTZHTHlTc0V5cFBicTDSAeABQVVfeXFMT3JaenNReDlkYV9ON1NMZ0hOTFM0aHU3elh2ekdhLS1xQ1V6NDQwcDBGWmRzNFdPckxRTUxNNG5wMXNxTG9qU05ndzcwLXg0cnpWQlU3ZWpPOEY5Q3RTeW5hR0ptdVEyNS11UTFSV3ByUnNtLW5vRXhLUkxFbV9YRDZ5VTJYX3FSLUxWSFFkQ0taamJqeHpPbUVDNVpBOWxXdVZNaUROLUNYemZCT1pQQXBtNzJqb0JzWjdFUDhXNmJYbmQwU2VjaS1IUXd3WUNhV0lpSE52X3VLMVR6amIxME8?oc=5"
+---
+
+SC asks Delhi, UP, Haryana, Rajasthan to explain steps against polluting vehicles India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxOU0ZSUEtCbVVwZnFIajVZckFkRDQyUkluNUZyajJHTEkxWmJBRkt3V0VmdWVxdUdONDN3NEJ6VG41VURMc0N5dkdRWTNqanYxdzhmN0RDc1NOaXhqZklRbDc1U1JoMmZneFpIMXUwM2xmZ194REs4SUpIUWpzclJQM2FOVXlxZkNudHo5VjVSSEktLVZvNEpaa1dpTmp6NG1lRWVEUFg2SURiVF9iNXkxLXdFMUtZdS1xSlpocnY1VWQ3bm5mMVpPY2kxVmVSeTZHTHlTc0V5cFBicTDSAeABQVVfeXFMT3JaenNReDlkYV9ON1NMZ0hOTFM0aHU3elh2ekdhLS1xQ1V6NDQwcDBGWmRzNFdPckxRTUxNNG5wMXNxTG9qU05ndzcwLXg0cnpWQlU3ZWpPOEY5Q3RTeW5hR0ptdVEyNS11UTFSV3ByUnNtLW5vRXhLUkxFbV9YRDZ5VTJYX3FSLUxWSFFkQ0taamJqeHpPbUVDNVpBOWxXdVZNaUROLUNYemZCT1pQQXBtNzJqb0JzWjdFUDhXNmJYbmQwU2VjaS1IUXd3WUNhV0lpSE52X3VLMVR6amIxME8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

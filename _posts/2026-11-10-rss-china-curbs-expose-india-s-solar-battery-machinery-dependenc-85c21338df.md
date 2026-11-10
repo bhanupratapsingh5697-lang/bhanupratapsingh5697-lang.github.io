@@ -1,0 +1,17 @@
+---
+layout: post
+title: "China curbs expose India's solar, battery machinery dependence; manufacturers scout for alternatives - Moneycontrol.com"
+date: 2026-11-10 16:24:09 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxQM0ZwdDlVcHZ3OXllWnM0WDVlUE8tSFpmd0J0YUNpazY5RkhWX2lfc0hjQUJrRDNuLWlLcUo1djZkcGtPdF9LM3NoRlVncHRTUG5vVko2aTlsTkMtSVpOR0xtZTAwSHBVN1ZwU29hYllIN0xtT0tzd3o0Q0xGeU9GdXFOanJyajlXenNlTE5xQjlCRmJfN0U5QmxCYXFTNEx5MkRCaWJSVzZodGhEczdWdDZ4OXBmTldYMWFzdUQzQWJZbEFqRnRtYk9ZMi1fWnhf0gHWAUFVX3lxTFBRNDFfb1NKSnBMR0E1d3Y1dzhwblp4ZFZWeDNTUzFBdVVvSEw1MjR2T3pveFVZcVRodFdOYVlBanhWYjA2UjhyYTRSOWNJVG8zcnl1N2t6OFVHelk5SVVSY0lzWDNFdlhOa05PdEIyekhUclpnME5lQzdHNFBVdDU1Z3FrX2VKYlpQeUcwRlZTem1KQkxsM3lHdUF3R2FUZTlQVU9kTkIyVmxNcnpuMmJNQ1R3N3JwZmt3WDBvb3ZmeWZINHdFZXJFNEgwYlRuWFZQY3NNMkE?oc=5"
+---
+
+China curbs expose India's solar, battery machinery dependence; manufacturers scout for alternatives Moneycontrol.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQM0ZwdDlVcHZ3OXllWnM0WDVlUE8tSFpmd0J0YUNpazY5RkhWX2lfc0hjQUJrRDNuLWlLcUo1djZkcGtPdF9LM3NoRlVncHRTUG5vVko2aTlsTkMtSVpOR0xtZTAwSHBVN1ZwU29hYllIN0xtT0tzd3o0Q0xGeU9GdXFOanJyajlXenNlTE5xQjlCRmJfN0U5QmxCYXFTNEx5MkRCaWJSVzZodGhEczdWdDZ4OXBmTldYMWFzdUQzQWJZbEFqRnRtYk9ZMi1fWnhf0gHWAUFVX3lxTFBRNDFfb1NKSnBMR0E1d3Y1dzhwblp4ZFZWeDNTUzFBdVVvSEw1MjR2T3pveFVZcVRodFdOYVlBanhWYjA2UjhyYTRSOWNJVG8zcnl1N2t6OFVHelk5SVVSY0lzWDNFdlhOa05PdEIyekhUclpnME5lQzdHNFBVdDU1Z3FrX2VKYlpQeUcwRlZTem1KQkxsM3lHdUF3R2FUZTlQVU9kTkIyVmxNcnpuMmJNQ1R3N3JwZmt3WDBvb3ZmeWZINHdFZXJFNEgwYlRuWFZQY3NNMkE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

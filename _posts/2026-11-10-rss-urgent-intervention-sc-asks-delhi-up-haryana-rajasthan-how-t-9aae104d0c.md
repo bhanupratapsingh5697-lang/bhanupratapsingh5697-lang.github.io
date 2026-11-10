@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Urgent intervention': SC asks Delhi, UP, Haryana, Rajasthan how they're keeping old vehicles off NCR... - Moneycontrol.com"
+date: 2026-11-10 12:41:34 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxPZ1hVMVdZcXh2UFZoNlJjOTV6NTVrUVhBOVpqbzM1RnVmR0txY0E1NXhvdTJOakd2cll0bmhEVGtpWXNmSlloUW9jRWVWaUVLQzZhSVo4R2gxN0RFM0pvS0VSRnhwTURON3ZfenZjZU9mWTFaZkxqdUVvQ196WExRUmFpalNELWFNdi1PdmZnWDAyWG9XcmczMGtUYjFmNW1NcC1kejBqSmRBLXhOaEVEc2NYM0hrV2cwbzFuSHQ2Y3Vhd0pnZldYQl9jSm1NRG1fSGdV0gHYAUFVX3lxTE4ta0kyRkRMUml1cUtldy05akVWSWtsXzJNUlBMYXg4N2JTdkZkcDhiZXNJaGhMS1FyUERRcVVXQjNWdG1xRWdjX3M3aHdsdTNLRUNmaUk4emtRZzU3Z3NpMVVvaXBjX0xiMllqRnJKZWU3M2JuM2t5U2tMZmRkZ05OMjAxelVhZXpXM0ZNRTFtdjFVNHMzc081UXZEbUpNSXJMblFwb1UwVUZXcFlBSElkbmp5MkdISFBYb2xrcTh4LUs5dG1WbFFUNW1BSmdsZzQ0ZFhSRG1QUg?oc=5"
+---
+
+'Urgent intervention': SC asks Delhi, UP, Haryana, Rajasthan how they're keeping old vehicles off NCR... Moneycontrol.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPZ1hVMVdZcXh2UFZoNlJjOTV6NTVrUVhBOVpqbzM1RnVmR0txY0E1NXhvdTJOakd2cll0bmhEVGtpWXNmSlloUW9jRWVWaUVLQzZhSVo4R2gxN0RFM0pvS0VSRnhwTURON3ZfenZjZU9mWTFaZkxqdUVvQ196WExRUmFpalNELWFNdi1PdmZnWDAyWG9XcmczMGtUYjFmNW1NcC1kejBqSmRBLXhOaEVEc2NYM0hrV2cwbzFuSHQ2Y3Vhd0pnZldYQl9jSm1NRG1fSGdV0gHYAUFVX3lxTE4ta0kyRkRMUml1cUtldy05akVWSWtsXzJNUlBMYXg4N2JTdkZkcDhiZXNJaGhMS1FyUERRcVVXQjNWdG1xRWdjX3M3aHdsdTNLRUNmaUk4emtRZzU3Z3NpMVVvaXBjX0xiMllqRnJKZWU3M2JuM2t5U2tMZmRkZ05OMjAxelVhZXpXM0ZNRTFtdjFVNHMzc081UXZEbUpNSXJMblFwb1UwVUZXcFlBSElkbmp5MkdISFBYb2xrcTh4LUs5dG1WbFFUNW1BSmdsZzQ0ZFhSRG1QUg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

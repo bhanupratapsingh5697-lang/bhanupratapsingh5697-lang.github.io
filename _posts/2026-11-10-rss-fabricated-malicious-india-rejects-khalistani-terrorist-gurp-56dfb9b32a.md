@@ -1,0 +1,17 @@
+---
+layout: post
+title: "\"Fabricated, Malicious\": India Rejects Khalistani Terrorist Gurpatwant Singh Pannun's US Lawsuit - NDTV"
+date: 2026-11-10 20:58:40 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxNdDJTWFQzSTRxWEJ1SlI0Mmw0LURYOHVFampMMWNYVzlscUxiZHJwOGJ2R3RZR3NqSi1TbzF2dkxyYmpaSmFwYmtTeHJqXzRkYzRNdUVlYWxteWFUd19iM0o1QVo1ZlhGcGFSbjZ1VFVFaWh5Zzg0LVRrMUVyMTlYNWJtc2hwcU1wdmxxMVNmSFVTRnVzdHdmUzkzME8ycVBKaks4eE1VOGdZRmEteDlnWHJGZnBWaHZEbEhEZUY5TmpDWElVTFFVM3RVSHbSAdQBQVVfeXFMTVFudW1TVW1DZDB1bjJLMDNzeTFHODZ2LXEtOHZKYzJVbDlFUHh5T1dtQm5WWFY2QzdNYUhDNGJGYU93ck9mSnBYMXFFM0pzeS1lZEFLbEtPNUFpMEdsQkItM1Y5VjZDRHAwU285OW9udXJMNUlTQUVEZU5tVHhQZndnSmZBTjhMMVJ2QXlvOEllVmh2TXlDWlc5MjFoMEdOTENfd2poY2hjTDdTZkNUcG5YaDl1TmxXaHVlSERSNm54Wm9BOE92UWVVQXhNSUdyTm4wQnM?oc=5"
+---
+
+"Fabricated, Malicious": India Rejects Khalistani Terrorist Gurpatwant Singh Pannun's US Lawsuit NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxNdDJTWFQzSTRxWEJ1SlI0Mmw0LURYOHVFampMMWNYVzlscUxiZHJwOGJ2R3RZR3NqSi1TbzF2dkxyYmpaSmFwYmtTeHJqXzRkYzRNdUVlYWxteWFUd19iM0o1QVo1ZlhGcGFSbjZ1VFVFaWh5Zzg0LVRrMUVyMTlYNWJtc2hwcU1wdmxxMVNmSFVTRnVzdHdmUzkzME8ycVBKaks4eE1VOGdZRmEteDlnWHJGZnBWaHZEbEhEZUY5TmpDWElVTFFVM3RVSHbSAdQBQVVfeXFMTVFudW1TVW1DZDB1bjJLMDNzeTFHODZ2LXEtOHZKYzJVbDlFUHh5T1dtQm5WWFY2QzdNYUhDNGJGYU93ck9mSnBYMXFFM0pzeS1lZEFLbEtPNUFpMEdsQkItM1Y5VjZDRHAwU285OW9udXJMNUlTQUVEZU5tVHhQZndnSmZBTjhMMVJ2QXlvOEllVmh2TXlDWlc5MjFoMEdOTENfd2poY2hjTDdTZkNUcG5YaDl1TmxXaHVlSERSNm54Wm9BOE92UWVVQXhNSUdyTm4wQnM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
