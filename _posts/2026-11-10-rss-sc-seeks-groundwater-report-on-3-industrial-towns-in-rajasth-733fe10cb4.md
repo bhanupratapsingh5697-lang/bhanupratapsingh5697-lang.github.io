@@ -1,0 +1,17 @@
+---
+layout: post
+title: "SC seeks groundwater report on 3 industrial towns in Rajasthan | India News - Hindustan Times"
+date: 2026-11-10 07:41:30 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxNNDVXZXR0MDFvVk9vNnFybGFDMG5HVXZhOWFGMUY1Z0Y3ZEN3UzJ6VV9Pb3MzY2xYWFVQMHZwSUhjZ1c1bm9NWmRaTVN6SzZhUUJ4Zlotc2xCN1RHazY0Qzk1TkxmOTNZaHhKdVJEUzlOZnJtME4zcHQyamVKTFZRSklfX1hHWlpYbUhIQTdyVnBVUTFObExXd0o1R1JQODBWcS1PWThCbHR3RExweHpHcUtId0ZDZTFKcXhrNE1RY25YTHfSAcgBQVVfeXFMTkFYZXV5LXNveFRabC16RHpVN0UzdWI2dmhtQWc2bWlndzZSS2Q4RWp4VkhSTnRxTE5rQUswYWZmVU9wc2NuR05iRmFUSWNNcmNib184S3o2Qllqb1hyalVqTXpoV3EyaXBnUFVWUUJGZG1BYlRBQzJDRzd6MnBVZjVpOWRTWDVOYWNTQmFfRS0xREtJei1hREVlVnhXMDFyX1lTYndwTTJ2SjBrY3ZKQlB0SndudmNDb2NuRnBXdFlzemJvRXYzX2k?oc=5"
+---
+
+SC seeks groundwater report on 3 industrial towns in Rajasthan | India News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNNDVXZXR0MDFvVk9vNnFybGFDMG5HVXZhOWFGMUY1Z0Y3ZEN3UzJ6VV9Pb3MzY2xYWFVQMHZwSUhjZ1c1bm9NWmRaTVN6SzZhUUJ4Zlotc2xCN1RHazY0Qzk1TkxmOTNZaHhKdVJEUzlOZnJtME4zcHQyamVKTFZRSklfX1hHWlpYbUhIQTdyVnBVUTFObExXd0o1R1JQODBWcS1PWThCbHR3RExweHpHcUtId0ZDZTFKcXhrNE1RY25YTHfSAcgBQVVfeXFMTkFYZXV5LXNveFRabC16RHpVN0UzdWI2dmhtQWc2bWlndzZSS2Q4RWp4VkhSTnRxTE5rQUswYWZmVU9wc2NuR05iRmFUSWNNcmNib184S3o2Qllqb1hyalVqTXpoV3EyaXBnUFVWUUJGZG1BYlRBQzJDRzd6MnBVZjVpOWRTWDVOYWNTQmFfRS0xREtJei1hREVlVnhXMDFyX1lTYndwTTJ2SjBrY3ZKQlB0SndudmNDb2NuRnBXdFlzemJvRXYzX2k?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

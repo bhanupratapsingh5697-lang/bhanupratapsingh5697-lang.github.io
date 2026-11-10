@@ -1,0 +1,17 @@
+---
+layout: post
+title: "\"Absolutely Not\" To \"Theek Hai\" To Firm \"No\": Sonia Gandhi On PM Post Tussle - NDTV"
+date: 2026-11-10 10:27:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi7wFBVV95cUxNOWd0UWhlNE8xTzNuYmFmQk8wU0xROWtXRWtYUW1nNkRiQ1MzRlpNempISmJXTzR4WFU2UDhKQWNOUUFmcC1zNzRiNjlhNGhKbktKNGJrVzhiV1VIYzI0cm5aWDdqVnZUbGVtV1hzVHEyS25oTi1VUmZ4Z1VkVmdua2Z3Y1RBN0h0ejVPUjQ3eG9sUUhUYkR6eGEzeXZoVlJEN19sbG8xRHhZN01UUDRjLVRPcnR0bjRKYnJaLTJ0ZnVJY2N4TDl6MlBldXJqeU9RMFhLUG5ELUJNVnh0bl9TTTNfSEplSFJaR2Q1TGpNONIB9wFBVV95cUxQQ1VhVWllNWp4VDRocUJtZTV6Q21OS09CQ0dNTEV2VXRxdWsyckJWZFowZWJBV1p4SGNlN08wWnhRQVFKQXUxQWg2SEt4Y1NOcER6eHNrd2ctb1RLSVc4RnVIY3ZseTMzZV9OMmtXSDFGem5wRVpJbDhLdG1RWkZCSmd6bWZSZzZsbnRzR3otQ0lnLUdwOXlOSG1mUHM1NUlqcElSUXlQSExfNmhueW96V3JpMlNCdnM2Q3RMVFVXN2JXUUI1SC02ZTJleGRwaVp0ZnQ5aEhRenB0a3ZnSzREYVMzQnJtMktOZVByX0VhSTF0ZnV6SXBj?oc=5"
+---
+
+"Absolutely Not" To "Theek Hai" To Firm "No": Sonia Gandhi On PM Post Tussle NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi7wFBVV95cUxNOWd0UWhlNE8xTzNuYmFmQk8wU0xROWtXRWtYUW1nNkRiQ1MzRlpNempISmJXTzR4WFU2UDhKQWNOUUFmcC1zNzRiNjlhNGhKbktKNGJrVzhiV1VIYzI0cm5aWDdqVnZUbGVtV1hzVHEyS25oTi1VUmZ4Z1VkVmdua2Z3Y1RBN0h0ejVPUjQ3eG9sUUhUYkR6eGEzeXZoVlJEN19sbG8xRHhZN01UUDRjLVRPcnR0bjRKYnJaLTJ0ZnVJY2N4TDl6MlBldXJqeU9RMFhLUG5ELUJNVnh0bl9TTTNfSEplSFJaR2Q1TGpNONIB9wFBVV95cUxQQ1VhVWllNWp4VDRocUJtZTV6Q21OS09CQ0dNTEV2VXRxdWsyckJWZFowZWJBV1p4SGNlN08wWnhRQVFKQXUxQWg2SEt4Y1NOcER6eHNrd2ctb1RLSVc4RnVIY3ZseTMzZV9OMmtXSDFGem5wRVpJbDhLdG1RWkZCSmd6bWZSZzZsbnRzR3otQ0lnLUdwOXlOSG1mUHM1NUlqcElSUXlQSExfNmhueW96V3JpMlNCdnM2Q3RMVFVXN2JXUUI1SC02ZTJleGRwaVp0ZnQ5aEhRenB0a3ZnSzREYVMzQnJtMktOZVByX0VhSTF0ZnV6SXBj?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

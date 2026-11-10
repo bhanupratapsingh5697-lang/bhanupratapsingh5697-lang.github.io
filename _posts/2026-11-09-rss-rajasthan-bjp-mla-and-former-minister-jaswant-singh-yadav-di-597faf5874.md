@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan BJP MLA and former minister Jaswant Singh Yadav dies at 73 - The Indian Express"
+date: 2026-11-09 04:42:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxOdVpBT0dHbTlsUGNGS2pIME1vLUdQQ191T2ZzbmFtVjY4bE55dG9xMURzeU05MjRLYktWbGVzTGQwQ1dEQlVmcEh1dGZMQmFHLWxsZnRIZnF5dEE1bU9nTDhfMTJISVllTFFMTEMwY1BDVkxrYkljNXltQllELXFKdmN4akVUWldiZjVzLWpLdlhLZE9lTGlfUXpvU0F2NWNaNzBCZmdoM3R0SmJ5RTlyQ0lla05mcHd4c3fSAcABQVVfeXFMTV9CY0JremNrVWNyN3hzN0V5WlRkWU45emhCS3hKTHhJVGZNa2p1ZmZCSUhNQkp2VXFyeHowbXZoQ3N0QldLU2ZMc01wS1RGNklfZ0oySUlIWi1HcFlYVDVWcmV5NDJlaGNoanN2YXVxc3dkU3p0dHI3cTZKZUs4a3o4ZDZGeW1xU2I0alUtSFVkT2V3SE5KaDU2SUQtbGZaRnp3MWtoWW5uVmE0WVJQWUFsNFd4eEdDVkRlSXpoUVVC?oc=5"
+---
+
+Rajasthan BJP MLA and former minister Jaswant Singh Yadav dies at 73 The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxOdVpBT0dHbTlsUGNGS2pIME1vLUdQQ191T2ZzbmFtVjY4bE55dG9xMURzeU05MjRLYktWbGVzTGQwQ1dEQlVmcEh1dGZMQmFHLWxsZnRIZnF5dEE1bU9nTDhfMTJISVllTFFMTEMwY1BDVkxrYkljNXltQllELXFKdmN4akVUWldiZjVzLWpLdlhLZE9lTGlfUXpvU0F2NWNaNzBCZmdoM3R0SmJ5RTlyQ0lla05mcHd4c3fSAcABQVVfeXFMTV9CY0JremNrVWNyN3hzN0V5WlRkWU45emhCS3hKTHhJVGZNa2p1ZmZCSUhNQkp2VXFyeHowbXZoQ3N0QldLU2ZMc01wS1RGNklfZ0oySUlIWi1HcFlYVDVWcmV5NDJlaGNoanN2YXVxc3dkU3p0dHI3cTZKZUs4a3o4ZDZGeW1xU2I0alUtSFVkT2V3SE5KaDU2SUQtbGZaRnp3MWtoWW5uVmE0WVJQWUFsNFd4eEdDVkRlSXpoUVVC?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

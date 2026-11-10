@@ -1,0 +1,17 @@
+---
+layout: post
+title: "WTA Finals: Sabalenka battles back to win; Andreeva stuns Svitolina - Rediff"
+date: 2026-11-10 06:44:38 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxNQ1ZNTW9lSjJ6WE5WcmRoZi1FWi1mTEZWYkZ6UHVRWU5qMG9zTXRIZDlQR3Z3T2ktSEpuX0VuNHR0a0tUaWZFR1dUd3pzWTFzakxzZ2MwTlZfNXVFaWMxaEpSSFFIRTRQWWQ3WWRWNjdzdUl4dzNyU3BQaTZ3OVlxTnZqOFRHWnFwZzcwRktLNnVlVVBPb2RNS1hZQ0lUeWVHSzJ5UWpUSlJOYkd0VktVSmM5SjVTd9IBuAFBVV95cUxPWW9PcG5ReGJDOGJUcmlIeUMwRFM0alp1VnVkZ1RXTmc3QWJVakk1aWhQOGFzMWw4MEZLTVhqQ3pUdEdoWjR3RlNCYXpXejY5bmN2RUN5LWp4WEVEREtkdVpSYU9zcDlxWTZGVXJOUzNkb0NPZ3RMMFN6ZC1acDVJMmhsN2NvY3Etc1pER0hYZk8tdmNucDhQM3N5MGY2bWt1YXJibjljWXFkeV9IRXVWcV8zM2FpRGxf?oc=5"
+---
+
+WTA Finals: Sabalenka battles back to win; Andreeva stuns Svitolina Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxNQ1ZNTW9lSjJ6WE5WcmRoZi1FWi1mTEZWYkZ6UHVRWU5qMG9zTXRIZDlQR3Z3T2ktSEpuX0VuNHR0a0tUaWZFR1dUd3pzWTFzakxzZ2MwTlZfNXVFaWMxaEpSSFFIRTRQWWQ3WWRWNjdzdUl4dzNyU3BQaTZ3OVlxTnZqOFRHWnFwZzcwRktLNnVlVVBPb2RNS1hZQ0lUeWVHSzJ5UWpUSlJOYkd0VktVSmM5SjVTd9IBuAFBVV95cUxPWW9PcG5ReGJDOGJUcmlIeUMwRFM0alp1VnVkZ1RXTmc3QWJVakk1aWhQOGFzMWw4MEZLTVhqQ3pUdEdoWjR3RlNCYXpXejY5bmN2RUN5LWp4WEVEREtkdVpSYU9zcDlxWTZGVXJOUzNkb0NPZ3RMMFN6ZC1acDVJMmhsN2NvY3Etc1pER0hYZk8tdmNucDhQM3N5MGY2bWt1YXJibjljWXFkeV9IRXVWcV8zM2FpRGxf?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

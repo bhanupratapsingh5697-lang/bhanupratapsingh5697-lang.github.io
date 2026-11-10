@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sonia and Rajiv Gandhi: The romance India watched, mourned and mythologised - ThePrint"
+date: 2026-11-10 12:04:58 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxOWkdBcnZrRGNHY3VMQUJETEx1cjBrWUI0dEFBU2V1cWZzX19oWHVETmNLMS1HR3ItSnlETHhGR3VIM2xaaEZuWE8zbkZGT0JHdVh4RkE4c0hmXzh6bC12dy1jZVNLSHlvMW85R19Bb1dCMWd3ck12YURlTzBnM3VGdXZ4TGdrd1dncWZvd0VmdFh2UTk4Q0xyeHpGSW1ndXB0bGZWWFBzc05sYXhqREE00gG0AUFVX3lxTFB2QXgtVWxwcDRwODJzMGVkU1A5YkRFNG1VN1gxTC04TlAzUF90cW9IVXluQk5GaDNBM0Q4TllXdUgyUzdsRVVsT1NoRjh3eS1CbnRiUlNLU0Zqcm5sNG5vUHVHLVlkZHVrcmNSR2JkR1doNDZmVGwycklUMjE4SlROZWFkZEZHU3hYVTE0LW5aelA4T0VOTEVCT0pRT3lyZldLOWNOWFBrNV9LckViTG5GRmp3Yg?oc=5"
+---
+
+Sonia and Rajiv Gandhi: The romance India watched, mourned and mythologised ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxOWkdBcnZrRGNHY3VMQUJETEx1cjBrWUI0dEFBU2V1cWZzX19oWHVETmNLMS1HR3ItSnlETHhGR3VIM2xaaEZuWE8zbkZGT0JHdVh4RkE4c0hmXzh6bC12dy1jZVNLSHlvMW85R19Bb1dCMWd3ck12YURlTzBnM3VGdXZ4TGdrd1dncWZvd0VmdFh2UTk4Q0xyeHpGSW1ndXB0bGZWWFBzc05sYXhqREE00gG0AUFVX3lxTFB2QXgtVWxwcDRwODJzMGVkU1A5YkRFNG1VN1gxTC04TlAzUF90cW9IVXluQk5GaDNBM0Q4TllXdUgyUzdsRVVsT1NoRjh3eS1CbnRiUlNLU0Zqcm5sNG5vUHVHLVlkZHVrcmNSR2JkR1doNDZmVGwycklUMjE4SlROZWFkZEZHU3hYVTE0LW5aelA4T0VOTEVCT0pRT3lyZldLOWNOWFBrNV9LckViTG5GRmp3Yg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

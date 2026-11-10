@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Fires, protests and pollution: Apple's supply chain challenges in India - Business Standard"
+date: 2026-11-10 11:55:52 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxQZ09nTXBkYWR6M3pvQjU4ckNDRXpWdU45V2ZSaUxROTBTYi1fbnlTVEp3WkZLMThsakd1cU9jVmpnOHFwVjVwRElaRFV3aHBaY0x5blZCYWtFT05EM2hFa2I3cjFFYkRpM0dIb1FWdERVU1JDbkVlLS1iYkpSU2dLWi1sdmdSSk1XSlZuV0NoaVNtX3FFQl9HTEtNRDVPSEJ5di1OeWZ4dGdXY1FUTmUxOW1BRHhqWFE5Vmc4dGhJdkMyNFZxa19qNzlPSXNMRHfSAdQBQVVfeXFMT0hwenZ4LU5GUVBkeWVpNFVUMUJubFVvQ185dlh1VTJaN2F5b2FDUkNob1dhajQ2VUxiOTdfNXc4cTNsakJTQ3Q1Y3lJMmxPLWQtdXJqamVMdF9QOFB4cFczUGE1dHpteldGLTQ5eVBqbC1sRHJ2ODAwMWh1VkJpallyS0I4SklPYVZOeGtSRVdWY2lyTjFWNjlSWTQwcUNnV29tdV9XblZMSUxhV2lYbVZla3MtVlB1ZHVkLTZzbzBHbUJMcG5vV3lxbHhWdVB4eWhMSlA?oc=5"
+---
+
+Fires, protests and pollution: Apple's supply chain challenges in India Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxQZ09nTXBkYWR6M3pvQjU4ckNDRXpWdU45V2ZSaUxROTBTYi1fbnlTVEp3WkZLMThsakd1cU9jVmpnOHFwVjVwRElaRFV3aHBaY0x5blZCYWtFT05EM2hFa2I3cjFFYkRpM0dIb1FWdERVU1JDbkVlLS1iYkpSU2dLWi1sdmdSSk1XSlZuV0NoaVNtX3FFQl9HTEtNRDVPSEJ5di1OeWZ4dGdXY1FUTmUxOW1BRHhqWFE5Vmc4dGhJdkMyNFZxa19qNzlPSXNMRHfSAdQBQVVfeXFMT0hwenZ4LU5GUVBkeWVpNFVUMUJubFVvQ185dlh1VTJaN2F5b2FDUkNob1dhajQ2VUxiOTdfNXc4cTNsakJTQ3Q1Y3lJMmxPLWQtdXJqamVMdF9QOFB4cFczUGE1dHpteldGLTQ5eVBqbC1sRHJ2ODAwMWh1VkJpallyS0I4SklPYVZOeGtSRVdWY2lyTjFWNjlSWTQwcUNnV29tdV9XblZMSUxhV2lYbVZla3MtVlB1ZHVkLTZzbzBHbUJMcG5vV3lxbHhWdVB4eWhMSlA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

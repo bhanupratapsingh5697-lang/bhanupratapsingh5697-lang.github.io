@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Australia tightens AI oversight rules after OpenAI government breach - Al Jazeera"
+date: 2026-11-10 12:35:36 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxQbmdiWHo0N0RhNnE1MEVZYlA3NU82VF83YUZRalVqRnYwZmlSVG1uSXVYYWt1bW5lMHNxaEJiNzhKUFd0cEZfdFo3ZFBjUUVKajl0T0c4SlRQdVpzSU5uM0RzdmtxOU5najk0eG5KcTRDWTZmRmhJT3llYjB5VnA5QkhvSmFjNklFU2pkVkR0eEJPOEx4TDZnZlhTd3NVLXh1UE9NeXluTmZHaEpwZ2s40gG0AUFVX3lxTE56dThZc2hOQlMtNk9uY2RtbW5tYk5GYmpKY0ZYV3lkaDVrUmtRejBhWGZJNEotajVxYUpBQnJmSXJFV29vMzVnWl9YUXhJZ3VDMDRqYTFDMzIzRHNqeDZMNnZtZG9SNmctblZxbUUtLVNONEFZcWhfUjJ3ZDlMQm9sbnkzb0hpWjNaU1pzUml1MW1PZ3RtRmlOa1h4VmkzMnRkMDhRZDFaZGRlZUNfckFEeUo3VQ?oc=5"
+---
+
+Australia tightens AI oversight rules after OpenAI government breach Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxQbmdiWHo0N0RhNnE1MEVZYlA3NU82VF83YUZRalVqRnYwZmlSVG1uSXVYYWt1bW5lMHNxaEJiNzhKUFd0cEZfdFo3ZFBjUUVKajl0T0c4SlRQdVpzSU5uM0RzdmtxOU5najk0eG5KcTRDWTZmRmhJT3llYjB5VnA5QkhvSmFjNklFU2pkVkR0eEJPOEx4TDZnZlhTd3NVLXh1UE9NeXluTmZHaEpwZ2s40gG0AUFVX3lxTE56dThZc2hOQlMtNk9uY2RtbW5tYk5GYmpKY0ZYV3lkaDVrUmtRejBhWGZJNEotajVxYUpBQnJmSXJFV29vMzVnWl9YUXhJZ3VDMDRqYTFDMzIzRHNqeDZMNnZtZG9SNmctblZxbUUtLVNONEFZcWhfUjJ3ZDlMQm9sbnkzb0hpWjNaU1pzUml1MW1PZ3RtRmlOa1h4VmkzMnRkMDhRZDFaZGRlZUNfckFEeUo3VQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

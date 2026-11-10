@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Asian stocks rise after technology shares rally on Wall Street - The New Indian Express"
+date: 2026-11-10 10:28:48 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxOQ3hQbFVHZ0xGQXI4YzhKaFpBMG5jd19RN0F2d1l4alpfSU4xNURYNDE5UC1SakRCSkd4Rld5SXdmMDFyUUgza1RVU3JqdllwV1I2UFllMHN4c1hLdWF6NTdkM0pxTFZKX2FXamxlU0djODh5dkFhQlRTbUpyN2Viam5sUS1aekI3dnVBaHlpdVZlRG1heVc2N2gzMEo3TFlERjRBOW9FZ3A1ZEFkMVVpSlV3VE9Kd0nSAcQBQVVfeXFMTlI3aXZYczlZeUR1NnhLOXlrWDJtbkRfWXVqbHRfbjFkV2g1Z1J6WVR1eTh1UnY2NVhMSDJjMFRuelI0Z3F0YVcxLVo4SUp0MFQwd0FLelhydEt4d2NERThXbWZkTFNaS21MX3BKUXRfYUVNOWlMalpnVEs1LXJwUGdHTDUyeUhYbG4yVUZnUnhJcDIwaW50QnUxWGV0NXM3MlhIelA4cDQ5U0JZZmVZMmN6aDRoOWVpOWdWNDNwV0h1YVItZQ?oc=5"
+---
+
+Asian stocks rise after technology shares rally on Wall Street The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxOQ3hQbFVHZ0xGQXI4YzhKaFpBMG5jd19RN0F2d1l4alpfSU4xNURYNDE5UC1SakRCSkd4Rld5SXdmMDFyUUgza1RVU3JqdllwV1I2UFllMHN4c1hLdWF6NTdkM0pxTFZKX2FXamxlU0djODh5dkFhQlRTbUpyN2Viam5sUS1aekI3dnVBaHlpdVZlRG1heVc2N2gzMEo3TFlERjRBOW9FZ3A1ZEFkMVVpSlV3VE9Kd0nSAcQBQVVfeXFMTlI3aXZYczlZeUR1NnhLOXlrWDJtbkRfWXVqbHRfbjFkV2g1Z1J6WVR1eTh1UnY2NVhMSDJjMFRuelI0Z3F0YVcxLVo4SUp0MFQwd0FLelhydEt4d2NERThXbWZkTFNaS21MX3BKUXRfYUVNOWlMalpnVEs1LXJwUGdHTDUyeUhYbG4yVUZnUnhJcDIwaW50QnUxWGV0NXM3MlhIelA4cDQ5U0JZZmVZMmN6aDRoOWVpOWdWNDNwV0h1YVItZQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

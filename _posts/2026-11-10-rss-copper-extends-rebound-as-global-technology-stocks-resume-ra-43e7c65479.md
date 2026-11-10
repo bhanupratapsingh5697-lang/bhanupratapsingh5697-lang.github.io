@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Copper extends rebound as global technology stocks resume rally - Moneycontrol.com"
+date: 2026-11-10 09:55:27 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxNTndtZE13V1RMWFdaTU5SQjY1RUc4Z3pJQkFrR1BieDNWdURBUVkyb2JQLU56LTlGc0tYQi1EQnBxZkZnbzhOZFVmcG1sRUU5XzdmVUlYcWtzWlZzTFBOLTNrcXNtaDdZV3pnQXVVR3lGNWJQUkhWaE90d0lnY0RxNWJRVS1aZTUtVFlvc2RZVXVLQUtDWXlCVzcwTXRFQ2JNTDA3bGt1TVBITWVLb0wwaklkVXVWZmx1R2dZa9IBwgFBVV95cUxOcE9ldTNRbVlwOHNvdGZPZ1NxQmx5Y0xSa09xTWF5TEUxZzRQZXVITmExVFNXU0xNeE1JT0pFRWxZdzZKUzlvOUpBY2pIT2g2MlFwTHFZLXFwbC1ZeDNwVnlMVjZCcnFFdURpeTBicnVwcUhHSGtZLW1KcFVRUGRVeGo4YjJCTm9HUW5INEQ4WEJoVWd5eEplYWVyREJfbG5PNEFfSDNFeUpwa1pfX0dNVTdwSTV0SVEzQU9sMUIwaVlDZw?oc=5"
+---
+
+Copper extends rebound as global technology stocks resume rally Moneycontrol.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxNTndtZE13V1RMWFdaTU5SQjY1RUc4Z3pJQkFrR1BieDNWdURBUVkyb2JQLU56LTlGc0tYQi1EQnBxZkZnbzhOZFVmcG1sRUU5XzdmVUlYcWtzWlZzTFBOLTNrcXNtaDdZV3pnQXVVR3lGNWJQUkhWaE90d0lnY0RxNWJRVS1aZTUtVFlvc2RZVXVLQUtDWXlCVzcwTXRFQ2JNTDA3bGt1TVBITWVLb0wwaklkVXVWZmx1R2dZa9IBwgFBVV95cUxOcE9ldTNRbVlwOHNvdGZPZ1NxQmx5Y0xSa09xTWF5TEUxZzRQZXVITmExVFNXU0xNeE1JT0pFRWxZdzZKUzlvOUpBY2pIT2g2MlFwTHFZLXFwbC1ZeDNwVnlMVjZCcnFFdURpeTBicnVwcUhHSGtZLW1KcFVRUGRVeGo4YjJCTm9HUW5INEQ4WEJoVWd5eEplYWVyREJfbG5PNEFfSDNFeUpwa1pfX0dNVTdwSTV0SVEzQU9sMUIwaVlDZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Technology must always be subject to ethics: Pope Leo on AI and jobs - India Today"
+date: 2026-11-10 11:40:01 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxNVFdWOUt6anljcGh2ZGxyWlI3YlZJampZb0NuTTZ4TVhFeEtRS2E0RE8wV052WDRJZEJqNHJyTTVXWW5tdGlHYk1kU3d1WUR2ajBXbTNyTGM0eTJheUY4dTZTaXFrQTNQeExKV1FpTTRFalBXV0EtZFpSb1NSRUI0MXI0TmpuRlZBeVRLOTZSQnlPYWt5X2l6M1JsSHpqYzY4NGw4ZjIxR3dhVVg3ek14M19CVjlHNnlUU3RZZHhISUxhN1JoNlZZYXhkcFhOSU3SAdQBQVVfeXFMTWRwSnpTWkNPcGVQY0l2Njg4d1BuRDZ3OWNXX2NYWmNQS2JLbnhscGM2ZlBQS1dGb2J6RnEyU05qaVBOQUJNUE15VnVPc0pqSFBscDRfR3BzZzJZNHhpOTZBWjZSOEhQb21wdjR2eDdIeDI2Q0g0dmNSS1Y1bnplVk83dWJhaURQc3lnX2V3eklpRnQ2MC1OcUpnZENjcmtpdk9vcWw3ejZ6MERKdWJBZ1RoRVpGRGFDRGdaLXMySjlmMHdvemhHR2dRUC15eHJMVzFvdGk?oc=5"
+---
+
+Technology must always be subject to ethics: Pope Leo on AI and jobs India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxNVFdWOUt6anljcGh2ZGxyWlI3YlZJampZb0NuTTZ4TVhFeEtRS2E0RE8wV052WDRJZEJqNHJyTTVXWW5tdGlHYk1kU3d1WUR2ajBXbTNyTGM0eTJheUY4dTZTaXFrQTNQeExKV1FpTTRFalBXV0EtZFpSb1NSRUI0MXI0TmpuRlZBeVRLOTZSQnlPYWt5X2l6M1JsSHpqYzY4NGw4ZjIxR3dhVVg3ek14M19CVjlHNnlUU3RZZHhISUxhN1JoNlZZYXhkcFhOSU3SAdQBQVVfeXFMTWRwSnpTWkNPcGVQY0l2Njg4d1BuRDZ3OWNXX2NYWmNQS2JLbnhscGM2ZlBQS1dGb2J6RnEyU05qaVBOQUJNUE15VnVPc0pqSFBscDRfR3BzZzJZNHhpOTZBWjZSOEhQb21wdjR2eDdIeDI2Q0g0dmNSS1Y1bnplVk83dWJhaURQc3lnX2V3eklpRnQ2MC1OcUpnZENjcmtpdk9vcWw3ejZ6MERKdWJBZ1RoRVpGRGFDRGdaLXMySjlmMHdvemhHR2dRUC15eHJMVzFvdGk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

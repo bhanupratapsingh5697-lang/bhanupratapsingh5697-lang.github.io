@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Will India’s trade deals reach small exporters? Madhya Pradesh’s FTA helpdesk can tell - ThePrint"
+date: 2026-11-10 11:55:54 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxPMHlMQTF1cktxT1BOSmh6Vzl0Y0Q1MGJoYVZoZk1OZ01GdXp5LUxscmJPYllGdHZpTnZYZHFfbHNRODZnZkVubUdSSURveHgxTy0yOFpBdk9pMFBSZzdVdVRUTVpVYjNVQlZIMHFBYUF6Qm1WY0dVb3lHOTd1a055Uks4a2VVOEVpak5FeHhVTzdMOWVhR2NNejZmVDk2UXAtOXpsTTVMam1HVEJfUV95Z0llenFITUhvV3Fzc9IBwgFBVV95cUxPNFRzTWtqczd0aVhlbnVuT21Gc0xucVZULVdCdGZqUzQ0X1ozLWR4WVNfcDNyZTdBaUptTXJ4dzFqQTBuY2JHVEJ3MVZzM3lLeS0xanU0NndJbkppOVNRSjZtS3oyMjhhN0V2ZzFYam8yOUJUX3djVHhTeXkwRXZtVDRQVUZ4Um9yYUZxUG9rU1YwQjFPNVJyVHQzOEQ3UjJTNFczRlF0VUM2cXRNdFJVbGZJVTdGS2RnOTlUbE1pbVVyZw?oc=5"
+---
+
+Will India’s trade deals reach small exporters? Madhya Pradesh’s FTA helpdesk can tell ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxPMHlMQTF1cktxT1BOSmh6Vzl0Y0Q1MGJoYVZoZk1OZ01GdXp5LUxscmJPYllGdHZpTnZYZHFfbHNRODZnZkVubUdSSURveHgxTy0yOFpBdk9pMFBSZzdVdVRUTVpVYjNVQlZIMHFBYUF6Qm1WY0dVb3lHOTd1a055Uks4a2VVOEVpak5FeHhVTzdMOWVhR2NNejZmVDk2UXAtOXpsTTVMam1HVEJfUV95Z0llenFITUhvV3Fzc9IBwgFBVV95cUxPNFRzTWtqczd0aVhlbnVuT21Gc0xucVZULVdCdGZqUzQ0X1ozLWR4WVNfcDNyZTdBaUptTXJ4dzFqQTBuY2JHVEJ3MVZzM3lLeS0xanU0NndJbkppOVNRSjZtS3oyMjhhN0V2ZzFYam8yOUJUX3djVHhTeXkwRXZtVDRQVUZ4Um9yYUZxUG9rU1YwQjFPNVJyVHQzOEQ3UjJTNFczRlF0VUM2cXRNdFJVbGZJVTdGS2RnOTlUbE1pbVVyZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
