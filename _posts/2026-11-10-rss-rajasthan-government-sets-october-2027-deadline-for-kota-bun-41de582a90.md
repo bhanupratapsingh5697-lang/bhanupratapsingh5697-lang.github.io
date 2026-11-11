@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan government sets October 2027 deadline for Kota-Bundi greenfield airport completion - Swarajya"
+date: 2026-11-10 20:31:59 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxNMC1ncXVWQXhDZmdqU0RxSlBoMEN6OEc5T2NUVGNHczV2N1BDSHNfek84Zk9xSl9DeVFyOHEtY1U1aURSQ3NlbmhibmRHTGY2NloyYnRpQnpsLXIyR3ZjcFRQWkhZMzFoOFh0dXItVWxNTkRLMWdhcllEZGlFWno1WXR4amo2cWdQYjYtNU5fcmlfR1FvOExUcUQ0NjA2ODJDSnJTN2g5QTczY2dmSmk2WFlhR3FvdkY2UGJQUXRKTFg1RjFienfSAdYBQVVfeXFMUE9NbUZUcGloSWtWS0pGUGNYMlJpYmJTbVpmeHRFZ3FhM3lUNjJTUmVrNjR3RVMwZVk1OVlTajQwSHptOWg3TFRXQzlTZ2QyRS1mbTRKWWRaT3RPcXRVV0pKQW8xVVd3NkZtQnN3WEN2SjZ3REtLVTJPRGhlbmEteko4MmFlaDZGZ2xyNmk3RzkxakZNdnpFQkUydXc1THRJd0hyVWFjMUdwUllBRDBpUE9LQkdlTUg1NDVPM2ZNUzF1bnhVcmtmSFBRRzEybXNObEZScnM1UQ?oc=5"
+---
+
+Rajasthan government sets October 2027 deadline for Kota-Bundi greenfield airport completion Swarajya
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxNMC1ncXVWQXhDZmdqU0RxSlBoMEN6OEc5T2NUVGNHczV2N1BDSHNfek84Zk9xSl9DeVFyOHEtY1U1aURSQ3NlbmhibmRHTGY2NloyYnRpQnpsLXIyR3ZjcFRQWkhZMzFoOFh0dXItVWxNTkRLMWdhcllEZGlFWno1WXR4amo2cWdQYjYtNU5fcmlfR1FvOExUcUQ0NjA2ODJDSnJTN2g5QTczY2dmSmk2WFlhR3FvdkY2UGJQUXRKTFg1RjFienfSAdYBQVVfeXFMUE9NbUZUcGloSWtWS0pGUGNYMlJpYmJTbVpmeHRFZ3FhM3lUNjJTUmVrNjR3RVMwZVk1OVlTajQwSHptOWg3TFRXQzlTZ2QyRS1mbTRKWWRaT3RPcXRVV0pKQW8xVVd3NkZtQnN3WEN2SjZ3REtLVTJPRGhlbmEteko4MmFlaDZGZ2xyNmk3RzkxakZNdnpFQkUydXc1THRJd0hyVWFjMUdwUllBRDBpUE9LQkdlTUg1NDVPM2ZNUzF1bnhVcmtmSFBRRzEybXNObEZScnM1UQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

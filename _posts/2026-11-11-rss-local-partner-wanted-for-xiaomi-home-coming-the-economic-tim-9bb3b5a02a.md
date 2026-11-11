@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Local partner wanted for Xiaomi ‘home’ coming - The Economic Times"
+date: 2026-11-11 06:00:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxNbjZnZE9jZDdSOUtmX00tZGhEMlV0Wm5fb19nRDVkTTY1RFJJZ1dCaWUyWDRxaS1sOE1Vb3BNYktEampLQ0Z1MUxEQmVIWXdUQUZELVZnVzg0c2JSQlF0Qmt0UGNOYkY2LVJseU5DZ3dMay03TVlUdEc2d2RoNGJBMkJFUjNXOU1MSzZ1VmhUb1ZXTzlvYThoNWZoeTJyNjJNOXU1OGlBUXl3YUNldUcyb0FWb9IBuAFBVV95cUxPRnhWdXV6VkdPWGl3Y3lzZmlLa2d5RGdKSVNfM3pFY0VMQ0dhc2JETFZVazdSd0lzTFBpVHluaTllZHYxOW1vbUdHdUgtWE9zWkdFQkxUem9uR1k1YTR2bXVmNzd2bnh2bmtBTG9YRmkzeWNEeWZTRHVDdm05dDM0T0RNajdrcWx1Z1FMYV9aSGlReWs0cWJ0ZXNaQzI4ejU4SGM2ZGVHYTFSQnA1eXBINW94OExPN0k5?oc=5"
+---
+
+Local partner wanted for Xiaomi ‘home’ coming The Economic Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxNbjZnZE9jZDdSOUtmX00tZGhEMlV0Wm5fb19nRDVkTTY1RFJJZ1dCaWUyWDRxaS1sOE1Vb3BNYktEampLQ0Z1MUxEQmVIWXdUQUZELVZnVzg0c2JSQlF0Qmt0UGNOYkY2LVJseU5DZ3dMay03TVlUdEc2d2RoNGJBMkJFUjNXOU1MSzZ1VmhUb1ZXTzlvYThoNWZoeTJyNjJNOXU1OGlBUXl3YUNldUcyb0FWb9IBuAFBVV95cUxPRnhWdXV6VkdPWGl3Y3lzZmlLa2d5RGdKSVNfM3pFY0VMQ0dhc2JETFZVazdSd0lzTFBpVHluaTllZHYxOW1vbUdHdUgtWE9zWkdFQkxUem9uR1k1YTR2bXVmNzd2bnh2bmtBTG9YRmkzeWNEeWZTRHVDdm05dDM0T0RNajdrcWx1Z1FMYV9aSGlReWs0cWJ0ZXNaQzI4ejU4SGM2ZGVHYTFSQnA1eXBINW94OExPN0k5?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

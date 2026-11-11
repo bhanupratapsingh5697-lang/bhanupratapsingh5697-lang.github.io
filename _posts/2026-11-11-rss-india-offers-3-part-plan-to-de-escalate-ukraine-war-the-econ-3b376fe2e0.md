@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India offers 3-part plan to de-escalate Ukraine war - The Economic Times"
+date: 2026-11-11 00:21:19 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxQVmJLeDNuZUhydjRVTGt2cDdvN3AzRGVHcEFkNDBGenVFUEhWcmJhWlFqbjdqSkV6Rk42MlVKaUYxTlFJSzdIeWZUSUZ4eURfeDNsbW1DQVhBRnA5MUhobVZaVTk3a1BsVElXTS1xR3IyV1lZN1dIR2s5aGcyN005cEhuVktCX1loem4zcFlkdzc5NFVvT2Y2QU0tU1hvRDdDS3V3ZGRBMDRUWml1WHpjLWZIZ1ZreEpMRVHSAb8BQVVfeXFMTkF4cGdwejgxTFExemFBblNQRTdHTldFUWhPWXFON1BDQzVUZ3gydGFIUDF0aGYwcnZVWDVZYnhaYUl5OFpCN2FhbDVoS2o5X3MwV2t3NjdyaVdHRV9oN0U4eGw5OTNsMWxVdmd3OFNpVTJpX1p2TVl2enIxTS1Cazh0WXd5aGlfRXpJN3k5UXpVaTJlaHM4dWJ6dE9lZUZsUlZTLUhDSWJnZzhrZGVuSTM4a1dOU2oxaXZuQm51UEk?oc=5"
+---
+
+India offers 3-part plan to de-escalate Ukraine war The Economic Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxQVmJLeDNuZUhydjRVTGt2cDdvN3AzRGVHcEFkNDBGenVFUEhWcmJhWlFqbjdqSkV6Rk42MlVKaUYxTlFJSzdIeWZUSUZ4eURfeDNsbW1DQVhBRnA5MUhobVZaVTk3a1BsVElXTS1xR3IyV1lZN1dIR2s5aGcyN005cEhuVktCX1loem4zcFlkdzc5NFVvT2Y2QU0tU1hvRDdDS3V3ZGRBMDRUWml1WHpjLWZIZ1ZreEpMRVHSAb8BQVVfeXFMTkF4cGdwejgxTFExemFBblNQRTdHTldFUWhPWXFON1BDQzVUZ3gydGFIUDF0aGYwcnZVWDVZYnhaYUl5OFpCN2FhbDVoS2o5X3MwV2t3NjdyaVdHRV9oN0U4eGw5OTNsMWxVdmd3OFNpVTJpX1p2TVl2enIxTS1Cazh0WXd5aGlfRXpJN3k5UXpVaTJlaHM4dWJ6dE9lZUZsUlZTLUhDSWJnZzhrZGVuSTM4a1dOU2oxaXZuQm51UEk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

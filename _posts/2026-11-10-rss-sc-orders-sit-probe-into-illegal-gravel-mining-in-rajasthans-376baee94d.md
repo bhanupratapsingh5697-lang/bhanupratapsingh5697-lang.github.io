@@ -1,0 +1,17 @@
+---
+layout: post
+title: "SC orders SIT probe into illegal gravel mining in Rajasthans Luni, Jojari and Bandi rivers - The Tribune"
+date: 2026-11-10 16:11:51 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxNN0pvT1dtZEY4TnAyNGhYTFNLRWhDQ2VqSElpcGUtQ2dKUHJGVHdzRzZLNUY0Z09IeE5rbm84aURNcHFQMHhYWWFWM0h4cHRPNHJiSEVMUXBvRUdnZjF2U0Nyd0JQdXV3TkpUeVpkdjY0UkczOTRjMlVzTTM4YVBWelFsUWkwWjhIaDM2NlQ4V1o1TnNiLVI5V0JMUTBRNEFFVVZnVUZQeWNWWmFIZUxZNGZteklIclJsOWx4dWVVV0lpSmFYNmJFMWNfSXRGRTDSAdMBQVVfeXFMTnpsdkJKOHlqeHdMRXM4d2o4ckxmbG40MWtiLU43WEQ1VVVoRnVHZmxMZTl2U19JSmxZWXFseEdYWjRhSjU4dWx2Yng0WWV5M1hvM08zdnc2eW1IUDZkME5iYlBCcGZDU1M3TE1CVzZYRVFJa2VyN0xsWFZkbm1VcVVZR2w2MUIwZUpCWnJ6azFCbWJ5dUhhUEZCUEU3QmZuLUtPY2NnazVfYXRWOHh3Q2VIcFg0WWZVYlRUUmt4Mkt2ZDRUdzRXcld1VTlHQ25tQU94VQ?oc=5"
+---
+
+SC orders SIT probe into illegal gravel mining in Rajasthans Luni, Jojari and Bandi rivers The Tribune
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxNN0pvT1dtZEY4TnAyNGhYTFNLRWhDQ2VqSElpcGUtQ2dKUHJGVHdzRzZLNUY0Z09IeE5rbm84aURNcHFQMHhYWWFWM0h4cHRPNHJiSEVMUXBvRUdnZjF2U0Nyd0JQdXV3TkpUeVpkdjY0UkczOTRjMlVzTTM4YVBWelFsUWkwWjhIaDM2NlQ4V1o1TnNiLVI5V0JMUTBRNEFFVVZnVUZQeWNWWmFIZUxZNGZteklIclJsOWx4dWVVV0lpSmFYNmJFMWNfSXRGRTDSAdMBQVVfeXFMTnpsdkJKOHlqeHdMRXM4d2o4ckxmbG40MWtiLU43WEQ1VVVoRnVHZmxMZTl2U19JSmxZWXFseEdYWjRhSjU4dWx2Yng0WWV5M1hvM08zdnc2eW1IUDZkME5iYlBCcGZDU1M3TE1CVzZYRVFJa2VyN0xsWFZkbm1VcVVZR2w2MUIwZUpCWnJ6azFCbWJ5dUhhUEZCUEU3QmZuLUtPY2NnazVfYXRWOHh3Q2VIcFg0WWZVYlRUUmt4Mkt2ZDRUdzRXcld1VTlHQ25tQU94VQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

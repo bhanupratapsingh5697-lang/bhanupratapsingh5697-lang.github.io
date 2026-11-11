@@ -1,0 +1,17 @@
+---
+layout: post
+title: "The importance of being Sonia Gandhi - India Today"
+date: 2026-11-11 07:00:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxNblVaOC14UzNsU0x3RW4yMVJ1eGM4UjRFak5uWDlGeDhGS3N0UUpHMTFTVG53ZWx6LUI0ZWNEaUtWRmEyV2loUzhfUVBTNVRELXRMb01BbkQzZmhGVkpHcDFqZmpFRVhOXzl2SV9pUE82eFZNUzN0OXhyOTZqaEk5QW1xc2l0dW9zcElzT3JNc1drUWE3LU9aaWtNMlhKcTVMSFZGY3B3OXBLVmgycWM0VzJXeExCZjNEUURDc2J4Y2lYWTZZd0HSAcsBQVVfeXFMTnpaZTRrSWprd2oxdDZNYTc4YjN3Mjlod3BKaTN6VTJaZ09vaEhmM3hNQkdwUXBTVzVmcmQ3Y0FFNlZtNUtlS3EwUjROUlByX1NHblczcnJDVU1ycGdrQV9JUDlKQlFldXJzM3UxT3FLbnR2elBDeWdRTzBaM2RJWFUxc3h6c0ZyZ1ZtanJKLTJJc1FaUUNPRFJyb2FaZFhXRGZMSHVseXdVdTRlSm1HWjlXYWh2NmxzMUh1N0xibUNCSmo0RXVrbHZNN0k?oc=5"
+---
+
+The importance of being Sonia Gandhi India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxNblVaOC14UzNsU0x3RW4yMVJ1eGM4UjRFak5uWDlGeDhGS3N0UUpHMTFTVG53ZWx6LUI0ZWNEaUtWRmEyV2loUzhfUVBTNVRELXRMb01BbkQzZmhGVkpHcDFqZmpFRVhOXzl2SV9pUE82eFZNUzN0OXhyOTZqaEk5QW1xc2l0dW9zcElzT3JNc1drUWE3LU9aaWtNMlhKcTVMSFZGY3B3OXBLVmgycWM0VzJXeExCZjNEUURDc2J4Y2lYWTZZd0HSAcsBQVVfeXFMTnpaZTRrSWprd2oxdDZNYTc4YjN3Mjlod3BKaTN6VTJaZ09vaEhmM3hNQkdwUXBTVzVmcmQ3Y0FFNlZtNUtlS3EwUjROUlByX1NHblczcnJDVU1ycGdrQV9JUDlKQlFldXJzM3UxT3FLbnR2elBDeWdRTzBaM2RJWFUxc3h6c0ZyZ1ZtanJKLTJJc1FaUUNPRFJyb2FaZFhXRGZMSHVseXdVdTRlSm1HWjlXYWh2NmxzMUh1N0xibUNCSmo0RXVrbHZNN0k?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

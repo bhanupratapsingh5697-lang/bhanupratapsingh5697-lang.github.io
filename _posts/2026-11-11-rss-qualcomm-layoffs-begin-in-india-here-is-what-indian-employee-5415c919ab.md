@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Qualcomm layoffs begin in India, here is what Indian employees may get as severance - India Today"
+date: 2026-11-11 10:43:47 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxPLWZTMHlWdVBjNHBKUl8tRU5HRFk4Tlg3UFhaem15VlA2YVNpR0pvWWxVT0Q2c0VpZ09NNnBISnUtMmlaLWxEeUUtdkREM3NQSHBHZi1ONF83eTM0X1hraFpkVlB2NC0yN1dBZmF6SFZncnFMdF8wR3N3T0FsUFlsdW5xYmRBNThzMVgyYUhhck5qb0FscmZqaThaYS1LekR0dzBuOUFiOGJHRFFZazNvcEVFWG05S3FtNThrWVVveXdKOEM5ZUtFdHg1VklxQVF4UmJRWFRENzh3bVHSAeABQVVfeXFMTl9hc0M3MHcybC1iVTNjazBTQWN1T0RNR0hRb3FBRjBHSkt1a2pMcDFBeVNBaHZXYjBkdmdiekRsamhTajJyTXdVQ3l2WGFGcW5oaWNLZUp1ODYyN2gya1R2VkZWeWZiUVMweXZKSHRENTNxaFQ1MnpyQzdIa3pzbWpVa2UzZm1neWVaSUhiSUJQN0lTZzh1VlYtWUl3VTNlNXNVSlJTUHlXaVlHOVdZXzBGbzR5eHJ0eWZ6VlBPZ0ZLWkdVWEdjdXRGaVlHMnFTVG1CZWFjVmRYVzBIaDN6X0o?oc=5"
+---
+
+Qualcomm layoffs begin in India, here is what Indian employees may get as severance India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxPLWZTMHlWdVBjNHBKUl8tRU5HRFk4Tlg3UFhaem15VlA2YVNpR0pvWWxVT0Q2c0VpZ09NNnBISnUtMmlaLWxEeUUtdkREM3NQSHBHZi1ONF83eTM0X1hraFpkVlB2NC0yN1dBZmF6SFZncnFMdF8wR3N3T0FsUFlsdW5xYmRBNThzMVgyYUhhck5qb0FscmZqaThaYS1LekR0dzBuOUFiOGJHRFFZazNvcEVFWG05S3FtNThrWVVveXdKOEM5ZUtFdHg1VklxQVF4UmJRWFRENzh3bVHSAeABQVVfeXFMTl9hc0M3MHcybC1iVTNjazBTQWN1T0RNR0hRb3FBRjBHSkt1a2pMcDFBeVNBaHZXYjBkdmdiekRsamhTajJyTXdVQ3l2WGFGcW5oaWNLZUp1ODYyN2gya1R2VkZWeWZiUVMweXZKSHRENTNxaFQ1MnpyQzdIa3pzbWpVa2UzZm1neWVaSUhiSUJQN0lTZzh1VlYtWUl3VTNlNXNVSlJTUHlXaVlHOVdZXzBGbzR5eHJ0eWZ6VlBPZ0ZLWkdVWEdjdXRGaVlHMnFTVG1CZWFjVmRYVzBIaDN6X0o?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

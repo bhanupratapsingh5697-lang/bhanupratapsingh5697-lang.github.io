@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Ukraine talks begin, India pushes for safe Black Sea, quick end to war - The Indian Express"
+date: 2026-11-10 19:33:54 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxNMWdrclJpWk9aWXRoNl9UdmVHUWNCNjVILTJwOEpZdlhzNmJ3bGlNeGQ5RFREZ1RlZkFIdmRNckJVTU5HekVFQ3AzSUlhSjl3ZmkxdDB4T2luMmpuNXp0Z0NEcnViblkzRXU5am5KU05DRzg0QTNqZzBMek4zVWdLMm5qYlc2SXcyOFRtMEpUN1pGYzYtbnlYMml0b21OVlZMdUNFVDZkSlgxOUtsRFdfZHZDenZxdmJTNG9RRkhJaXUyTW5tWG1tS9IBzwFBVV95cUxPSzVST3FpWk0yUnJlMGp6dDlNeGlEbXVtN3NiOVhOOHRTM0txWDE0ZFNYUk92ZjVyR1Yya01PQXJNSWQ3NnoxNXdtaE13RENkdFRHUDRZcW5NTVYtVDNmcnR1dmlfczNRYUR6U2tOMHN0aFRENk9wZk1FTHV5RmVuWngwZVZoSDVCb211TzNzSFowdldxWDh5RzgwRmxMRlBWVUV3WWxEQmFzNzRXOHJEMTV4cTlUXzN5WmtSVElFYkxGTXBlU0ZSMkx0dDZSbnc?oc=5"
+---
+
+Ukraine talks begin, India pushes for safe Black Sea, quick end to war The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNMWdrclJpWk9aWXRoNl9UdmVHUWNCNjVILTJwOEpZdlhzNmJ3bGlNeGQ5RFREZ1RlZkFIdmRNckJVTU5HekVFQ3AzSUlhSjl3ZmkxdDB4T2luMmpuNXp0Z0NEcnViblkzRXU5am5KU05DRzg0QTNqZzBMek4zVWdLMm5qYlc2SXcyOFRtMEpUN1pGYzYtbnlYMml0b21OVlZMdUNFVDZkSlgxOUtsRFdfZHZDenZxdmJTNG9RRkhJaXUyTW5tWG1tS9IBzwFBVV95cUxPSzVST3FpWk0yUnJlMGp6dDlNeGlEbXVtN3NiOVhOOHRTM0txWDE0ZFNYUk92ZjVyR1Yya01PQXJNSWQ3NnoxNXdtaE13RENkdFRHUDRZcW5NTVYtVDNmcnR1dmlfczNRYUR6U2tOMHN0aFRENk9wZk1FTHV5RmVuWngwZVZoSDVCb211TzNzSFowdldxWDh5RzgwRmxMRlBWVUV3WWxEQmFzNzRXOHJEMTV4cTlUXzN5WmtSVElFYkxGTXBlU0ZSMkx0dDZSbnc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "After Bangladesh rules out passport for Hasina, India says ‘travel document’ needed - The Hindu"
+date: 2026-11-10 22:01:53 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxPeGg1QUFtZlNIZ2NjN0dEREpOSDJMMkw0clZpRHl5TDN6c0R1VEtZeWxldElReUg5ektsUVN2MVdOcXB0dkVOZUVwMlpHOVE0RlRLQkUzaDFYZ1YzeGVOcnUwS3RXNklKOG5XX1JOZTFvZEtSMDlGUUZtLW1ITHhYQUljM2hYTUJWWVFmd3RMSENjZml3UnBzZUJJcmR6ZWFtZklhZW53M1lHRm5DYXZmNkFhbDl0am16TmFveG90LXdLV0t3RXVOb2p5MmREa2FTY3dwSkFB0gHcAUFVX3lxTE56WXVfSkhnYzBGLUtVS1ViWlNFdFVzREVtcTRjWERLdHhsNFVOX0xRNjVVUEJYdTdSeDRuTzFxRk1hckVIQ1BOVk8wMDdSR0pUZTFYanJQSk9jZ1BZOUpfaVFNeXNlQ3lyOHc3NG1YcUhCeC1HMzZfZ2NheTVLall6d3hya09DTlNXNDJTWmxYSTdYZDBfejhVN29mcTZqeFlvcVBzZkRXTDFNS3RELTZBN2NVLTQzZWFNcHRHUG5OMmhZY29xRjB4ZklMZ29CQzJxSnlJdmFtNGhadGk?oc=5"
+---
+
+After Bangladesh rules out passport for Hasina, India says ‘travel document’ needed The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPeGg1QUFtZlNIZ2NjN0dEREpOSDJMMkw0clZpRHl5TDN6c0R1VEtZeWxldElReUg5ektsUVN2MVdOcXB0dkVOZUVwMlpHOVE0RlRLQkUzaDFYZ1YzeGVOcnUwS3RXNklKOG5XX1JOZTFvZEtSMDlGUUZtLW1ITHhYQUljM2hYTUJWWVFmd3RMSENjZml3UnBzZUJJcmR6ZWFtZklhZW53M1lHRm5DYXZmNkFhbDl0am16TmFveG90LXdLV0t3RXVOb2p5MmREa2FTY3dwSkFB0gHcAUFVX3lxTE56WXVfSkhnYzBGLUtVS1ViWlNFdFVzREVtcTRjWERLdHhsNFVOX0xRNjVVUEJYdTdSeDRuTzFxRk1hckVIQ1BOVk8wMDdSR0pUZTFYanJQSk9jZ1BZOUpfaVFNeXNlQ3lyOHc3NG1YcUhCeC1HMzZfZ2NheTVLall6d3hya09DTlNXNDJTWmxYSTdYZDBfejhVN29mcTZqeFlvcVBzZkRXTDFNS3RELTZBN2NVLTQzZWFNcHRHUG5OMmhZY29xRjB4ZklMZ29CQzJxSnlJdmFtNGhadGk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

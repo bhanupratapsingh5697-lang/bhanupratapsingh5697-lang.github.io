@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Qualcomm Layoffs: How Much Severance Will Ex-Employees Get In India? - NDTV"
+date: 2026-11-11 08:14:20 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxNX0NYenJQX3FnWjJzeW9TazJwVHZTVjVBd0FybTdvajJCWGkzWWo5VnJzMmlxVEV3MjdMaUpxZkI5VGpIOGFSc0dPUlQyeU5rYUoxX0E5M2g4QklhRG1Rem9DNno1aXpBNkM1NUtINmszcWMwSlNILWdPdHhxc0swaVJkMUlSQmZncXRhZXFaMmJFQzBMTmhiRUVCWGR2RlVfVGFzM3g5cml3NFd2NkVz0gG3AUFVX3lxTE1nWFhXZXplZ0VRemphUEozXzYtNzFsd0dfRzdTLXEzM2E1WDJLQ21jVE9BRkJhNUFSMDAwZWJWeUloUU5lYUtCbGRUQ1JGdEtVQzZVSTVBaUIyN1JRVFhtak13RzVwNG02aDVEQk90Rkt3UV9GNm1jMkE1OWdDVVJtcWk0RWxYUGFwVUJoVUs2YUZwam40V1pGblZDV0JlRjJJRFZPM3pGbk1FMHozNXV5ZFMtTEpiNA?oc=5"
+---
+
+Qualcomm Layoffs: How Much Severance Will Ex-Employees Get In India? NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxNX0NYenJQX3FnWjJzeW9TazJwVHZTVjVBd0FybTdvajJCWGkzWWo5VnJzMmlxVEV3MjdMaUpxZkI5VGpIOGFSc0dPUlQyeU5rYUoxX0E5M2g4QklhRG1Rem9DNno1aXpBNkM1NUtINmszcWMwSlNILWdPdHhxc0swaVJkMUlSQmZncXRhZXFaMmJFQzBMTmhiRUVCWGR2RlVfVGFzM3g5cml3NFd2NkVz0gG3AUFVX3lxTE1nWFhXZXplZ0VRemphUEozXzYtNzFsd0dfRzdTLXEzM2E1WDJLQ21jVE9BRkJhNUFSMDAwZWJWeUloUU5lYUtCbGRUQ1JGdEtVQzZVSTVBaUIyN1JRVFhtak13RzVwNG02aDVEQk90Rkt3UV9GNm1jMkE1OWdDVVJtcWk0RWxYUGFwVUJoVUs2YUZwam40V1pGblZDV0JlRjJJRFZPM3pGbk1FMHozNXV5ZFMtTEpiNA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
