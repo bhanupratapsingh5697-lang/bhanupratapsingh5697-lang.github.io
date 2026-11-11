@@ -1,0 +1,17 @@
+---
+layout: post
+title: "AI in Indian agriculture: Can technology make farming smarter and easier? - India Today"
+date: 2026-11-11 12:57:56 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxPWVhlWTFvZkJ4elNfOXRwZUNUeFZBVy1FWGFXQ3lodXRRcTFlTEpXZ0JrN3BPWVZ2a09PT0dwTFRpRk5oM3E4VjBWbXpadGc4MmdoRjdrYXQtQjRlWkVCM1dvZHhDM0NmSWJ0S19hUDBqOVR1XzFSSlNlZXpRNmJhQmhxY19sT2hXb3MyNTlzWElCNjJqXzdNaVBka3V5RjZ5TTMyRThlRmNadVRBZmNxZlJXOTVOTzhlR2lOa3ZWVV9meE5oNXhMQzFva1DSAdIBQVVfeXFMTlhMaVFXY3FYLS1GdElCb2RnU1FsMFVYcXRuNy1oMEEwU0lSZ0ozeHNEZ01aTXc1ZGRQTmgyMlQ5d2hiUGY3QS1peF9IbFRPbC1FZGR3NXptcy16RUY2SXZGODdPMEp5Um1MY1dYVlUtUjlBdlM0TFRhM0pTYXdPbTJxUWx1Uk5xYXZ0cFBkV2hYcnZjT094d3ZJUU04ZVB6akhDMVFWWDZjRHBpUlBoVzBBNjNYdmtRQVBXTGFJNVZvbkNoUTNoWW5rMGtwMXBnRGxR?oc=5"
+---
+
+AI in Indian agriculture: Can technology make farming smarter and easier? India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxPWVhlWTFvZkJ4elNfOXRwZUNUeFZBVy1FWGFXQ3lodXRRcTFlTEpXZ0JrN3BPWVZ2a09PT0dwTFRpRk5oM3E4VjBWbXpadGc4MmdoRjdrYXQtQjRlWkVCM1dvZHhDM0NmSWJ0S19hUDBqOVR1XzFSSlNlZXpRNmJhQmhxY19sT2hXb3MyNTlzWElCNjJqXzdNaVBka3V5RjZ5TTMyRThlRmNadVRBZmNxZlJXOTVOTzhlR2lOa3ZWVV9meE5oNXhMQzFva1DSAdIBQVVfeXFMTlhMaVFXY3FYLS1GdElCb2RnU1FsMFVYcXRuNy1oMEEwU0lSZ0ozeHNEZ01aTXc1ZGRQTmgyMlQ5d2hiUGY3QS1peF9IbFRPbC1FZGR3NXptcy16RUY2SXZGODdPMEp5Um1MY1dYVlUtUjlBdlM0TFRhM0pTYXdPbTJxUWx1Uk5xYXZ0cFBkV2hYcnZjT094d3ZJUU04ZVB6akhDMVFWWDZjRHBpUlBoVzBBNjNYdmtRQVBXTGFJNVZvbkNoUTNoWW5rMGtwMXBnRGxR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

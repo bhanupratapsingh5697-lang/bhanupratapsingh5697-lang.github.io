@@ -1,0 +1,17 @@
+---
+layout: post
+title: "In India, economic momentum has outpaced geopolitical gravity. There’s more to be done - The Indian Express"
+date: 2026-11-11 16:54:37 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxQclRCTkVSdnV6bzQwcy1XRGhPVXRmZkdBWGZXRU1aVFAxMHROcDdrMHhuazdRV2ZWUHJ1OG5vUXVTS2o1SXZTdXNqSnpudldqRklrV2F1LVZ4TlBjOENBZy1DRUxCRS1xUmJjTDBOTUd1NWxuWHBGckFvcWszbnR5dTFDeTVuS0pBRWJndTdJcERFMzVSQkxzZlZaLXNNMHhxbmozY3djOUQyNmR1Y3Z6SUZtMnFmMDZncE9QRkhrYUpXbFE1Y3FR0gHOAUFVX3lxTE9WWWRuRWNQMUxKU19KNHVObkViN29HVXp5OFhEWFBlOXM4VnloWENBVzg5NlBQUVhSX3h1VThpWTVMNkNMNnZWNno4NDc0NjdEcDYzRURwWHdENEMydVZ3WUtHaE80SXBERlNBcVdFYVZrbW5vRzNJVnRjUk9ma2llOGJkaWVBSkpvRHd4aEFJVVcwSWZYTXgxczdNdkZvSU5VZE1saDQtLVR1Y0FlWnJTenlHT2R5c25kZnlyNnItNkZEeVRrMnM3NGwwdW9B?oc=5"
+---
+
+In India, economic momentum has outpaced geopolitical gravity. There’s more to be done The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxQclRCTkVSdnV6bzQwcy1XRGhPVXRmZkdBWGZXRU1aVFAxMHROcDdrMHhuazdRV2ZWUHJ1OG5vUXVTS2o1SXZTdXNqSnpudldqRklrV2F1LVZ4TlBjOENBZy1DRUxCRS1xUmJjTDBOTUd1NWxuWHBGckFvcWszbnR5dTFDeTVuS0pBRWJndTdJcERFMzVSQkxzZlZaLXNNMHhxbmozY3djOUQyNmR1Y3Z6SUZtMnFmMDZncE9QRkhrYUpXbFE1Y3FR0gHOAUFVX3lxTE9WWWRuRWNQMUxKU19KNHVObkViN29HVXp5OFhEWFBlOXM4VnloWENBVzg5NlBQUVhSX3h1VThpWTVMNkNMNnZWNno4NDc0NjdEcDYzRURwWHdENEMydVZ3WUtHaE80SXBERlNBcVdFYVZrbW5vRzNJVnRjUk9ma2llOGJkaWVBSkpvRHd4aEFJVVcwSWZYTXgxczdNdkZvSU5VZE1saDQtLVR1Y0FlWnJTenlHT2R5c25kZnlyNnItNkZEeVRrMnM3NGwwdW9B?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

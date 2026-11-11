@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Toxic industrial water from Rajasthan floods Dharuhera - The Tribune"
+date: 2026-11-11 01:45:22 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMingFBVV95cUxOeDRrQkVyYlJVRUVscDlkM2pPaHRSWmU3RnVYZlNkMmRGN194SXQyUFBnSDN1QTdLSXltRG5VcEw0Uy1fT1R3ajI3dnVTQ1JmdFBzVnVFNFAyTXJGMHU3ZG80QXRveGExQjRXZUQ2Um1yWk1OM0dJZERlZnpqRGJHczdTaFF6TjJBTFphcDRTOFNteGtnUjYzbEJOT1RaZ9IBogFBVV95cUxPUHJFS1p0Y19Xc0YyOE1PTHVHLUZBNGpybEx4OUN0NUFfd1hiQ2xsMFBlN2tkQ1Y3ZzdncG8wNzlIWjA0bEw3TWgtTUFpbHJKaWx0cFZkSXlTSkhFZEwzSjNEb1BsYnpnQ1ZKajRMakMwOTBPRFZyRFZYWDhzRjktb2lpTDdxTWRPUFpRTTBzQnhhelFETk5xSjdNNmpaVFZtc2c?oc=5"
+---
+
+Toxic industrial water from Rajasthan floods Dharuhera The Tribune
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMingFBVV95cUxOeDRrQkVyYlJVRUVscDlkM2pPaHRSWmU3RnVYZlNkMmRGN194SXQyUFBnSDN1QTdLSXltRG5VcEw0Uy1fT1R3ajI3dnVTQ1JmdFBzVnVFNFAyTXJGMHU3ZG80QXRveGExQjRXZUQ2Um1yWk1OM0dJZERlZnpqRGJHczdTaFF6TjJBTFphcDRTOFNteGtnUjYzbEJOT1RaZ9IBogFBVV95cUxPUHJFS1p0Y19Xc0YyOE1PTHVHLUZBNGpybEx4OUN0NUFfd1hiQ2xsMFBlN2tkQ1Y3ZzdncG8wNzlIWjA0bEw3TWgtTUFpbHJKaWx0cFZkSXlTSkhFZEwzSjNEb1BsYnpnQ1ZKajRMakMwOTBPRFZyRFZYWDhzRjktb2lpTDdxTWRPUFpRTTBzQnhhelFETk5xSjdNNmpaVFZtc2c?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

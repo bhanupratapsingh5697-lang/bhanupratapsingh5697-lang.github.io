@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Punjab CM Mann dedicates 1,000 model village sports grounds as part of anti-drug initiatives - The New Indian Express"
+date: 2026-11-11 19:50:05 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxQbFRFaGRHMkVfRjBXOVl5NUhJZzBITlhzV21icG9mQ2xQaHItYUVoMDNhOE1NcVdtS3RuakN2Z3d2S05jRFdIX1R4MXpHVFB3SnJ6S2tuTHhSa0tLeWFVdDc1VW9NXzFUSmRrMVR5SHRTby03MnZCbVN5ZFlSQU02NnpjcTAtMU14UzBONWNoWWxxZGcyajdad2ZUalphdzZpajVkMFFhemJPRjI4WDI5d1dYWnhRVmRzemJLLXo4VGxpODlOSjRpdmFJOTAtLW8xVndTUWNFbTU0d9IB5wFBVV95cUxPY0NnenpnWnlRZVctSVBiOWVlemd2YnRVQkM1ZExGN0FhZzhlM19QWXBCZlZxUVk3LXdFOTNsdkQtQ3JCQmtGOEo0amxJanNHQWRyS2lOQ1FEOGJObzdQeEc3V2R2TEQ0WkNKLVg0aW9lQllHUTAzbUMxc1p5TXdEejhNOEhSWk9SaW9zSjlnMVpDTkZQY2pqbzlyVjVrUkxpSUJ2bDBid2ttSFpLZGQ2dThaY1M2anRHSm9heG1WalVTVlFJOHItVi1vVUZYempnS012SEt0TWJoU0R1TFBrYk9iTEJWSEE?oc=5"
+---
+
+Punjab CM Mann dedicates 1,000 model village sports grounds as part of anti-drug initiatives The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQbFRFaGRHMkVfRjBXOVl5NUhJZzBITlhzV21icG9mQ2xQaHItYUVoMDNhOE1NcVdtS3RuakN2Z3d2S05jRFdIX1R4MXpHVFB3SnJ6S2tuTHhSa0tLeWFVdDc1VW9NXzFUSmRrMVR5SHRTby03MnZCbVN5ZFlSQU02NnpjcTAtMU14UzBONWNoWWxxZGcyajdad2ZUalphdzZpajVkMFFhemJPRjI4WDI5d1dYWnhRVmRzemJLLXo4VGxpODlOSjRpdmFJOTAtLW8xVndTUWNFbTU0d9IB5wFBVV95cUxPY0NnenpnWnlRZVctSVBiOWVlemd2YnRVQkM1ZExGN0FhZzhlM19QWXBCZlZxUVk3LXdFOTNsdkQtQ3JCQmtGOEo0amxJanNHQWRyS2lOQ1FEOGJObzdQeEc3V2R2TEQ0WkNKLVg0aW9lQllHUTAzbUMxc1p5TXdEejhNOEhSWk9SaW9zSjlnMVpDTkZQY2pqbzlyVjVrUkxpSUJ2bDBid2ttSFpLZGQ2dThaY1M2anRHSm9heG1WalVTVlFJOHItVi1vVUZYempnS012SEt0TWJoU0R1TFBrYk9iTEJWSEE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

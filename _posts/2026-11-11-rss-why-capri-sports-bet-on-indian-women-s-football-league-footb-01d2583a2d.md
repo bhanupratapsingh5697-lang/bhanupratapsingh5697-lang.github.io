@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Why Capri Sports bet on Indian women’s football league | Football News - Hindustan Times"
+date: 2026-11-11 17:43:01 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxNRFdCTlB0UEtCMkxRdnF4MUhxcXF5bkZiNWFQdDdPNkZMOXp0al9tYW1nLXhsWUZSZVEyT0k4dGx3bU5BYldWNVpiUS1UU3F4M1NFM0tjRnY4REpaaXNVYWZkMVZvT3c1QUZoWmZ2SVEyWmtWZjhoNkRSN2YtdGFSRWJqbjh6amktTDZuOEw2el9ic1ppcVBTdk10Q2pjYVd0elBvYlYwTkd3TVM1aWItSDdjLVl3YzdmWDdEc19NTdIBxAFBVV95cUxPcUFUN0FLdjF6TFdLWUlrb0ltenhMdS1CWTdSc3VwbEJkSW1MM015UE9GUVBHRXRtMVBaY3JaR2N0MDU2YTlpT0E3Yi1oS3d0ellZWF9DTEZXSmQ4eWNwcDAyeGRYcUtRNEFMQ3hyTUdVVW1nM3FuYzlfYllCOGhJZkVsQ1R6Mzh4UldmVFhSdFpHMFFGTE4wc1R0TTg5bWFRd3dqcVEyWUZQSFpHYkVrNWQtakZ4b1JPYVhJeTBydWJPeGpo?oc=5"
+---
+
+Why Capri Sports bet on Indian women’s football league | Football News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxNRFdCTlB0UEtCMkxRdnF4MUhxcXF5bkZiNWFQdDdPNkZMOXp0al9tYW1nLXhsWUZSZVEyT0k4dGx3bU5BYldWNVpiUS1UU3F4M1NFM0tjRnY4REpaaXNVYWZkMVZvT3c1QUZoWmZ2SVEyWmtWZjhoNkRSN2YtdGFSRWJqbjh6amktTDZuOEw2el9ic1ppcVBTdk10Q2pjYVd0elBvYlYwTkd3TVM1aWItSDdjLVl3YzdmWDdEc19NTdIBxAFBVV95cUxPcUFUN0FLdjF6TFdLWUlrb0ltenhMdS1CWTdSc3VwbEJkSW1MM015UE9GUVBHRXRtMVBaY3JaR2N0MDU2YTlpT0E3Yi1oS3d0ellZWF9DTEZXSmQ4eWNwcDAyeGRYcUtRNEFMQ3hyTUdVVW1nM3FuYzlfYllCOGhJZkVsQ1R6Mzh4UldmVFhSdFpHMFFGTE4wc1R0TTg5bWFRd3dqcVEyWUZQSFpHYkVrNWQtakZ4b1JPYVhJeTBydWJPeGpo?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

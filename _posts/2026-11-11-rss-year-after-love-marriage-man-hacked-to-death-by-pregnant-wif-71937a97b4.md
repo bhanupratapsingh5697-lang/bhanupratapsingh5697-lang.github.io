@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Year after love marriage, man hacked to death by pregnant wife’s relatives in Rajasthan’s Sirohi - ThePrint"
+date: 2026-11-11 16:24:25 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxOekpHV3M0czRTNWdJMFRKMDNjNWJEanpkWlhYdGlqUDcyak5KRC13Yy12T0liaW4yTDJhck1jY09iOVN3dnFWUmotYk0zZ2FodmJkelFMZmI4d3lnWFV2N0t5SFMtRTBsX2NOWjd4TmxvZmxnSlhGODBYbFA5akRSbVZOYVp3WEpqb0VCOHNDNnFMdG5MOTZXZDZRX3BEZmxCeldwMVBMYjZoNDkxcmFxNzNfaDRySzA1d2RBdGlEbkx2STdoWlJ30gHMAUFVX3lxTFA2OXRQZ0pMWDRwTVB6LU1oTDBEQ01oczlPd1ZxS3Q5aG9FWHV5OWVpUG9FcnlrcUJ4SjdDNHBsNUxiQllTa3N2bVoyOFRxcERIdnJGdHNWWENJaHVfeTdXOXBONUdVdmdDLXliWno1RmhUaTJvZFk0Vm9idE9JT1djZ2UtWnZqZTBJSHloT0RjVXZSbzJHREk2TWNMTW1lWC1LS0d4NVpPM0lRTG00ZGdwU0E2YjhaeU5aQnE0VGlSUEJIVXJSQzhSNlZEQg?oc=5"
+---
+
+Year after love marriage, man hacked to death by pregnant wife’s relatives in Rajasthan’s Sirohi ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxOekpHV3M0czRTNWdJMFRKMDNjNWJEanpkWlhYdGlqUDcyak5KRC13Yy12T0liaW4yTDJhck1jY09iOVN3dnFWUmotYk0zZ2FodmJkelFMZmI4d3lnWFV2N0t5SFMtRTBsX2NOWjd4TmxvZmxnSlhGODBYbFA5akRSbVZOYVp3WEpqb0VCOHNDNnFMdG5MOTZXZDZRX3BEZmxCeldwMVBMYjZoNDkxcmFxNzNfaDRySzA1d2RBdGlEbkx2STdoWlJ30gHMAUFVX3lxTFA2OXRQZ0pMWDRwTVB6LU1oTDBEQ01oczlPd1ZxS3Q5aG9FWHV5OWVpUG9FcnlrcUJ4SjdDNHBsNUxiQllTa3N2bVoyOFRxcERIdnJGdHNWWENJaHVfeTdXOXBONUdVdmdDLXliWno1RmhUaTJvZFk0Vm9idE9JT1djZ2UtWnZqZTBJSHloT0RjVXZSbzJHREk2TWNMTW1lWC1LS0d4NVpPM0lRTG00ZGdwU0E2YjhaeU5aQnE0VGlSUEJIVXJSQzhSNlZEQg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

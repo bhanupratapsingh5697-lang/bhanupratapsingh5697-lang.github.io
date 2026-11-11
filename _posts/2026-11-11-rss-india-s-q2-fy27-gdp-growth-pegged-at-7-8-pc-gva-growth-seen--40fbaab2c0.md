@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India's Q2 FY27 GDP growth pegged at 7.8 pc, GVA growth seen at 8-8.2 pc: SBI Research - ET Retail"
+date: 2026-11-11 19:34:22 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi5gFBVV95cUxOejZQa2NoNWk5cGlsaFFob0VXSjl2OWZjb0hTUW5DckFtVThLMVFoVTJqcVlLVXNXc2pZX0tna2pJM3ZmODRGemE0X3ZsWmcxUU9EZlVrTXlGd2xucEtZQUpBQ3dEMTVLazZuSlB6N1pjZ3BycV93LTUxN0hVcVFlcl9zazRXZGFaellwVi00NlVHTE5tWXhXSHVKdktPeUFKS2xPZ2NfZElzVjVBeDIxa1Q1MGNwSG94QnRZQXlFb3Z6QllJcEw3ZGtiRTN4NVpCcFF4VndQckpaQktLVUR2VXJFc1EyQdIB6gFBVV95cUxOMm5MSXg2Mlp5cmNMb0FseTJ6LWdjQl92Rmtzc3dDbWtrVThEVXo3ZmRSZHZoeDdodkVDdEtWX2lHWTUxSG9BekZLaXk2bnJZYmVnUkFUN1YyOUJmdDRwR2NpUmZmUURNVlNHdU5vY0RMbEJadVQwVWZLZ3ktdVJ5TEdlTVpIMl83aUhyNy0wZjZXQ2NzZVd4Q0JkZWg4TW5qalBGcV9nOWZ1VVc5QWpybWZhWVdYNXI3bzhpa3RXQWlIM3lzazVZajhBbTlyWEY4bDFCSWJBMDdyZllRRXluZmFpOHE1M3k1MUE?oc=5"
+---
+
+India's Q2 FY27 GDP growth pegged at 7.8 pc, GVA growth seen at 8-8.2 pc: SBI Research ET Retail
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5gFBVV95cUxOejZQa2NoNWk5cGlsaFFob0VXSjl2OWZjb0hTUW5DckFtVThLMVFoVTJqcVlLVXNXc2pZX0tna2pJM3ZmODRGemE0X3ZsWmcxUU9EZlVrTXlGd2xucEtZQUpBQ3dEMTVLazZuSlB6N1pjZ3BycV93LTUxN0hVcVFlcl9zazRXZGFaellwVi00NlVHTE5tWXhXSHVKdktPeUFKS2xPZ2NfZElzVjVBeDIxa1Q1MGNwSG94QnRZQXlFb3Z6QllJcEw3ZGtiRTN4NVpCcFF4VndQckpaQktLVUR2VXJFc1EyQdIB6gFBVV95cUxOMm5MSXg2Mlp5cmNMb0FseTJ6LWdjQl92Rmtzc3dDbWtrVThEVXo3ZmRSZHZoeDdodkVDdEtWX2lHWTUxSG9BekZLaXk2bnJZYmVnUkFUN1YyOUJmdDRwR2NpUmZmUURNVlNHdU5vY0RMbEJadVQwVWZLZ3ktdVJ5TEdlTVpIMl83aUhyNy0wZjZXQ2NzZVd4Q0JkZWg4TW5qalBGcV9nOWZ1VVc5QWpybWZhWVdYNXI3bzhpa3RXQWlIM3lzazVZajhBbTlyWEY4bDFCSWJBMDdyZllRRXluZmFpOHE1M3k1MUE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
