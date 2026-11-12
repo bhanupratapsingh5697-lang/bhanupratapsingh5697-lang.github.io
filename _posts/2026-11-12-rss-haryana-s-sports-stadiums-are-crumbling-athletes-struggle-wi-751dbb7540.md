@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Haryana’s sports stadiums are crumbling. Athletes struggle with broken tracks, rusted poles - ThePrint"
+date: 2026-11-12 10:41:36 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxNN3NySjFDVWlvdF9aQnBUcTZtcUZfdExGNUJ4NkUzU2JqYWRhZG1WTmtiQ1NLRjl6QlNlXzZOWGc5UEJZeHFTNUJabDNMeGhUT1RYOG1pdEx0cUhQbkNFb2t5RzJLQjY4MkFyU0dnclJDdXlTSndWVGhWd1h0UVRoQ1NZMTB1MUZoQ3BBRHgxdFpGM3lZU3B2SzBQNUw4NEFlR1dxTjdBS0xZRDh5dDAxT1VHdFZtMTUyLWlVUndVQVpwWG1oLUIzQkRURGfSAdIBQVVfeXFMT05WeW5NU2hjbXpTeXFTSFJHc0ZKcDJfcnloY1ZFTmdUZ3R1WkxBUHBkZTg4RnVYem9RVjJVMEoyMl80allCZGFKN2xBWWt3azVXa2VLcXU0SnJ5eG9meExzQ29UdmFmZk5ENEJ0MGdtUU9xWFl1YXRURXpsZlVoYUtDaFo4OEhXLW9KTE1aYnkxNk9ZVDM3aFhoUDVZenFBNHFHRTJUd1BEaVg4WE5nQ3RsSWZ4bHdDU2JaXzluYzlLT3I2WkYxcG92LVRwdllyRVNR?oc=5"
+---
+
+Haryana’s sports stadiums are crumbling. Athletes struggle with broken tracks, rusted poles ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxNN3NySjFDVWlvdF9aQnBUcTZtcUZfdExGNUJ4NkUzU2JqYWRhZG1WTmtiQ1NLRjl6QlNlXzZOWGc5UEJZeHFTNUJabDNMeGhUT1RYOG1pdEx0cUhQbkNFb2t5RzJLQjY4MkFyU0dnclJDdXlTSndWVGhWd1h0UVRoQ1NZMTB1MUZoQ3BBRHgxdFpGM3lZU3B2SzBQNUw4NEFlR1dxTjdBS0xZRDh5dDAxT1VHdFZtMTUyLWlVUndVQVpwWG1oLUIzQkRURGfSAdIBQVVfeXFMT05WeW5NU2hjbXpTeXFTSFJHc0ZKcDJfcnloY1ZFTmdUZ3R1WkxBUHBkZTg4RnVYem9RVjJVMEoyMl80allCZGFKN2xBWWt3azVXa2VLcXU0SnJ5eG9meExzQ29UdmFmZk5ENEJ0MGdtUU9xWFl1YXRURXpsZlVoYUtDaFo4OEhXLW9KTE1aYnkxNk9ZVDM3aFhoUDVZenFBNHFHRTJUd1BEaVg4WE5nQ3RsSWZ4bHdDU2JaXzluYzlLT3I2WkYxcG92LVRwdllyRVNR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

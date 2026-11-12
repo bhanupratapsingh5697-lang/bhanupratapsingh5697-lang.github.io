@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Gehlot slams Rajasthan govt over delay in setting up petrochemical industries in petro zone in Barmer - ThePrint"
+date: 2026-11-12 15:21:40 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxPUlBxRDk2c2ticjFKQ3dnRzNwS2FWOHFKZktlYjlPV3N0ejVIZ0d6eVhGd1pyd2Z6VjdRNi1SY1A0VU1objFvYU5nQUItS1VEUDFtX1lvRFBUYWEzTFdGcURyeTl4Z2pHTFRaYV9Fa1p2azZlX2lRRTBEc01ZNHhrVE1QTHhVM3Bxa2lqbzBKUFRadzZFYnBjeG9Dbms3NXJlWVJTcHZONFJSemo5UVc0WVFBVThzQXV5T1VTWTdYcnpFTGVLeWVQemlySHBTNXhLRkHSAdcBQVVfeXFMUGdxRDY2VnRMX1JHTGFlaTBMSkdaRGhNSkxPTTdrSEJGeWdoLTE2RVVwdHVxTHc1VVhXLVVtcGxvRmJkdnQ4TnlGLWJ6SUVsUG1Pem9YazRkeHM5ZmVNd3F4TGc2V0pfdTNZX21iMDZndzNXdkpRbnRSLXlHNWh2bTFwUEtocmtJeTNYakZ6Wk9CNHBHUl9UX2xqN1U0VlJfa1Azd3I4VEtNaWRITm5rYmpnRGZQUk40TFZtNGNZcFVIbjdhaUhkZ2h1dWlQX1BKdWxyR1o3Q1k?oc=5"
+---
+
+Gehlot slams Rajasthan govt over delay in setting up petrochemical industries in petro zone in Barmer ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPUlBxRDk2c2ticjFKQ3dnRzNwS2FWOHFKZktlYjlPV3N0ejVIZ0d6eVhGd1pyd2Z6VjdRNi1SY1A0VU1objFvYU5nQUItS1VEUDFtX1lvRFBUYWEzTFdGcURyeTl4Z2pHTFRaYV9Fa1p2azZlX2lRRTBEc01ZNHhrVE1QTHhVM3Bxa2lqbzBKUFRadzZFYnBjeG9Dbms3NXJlWVJTcHZONFJSemo5UVc0WVFBVThzQXV5T1VTWTdYcnpFTGVLeWVQemlySHBTNXhLRkHSAdcBQVVfeXFMUGdxRDY2VnRMX1JHTGFlaTBMSkdaRGhNSkxPTTdrSEJGeWdoLTE2RVVwdHVxTHc1VVhXLVVtcGxvRmJkdnQ4TnlGLWJ6SUVsUG1Pem9YazRkeHM5ZmVNd3F4TGc2V0pfdTNZX21iMDZndzNXdkpRbnRSLXlHNWh2bTFwUEtocmtJeTNYakZ6Wk9CNHBHUl9UX2xqN1U0VlJfa1Azd3I4VEtNaWRITm5rYmpnRGZQUk40TFZtNGNZcFVIbjdhaUhkZ2h1dWlQX1BKdWxyR1o3Q1k?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

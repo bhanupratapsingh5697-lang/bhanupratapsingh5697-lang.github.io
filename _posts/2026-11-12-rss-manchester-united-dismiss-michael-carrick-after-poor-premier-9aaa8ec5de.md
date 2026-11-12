@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Manchester United dismiss Michael Carrick after poor Premier League run - Rediff"
+date: 2026-11-12 16:23:01 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxQcW9HcUVsdHd2VF9XRlRieWNPek9VV3pnLXlzM0hBY2JzLWd0eVZmVmhVRjg3UGdCWUZBaGprQWRsc05Ta253bEJLeXoyTUFIdGlkdXNpMEphaUU4OFBKbXdvbmtPNXZqeXlwRTItSGRiMll3OGZVdkpLTGY4UDEwVVRzNGRKUHZOM21hVHllWVg0TVZPTE0tb0ZSZXVZSjA4eFZVRzg4d2QtVEtJQndPY2lRVHFXV2NPX2dhaXFwY9IBwgFBVV95cUxNZGVKck82RHlqSERwelNkS3Y4YnNnX3FtVVRGbkd1UE9aTEFkajhYUEdndXhfYTV3VDU5cEpMeFF2TDBwekRMRDY0TmY1TEd6R1gza1dIMVNNd3o2d0h5Q19QQ2ZUOVV2bXZCWFJ3d29tYnY0VmYxZ1lxUU9yVkVLV3BXWEhnM0UzUjYzUGQ2Nnh3VTk2b1M1UEpJTmFiOUEyT2kxaEk5eDFtWlA0T1V1RGktU3ZZY3FrMTYtSEt4VGh3UQ?oc=5"
+---
+
+Manchester United dismiss Michael Carrick after poor Premier League run Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxQcW9HcUVsdHd2VF9XRlRieWNPek9VV3pnLXlzM0hBY2JzLWd0eVZmVmhVRjg3UGdCWUZBaGprQWRsc05Ta253bEJLeXoyTUFIdGlkdXNpMEphaUU4OFBKbXdvbmtPNXZqeXlwRTItSGRiMll3OGZVdkpLTGY4UDEwVVRzNGRKUHZOM21hVHllWVg0TVZPTE0tb0ZSZXVZSjA4eFZVRzg4d2QtVEtJQndPY2lRVHFXV2NPX2dhaXFwY9IBwgFBVV95cUxNZGVKck82RHlqSERwelNkS3Y4YnNnX3FtVVRGbkd1UE9aTEFkajhYUEdndXhfYTV3VDU5cEpMeFF2TDBwekRMRDY0TmY1TEd6R1gza1dIMVNNd3o2d0h5Q19QQ2ZUOVV2bXZCWFJ3d29tYnY0VmYxZ1lxUU9yVkVLV3BXWEhnM0UzUjYzUGQ2Nnh3VTk2b1M1UEpJTmFiOUEyT2kxaEk5eDFtWlA0T1V1RGktU3ZZY3FrMTYtSEt4VGh3UQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

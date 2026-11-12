@@ -1,0 +1,17 @@
+---
+layout: post
+title: "US Fabricating 'Spy' Narratives To Impose Technology Blockade: China - NDTV"
+date: 2026-11-12 14:58:26 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxPVUJZWGhSUXpueHF3NldZbGlib3FhNTBYZV8ySy14X1hqVXd5N1RSZDdxX25QWTdVWjE4OF81MVlZa2cwY1RSWTVKY01oQkMyTlVoVm9IMWNycHVwdkRIWmtQR2ZLRHh1VHhSQ1hTOHZyZDVQRTNHSkdxbzRzeGNycGZsQ25KLXpDbVo0MUFmV2hjOUZVWTllM0pCYzZpTVJJcHJEeHFZTTZBU2ZsMnhUSUJQN1lYSFdLd1VHZEFoSmVXUdIBygFBVV95cUxPVU9UWC1xOXZhS3dwal9hUmVqT1o5WmxwcUpqU2NQQUUyZFpuYUkyNk1vRC1xRWpCRU5QaXBUU1RWSXZXbEVmZ3IwVGdOQzFuSjZvbWZJRksxVExMNzdMdHMzcGdrc3gzRXhac0FPdHE0VExpcUJzX2ZlVERrQlV3anVjUUlwOU9VRmJXR3o0WkZyNzdKSFlxRXE1azUyN1Boa0FEeG10aUM0cndMUlhlMjNZdVh3eFZTbW1rcHRsYmUwUjlSNU1vVmJn?oc=5"
+---
+
+US Fabricating 'Spy' Narratives To Impose Technology Blockade: China NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPVUJZWGhSUXpueHF3NldZbGlib3FhNTBYZV8ySy14X1hqVXd5N1RSZDdxX25QWTdVWjE4OF81MVlZa2cwY1RSWTVKY01oQkMyTlVoVm9IMWNycHVwdkRIWmtQR2ZLRHh1VHhSQ1hTOHZyZDVQRTNHSkdxbzRzeGNycGZsQ25KLXpDbVo0MUFmV2hjOUZVWTllM0pCYzZpTVJJcHJEeHFZTTZBU2ZsMnhUSUJQN1lYSFdLd1VHZEFoSmVXUdIBygFBVV95cUxPVU9UWC1xOXZhS3dwal9hUmVqT1o5WmxwcUpqU2NQQUUyZFpuYUkyNk1vRC1xRWpCRU5QaXBUU1RWSXZXbEVmZ3IwVGdOQzFuSjZvbWZJRksxVExMNzdMdHMzcGdrc3gzRXhac0FPdHE0VExpcUJzX2ZlVERrQlV3anVjUUlwOU9VRmJXR3o0WkZyNzdKSFlxRXE1azUyN1Boa0FEeG10aUM0cndMUlhlMjNZdVh3eFZTbW1rcHRsYmUwUjlSNU1vVmJn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India bypasses own rules to buy Israeli phone-hacking tech - Al Jazeera"
+date: 2026-11-12 14:15:49 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMipwFBVV95cUxOaWhFdTBnZnVwNklFOWd4aEktZnk1dlZnYXIwQ0thbFVuY21oTzZwR3YxMWZ2VzhNdlpPS2dqWWdZMGo3elMweXA3Q2pGdXJlNmp3Y2R1Y0JfR010NXRLMkpnV0xjS25sQmlqSHRuZno1OEJaR25MNmtNc0FGWHAwc3BMdlc2b0tEUm1oOFBqYjZJOE1iZXFsOFBRdUhtSlhxUmZET3cyONIBrAFBVV95cUxNd21LZ0hwUndRWGNaN082VG5XX3piMml3aS1XOWtaNUxiejlhNmxMTXBEc3Zpc1UxYnc1S0xnV2hwMnNERVFOQjh1M09qNkQzSU9EdHhOWHVwZjBGZ2o2bHB5NkQtR3pYTlNvT24zNTA3YVo2akswX251OHVaT3Fpei1fY01GM080cnV5LUNBUnVrMTN4SlFYLXJkNGVhd0tFeU1wVzI4RjVjMG5Y?oc=5"
+---
+
+India bypasses own rules to buy Israeli phone-hacking tech Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipwFBVV95cUxOaWhFdTBnZnVwNklFOWd4aEktZnk1dlZnYXIwQ0thbFVuY21oTzZwR3YxMWZ2VzhNdlpPS2dqWWdZMGo3elMweXA3Q2pGdXJlNmp3Y2R1Y0JfR010NXRLMkpnV0xjS25sQmlqSHRuZno1OEJaR25MNmtNc0FGWHAwc3BMdlc2b0tEUm1oOFBqYjZJOE1iZXFsOFBRdUhtSlhxUmZET3cyONIBrAFBVV95cUxNd21LZ0hwUndRWGNaN082VG5XX3piMml3aS1XOWtaNUxiejlhNmxMTXBEc3Zpc1UxYnc1S0xnV2hwMnNERVFOQjh1M09qNkQzSU9EdHhOWHVwZjBGZ2o2bHB5NkQtR3pYTlNvT24zNTA3YVo2akswX251OHVaT3Fpei1fY01GM080cnV5LUNBUnVrMTN4SlFYLXJkNGVhd0tFeU1wVzI4RjVjMG5Y?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Finland To Restrict Entry To Russian Athletes Ahead of Winter Sports Events - Deccan Chronicle"
+date: 2026-11-12 19:17:17 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxPVGdEUWc3eUgzS1RBUDZWaTZ3eDgteExfaUhyS3VmNkVyR2VKay04QVRUZXFsNzFHdHZDMHlySzBKMmwzOXVGRlY1dkNFbGtnMzFIOEM1RkVjanVOTG96bmNVdVhCU3k3MDVLOU1rbUZuOW0zNkZuYUZCWlppOTFzajZUV1o3VHNnSGVwSjJVNXlZNklLS0c4Wm5RNUxyMnAyN2JMS183YWZkSXpXeGVVaGRQT29QR28yOWZtU09OVdIBxAFBVV95cUxQNGdud1B4WlBfeHB6d3czU1hoUFhrLUZRcXFBc2NoYm1uTUlfaUViNzVUYzV5Sm1VWG5TSElnWUpFMTBaclY1TTlTdmlEOUg1UHNpZjVEbkgyNkdMSmdfcGFLbnNMNlNjenBKSTlWOHRmVWxNTHBfTmhvR0llbzUtYUp0U0FOa0hOUjhMQTAyWUVwZUxkUHBCOTNYejBPc1B5SUVkM0g1MnRFRW9EdHJaOFR1Q2JyMEQ0UHc2ZXhOdURPYjNj?oc=5"
+---
+
+Finland To Restrict Entry To Russian Athletes Ahead of Winter Sports Events Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxPVGdEUWc3eUgzS1RBUDZWaTZ3eDgteExfaUhyS3VmNkVyR2VKay04QVRUZXFsNzFHdHZDMHlySzBKMmwzOXVGRlY1dkNFbGtnMzFIOEM1RkVjanVOTG96bmNVdVhCU3k3MDVLOU1rbUZuOW0zNkZuYUZCWlppOTFzajZUV1o3VHNnSGVwSjJVNXlZNklLS0c4Wm5RNUxyMnAyN2JMS183YWZkSXpXeGVVaGRQT29QR28yOWZtU09OVdIBxAFBVV95cUxQNGdud1B4WlBfeHB6d3czU1hoUFhrLUZRcXFBc2NoYm1uTUlfaUViNzVUYzV5Sm1VWG5TSElnWUpFMTBaclY1TTlTdmlEOUg1UHNpZjVEbkgyNkdMSmdfcGFLbnNMNlNjenBKSTlWOHRmVWxNTHBfTmhvR0llbzUtYUp0U0FOa0hOUjhMQTAyWUVwZUxkUHBCOTNYejBPc1B5SUVkM0g1MnRFRW9EdHJaOFR1Q2JyMEQ0UHc2ZXhOdURPYjNj?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

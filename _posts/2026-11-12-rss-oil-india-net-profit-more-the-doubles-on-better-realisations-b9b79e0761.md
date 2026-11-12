@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Oil India net profit more the doubles on better realisations, higher output - The Hindu"
+date: 2026-11-12 20:04:20 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxQS2JBZUx0ajBPZ2swLTE3MDlTbWZDVWhESmE3RmM5QW85ZWpqZVBCUEMtUW80UmhIU2xnQjBTM2E5a3Jwdnhhdjd1QXB3ZUVWNTlhbmNKczRJaElZaWxHWVAyNjlzb1NidWVUMG9CQ2lsX01PNno2NXNCczlWV0tLZWh0V3Zrc0ZzUmVUclhqNndxWElhUzFIckNjWGY5T1RnQ0dCVkRuTE1UbHBBMWd5U01CTUFxY0cxMUZQYTV4TjY1em1QcTA1dVRmUXUwWHgtS0NZ0gHaAUFVX3lxTFBCSUEtcGZEN0hyMHdJVUFJSElORVRGQzVSd081QVk4ejlrRlJCQm1abDVRSEVzWlVlU3hmY2xYX0ZjdFFaTG9GZElTUWRPWmpuY1dHczJlR3gzc0Q1NG1vZ1FKQmhFaHgzU18zZW1IODkxcnIyeFI0QXNBUFlsRVh1UWhGSDdaMWdXVDVtQmVyZ1VtZUZoNmZ5VXVvZzdRZ0k1MzRFN19OOGFqX1VNaF9DNjdoSmUwYTlEb0poeDlTaThWR2Z2S2p6ZFlQVU85OFlYR1dBN2MzbElR?oc=5"
+---
+
+Oil India net profit more the doubles on better realisations, higher output The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQS2JBZUx0ajBPZ2swLTE3MDlTbWZDVWhESmE3RmM5QW85ZWpqZVBCUEMtUW80UmhIU2xnQjBTM2E5a3Jwdnhhdjd1QXB3ZUVWNTlhbmNKczRJaElZaWxHWVAyNjlzb1NidWVUMG9CQ2lsX01PNno2NXNCczlWV0tLZWh0V3Zrc0ZzUmVUclhqNndxWElhUzFIckNjWGY5T1RnQ0dCVkRuTE1UbHBBMWd5U01CTUFxY0cxMUZQYTV4TjY1em1QcTA1dVRmUXUwWHgtS0NZ0gHaAUFVX3lxTFBCSUEtcGZEN0hyMHdJVUFJSElORVRGQzVSd081QVk4ejlrRlJCQm1abDVRSEVzWlVlU3hmY2xYX0ZjdFFaTG9GZElTUWRPWmpuY1dHczJlR3gzc0Q1NG1vZ1FKQmhFaHgzU18zZW1IODkxcnIyeFI0QXNBUFlsRVh1UWhGSDdaMWdXVDVtQmVyZ1VtZUZoNmZ5VXVvZzdRZ0k1MzRFN19OOGFqX1VNaF9DNjdoSmUwYTlEb0poeDlTaThWR2Z2S2p6ZFlQVU85OFlYR1dBN2MzbElR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

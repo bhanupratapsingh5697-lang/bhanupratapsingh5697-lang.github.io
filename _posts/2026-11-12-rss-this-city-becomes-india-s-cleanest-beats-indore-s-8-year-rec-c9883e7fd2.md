@@ -1,0 +1,17 @@
+---
+layout: post
+title: "This City Becomes India's Cleanest, Beats Indore's 8-Year Record - NDTV"
+date: 2026-11-12 09:24:01 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxPeU5PMXROQ1FibTY2Y0h1MEIyYjhmMWY1YXVxYTI4aFpVajF0OHpvbm9ZOTJkM0lvcTNSS2k2eS1hakhySng2dXlQVlRQRWs5Z2p0dy10M3VIcU5ncGktTHVLcjVzOXctbjVrZEl3UVBYenhsMEdTaG1QeU1zWDJyM2FIS1RqNG5aTW1aSFVQaGRiLUkyblhjYW1jOE5Ia19ZZ0lIUFZEbGFrRXpyVTJqazIwV3RIbEEy0gHAAUFVX3lxTFA4aW1pOXpxblB0ZlhMdmdtZk9lXy1ybXdGVTdtb3BZSll0Vk1SYzh6RmNiRFVBQTgtTXBqRXdselpwcFRZakxiVk5qWU5ZcHByMkNvN3NsRUVMTGxJR3FnOVA3Q29MVF9wZ2wwelJ4cE1WVU5fMUFqaG14WGZnU1hMYzdxM1RQdVJXdmVQTkVYbTd3SHJyVk1WNHp4OGZZOF9mZ1ZGemNWckIyZTlaMFhLU3VLU1EwemJVUS1QbzhxNg?oc=5"
+---
+
+This City Becomes India's Cleanest, Beats Indore's 8-Year Record NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPeU5PMXROQ1FibTY2Y0h1MEIyYjhmMWY1YXVxYTI4aFpVajF0OHpvbm9ZOTJkM0lvcTNSS2k2eS1hakhySng2dXlQVlRQRWs5Z2p0dy10M3VIcU5ncGktTHVLcjVzOXctbjVrZEl3UVBYenhsMEdTaG1QeU1zWDJyM2FIS1RqNG5aTW1aSFVQaGRiLUkyblhjYW1jOE5Ia19ZZ0lIUFZEbGFrRXpyVTJqazIwV3RIbEEy0gHAAUFVX3lxTFA4aW1pOXpxblB0ZlhMdmdtZk9lXy1ybXdGVTdtb3BZSll0Vk1SYzh6RmNiRFVBQTgtTXBqRXdselpwcFRZakxiVk5qWU5ZcHByMkNvN3NsRUVMTGxJR3FnOVA3Q29MVF9wZ2wwelJ4cE1WVU5fMUFqaG14WGZnU1hMYzdxM1RQdVJXdmVQTkVYbTd3SHJyVk1WNHp4OGZZOF9mZ1ZGemNWckIyZTlaMFhLU3VLU1EwemJVUS1QbzhxNg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan HC bars job reservation for candidates from other states - EdexLive"
+date: 2026-11-11 22:25:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMinAFBVV95cUxOVV9FVFE2eDFhUmxwNVdGUHNNeW9XY1E5MWI3M3laLWN3X1hLSTAzbjhLZGpZSTg3TkhMb3NhZmNSaWdiQS1hMjFTSC1DWFliNVl5cS1BbjRHZlJaX0RBQjlvMGV0ZEJvV1FZMGRKbnduUTFuVlR5cGFzS2lEU3BFZEpXcDZrdVU1ZXFOUDU3VExrQkVNeElSZ2xlVXXSAaoBQVVfeXFMTUYxZlJ6NW9DaXZFQ01zWG40UlV1ZF91NlduUzl0dkk0OG9sN2hERXdsNlp2OG1McGFyYUJaNmV6NkplSFFGaTFqNjVUbzB5Qnczc3VWa1NSUS0wVHI0MTVIQ3lvYU5INTlpRllzeGJrQ1Y5X0xaYlIwSGpEOXRPNGt0clktbGp5THQ1X093dzZ2dUhMX3VNaWlBQUpoeEV0UVBHVkdhOXl6UFE?oc=5"
+---
+
+Rajasthan HC bars job reservation for candidates from other states EdexLive
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMinAFBVV95cUxOVV9FVFE2eDFhUmxwNVdGUHNNeW9XY1E5MWI3M3laLWN3X1hLSTAzbjhLZGpZSTg3TkhMb3NhZmNSaWdiQS1hMjFTSC1DWFliNVl5cS1BbjRHZlJaX0RBQjlvMGV0ZEJvV1FZMGRKbnduUTFuVlR5cGFzS2lEU3BFZEpXcDZrdVU1ZXFOUDU3VExrQkVNeElSZ2xlVXXSAaoBQVVfeXFMTUYxZlJ6NW9DaXZFQ01zWG40UlV1ZF91NlduUzl0dkk0OG9sN2hERXdsNlp2OG1McGFyYUJaNmV6NkplSFFGaTFqNjVUbzB5Qnczc3VWa1NSUS0wVHI0MTVIQ3lvYU5INTlpRllzeGJrQ1Y5X0xaYlIwSGpEOXRPNGt0clktbGp5THQ1X093dzZ2dUhMX3VNaWlBQUpoeEV0UVBHVkdhOXl6UFE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

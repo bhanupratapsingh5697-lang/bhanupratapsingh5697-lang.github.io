@@ -1,0 +1,17 @@
+---
+layout: post
+title: "What polluted air adds to India’s rising blood sugar - The Hindu"
+date: 2026-11-12 19:32:39 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxORmVPMTJ5RDlZZzgyTncyVFJoTUZBbUpabDdRbFFYUVBxOXRDVFVURkFnV0lEOGJjbHZuNGVsVmJnQk1LaXpCc05QZmdVdXc0bjRDMHRGN3lmclJTX2VoUWlYMGU3UkZKblZIdmllWEQ1ZTdnc3JtQ0VkNnRERFZzVjVtckkzRzZvOTZIclV5elVaQmNwZV9nNnBRM3J4V054MEVkMzZGbzRETXJtNDY5TDd30gG4AUFVX3lxTE5aQ3JrVUxjcnEwRHlfb0dqZEdjaGF6SHdWTEgzMnpoZGNmOFFnTksyUDE0R3JLWWo3bnZtc190WXZoSGR5SWd5V2NNbXE0SHZjSlRUSWhKWldZSjFmcHoxNURrQkNfZWM1c2prbkw0Z01CbnUyMXI4UWdpM1dGT0JoMmVrSGVPQ1NSWjZPWmpaYXpaakpOaGhDbUdZUlF1WVdMMHgxT3laMzFqVkJoTFR2ZDVBN1g5Uzk?oc=5"
+---
+
+What polluted air adds to India’s rising blood sugar The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxORmVPMTJ5RDlZZzgyTncyVFJoTUZBbUpabDdRbFFYUVBxOXRDVFVURkFnV0lEOGJjbHZuNGVsVmJnQk1LaXpCc05QZmdVdXc0bjRDMHRGN3lmclJTX2VoUWlYMGU3UkZKblZIdmllWEQ1ZTdnc3JtQ0VkNnRERFZzVjVtckkzRzZvOTZIclV5elVaQmNwZV9nNnBRM3J4V054MEVkMzZGbzRETXJtNDY5TDd30gG4AUFVX3lxTE5aQ3JrVUxjcnEwRHlfb0dqZEdjaGF6SHdWTEgzMnpoZGNmOFFnTksyUDE0R3JLWWo3bnZtc190WXZoSGR5SWd5V2NNbXE0SHZjSlRUSWhKWldZSjFmcHoxNURrQkNfZWM1c2prbkw0Z01CbnUyMXI4UWdpM1dGT0JoMmVrSGVPQ1NSWjZPWmpaYXpaakpOaGhDbUdZUlF1WVdMMHgxT3laMzFqVkJoTFR2ZDVBN1g5Uzk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
