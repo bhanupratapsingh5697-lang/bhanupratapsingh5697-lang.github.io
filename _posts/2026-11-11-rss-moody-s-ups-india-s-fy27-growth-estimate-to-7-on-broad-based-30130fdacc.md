@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Moody’s ups India’s FY27 growth estimate to 7% on broad-based momentum - The Hindu"
+date: 2026-11-11 13:40:19 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxPOGFYME5qMnVBWWJ3czlMaGU0Ukt1WERhaEJSRlBpY1ktYUFqYVNVR1BZNXBNRHRReWY5dWtQZmMxRk1CUjFRS25WTDVvTVJudURWUVlINk5fUm5pX1RzbWFENGtxQUg3WFJ0QzdGRE96NjluTlVsN0VlRFU3YWdULUdwT2l2WG5qZzQxM1A5ZGhEbWpWLU9fY0U0b2t5QWFGOVZ2eXpXeDZibDZJZ3ZtbUtlT0FMM0g0UDBnZlVxSHVBNkdaYTRqQdIBzwFBVV95cUxPYmxPUmdvaDFpVHlrM3dPY3FRWXc0ZGxLa2F5SmRKWEt0WllYOEZqVlZZcFh3NUxMai1Ddk5GbkpGaEJCYWlQS25qcGtEUmwzWjNtZEZtMUtWSV8ySTBkWlVjSEtfSFRRWkItQjA2U2N3eU43MExqc00yNnN3aTRrRVlfSFRBcEx0ekgtLXVIa2RmdXFudHZsMDhSRURXVU4zcWhYU1pPU1hSOThlOXFheTlDeWx6UkJER0FhQzJFcWttbnBHWEJlQ25vVGhuaW8?oc=5"
+---
+
+Moody’s ups India’s FY27 growth estimate to 7% on broad-based momentum The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPOGFYME5qMnVBWWJ3czlMaGU0Ukt1WERhaEJSRlBpY1ktYUFqYVNVR1BZNXBNRHRReWY5dWtQZmMxRk1CUjFRS25WTDVvTVJudURWUVlINk5fUm5pX1RzbWFENGtxQUg3WFJ0QzdGRE96NjluTlVsN0VlRFU3YWdULUdwT2l2WG5qZzQxM1A5ZGhEbWpWLU9fY0U0b2t5QWFGOVZ2eXpXeDZibDZJZ3ZtbUtlT0FMM0g0UDBnZlVxSHVBNkdaYTRqQdIBzwFBVV95cUxPYmxPUmdvaDFpVHlrM3dPY3FRWXc0ZGxLa2F5SmRKWEt0WllYOEZqVlZZcFh3NUxMai1Ddk5GbkpGaEJCYWlQS25qcGtEUmwzWjNtZEZtMUtWSV8ySTBkWlVjSEtfSFRRWkItQjA2U2N3eU43MExqc00yNnN3aTRrRVlfSFRBcEx0ekgtLXVIa2RmdXFudHZsMDhSRURXVU4zcWhYU1pPU1hSOThlOXFheTlDeWx6UkJER0FhQzJFcWttbnBHWEJlQ25vVGhuaW8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

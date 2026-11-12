@@ -1,0 +1,17 @@
+---
+layout: post
+title: "BJP, Congress go into 'badabandi' mode to secure Rajasthan panchayat leadership posts - The New Indian Express"
+date: 2026-11-11 21:49:44 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi3AFBVV95cUxPSmhFakpLTU9XYi1CaF96MkJnTm01UVB0am44Y0ZEYTJkUWd0amtpMzBnZGVyUEtLVk1VTV9zOUFrOG5JUHVDUWxsRUNKelVqU25aYnJEOWpWS3kwYlloUWs0ZDVMSkNZNkE0Zi04dGk1Ml83Y3h5LUxJUVhiWmlpZGdxRXhFZmxFZFBPd3VQay14dXpiUU5zTkJoblRLVWw0SW1LLU54VElfbmRSTGFCb2NRZzlCYkpuU1oxckpWazQ2REZSZmNHZjBFSjlrUmVOTHBLdW9zTFptWUhS0gHqAUFVX3lxTE1xRFJ1aThwUWlndlNxWlJPbzg2MEZVNm04aEEyd1ZKS0RtRDNIanFsaHNPQlNyc1pUNi1KaHh5QjJhbTVzWGdFbjhEXzEtV3ZFMHQyQnZ0REs4OXV2T255Zm1ZeDh1ajk2UXNmaGhjZnYyeFh3ekJYdlBqQklRQmRqY3pJVGl6UTFmeVJva0g1M28zTmZLNG1GV0I5SHBoWDFQektnaFlQV2VOV183SUZmSldmMnc0TlJWY0NSWVBJRDhpVE9fVGQ2ZmhJbF80NnRia1l3bVpTaTJBYWFtMm1mVUtZSFFxT20xQQ?oc=5"
+---
+
+BJP, Congress go into 'badabandi' mode to secure Rajasthan panchayat leadership posts The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPSmhFakpLTU9XYi1CaF96MkJnTm01UVB0am44Y0ZEYTJkUWd0amtpMzBnZGVyUEtLVk1VTV9zOUFrOG5JUHVDUWxsRUNKelVqU25aYnJEOWpWS3kwYlloUWs0ZDVMSkNZNkE0Zi04dGk1Ml83Y3h5LUxJUVhiWmlpZGdxRXhFZmxFZFBPd3VQay14dXpiUU5zTkJoblRLVWw0SW1LLU54VElfbmRSTGFCb2NRZzlCYkpuU1oxckpWazQ2REZSZmNHZjBFSjlrUmVOTHBLdW9zTFptWUhS0gHqAUFVX3lxTE1xRFJ1aThwUWlndlNxWlJPbzg2MEZVNm04aEEyd1ZKS0RtRDNIanFsaHNPQlNyc1pUNi1KaHh5QjJhbTVzWGdFbjhEXzEtV3ZFMHQyQnZ0REs4OXV2T255Zm1ZeDh1ajk2UXNmaGhjZnYyeFh3ekJYdlBqQklRQmRqY3pJVGl6UTFmeVJva0g1M28zTmZLNG1GV0I5SHBoWDFQektnaFlQV2VOV183SUZmSldmMnc0TlJWY0NSWVBJRDhpVE9fVGQ2ZmhJbF80NnRia1l3bVpTaTJBYWFtMm1mVUtZSFFxT20xQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

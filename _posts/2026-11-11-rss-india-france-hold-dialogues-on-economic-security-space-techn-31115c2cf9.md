@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India, France hold dialogues on economic security, space, technology - The Hindu"
+date: 2026-11-11 22:15:12 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxPeV9zalpfRjVSTHhRNHZwTUxhMjRQU2FFZkd4MW9QRlhoR3p5WkRMY1JuMUw2RDNoZG1zaU02Y2QxN05jSkZ6SjRUMVVodlF2Z0Q2Q29oUTBWYWtKZlNOeXhYaXdQT2xRc2RTQW8xajJUMkV4dGduVE9JdmF1bnQ0UFVnZzlVdjQtYkdrVXRhalRqcmg0akpLM0NlX0RobnF2ZGllbXZKZm5qeG9zNU45RkwtYlNmck5oRU5kSW9xUDl1UdIByAFBVV95cUxNUXF4V1lGUWxlVTVJaFpreTRhSE81bjdLT0pXTGVaMjZLRlBWT2FaOU5NTXdQRGVBU0RtSFh2eTJiTWo2ZVZhSFptNjkyX3g1bXpFMTlqUTV3YXgxNG81OGJYOEZ2UmJSUW1lT0Y2M1pZcjFnbHV0WjFzd2pFWXNPVVdtUGZWWXJjV3IzV0d0VExkZ1lFZHIyLTZTU0M5TXVYUEFfeEJ3SndXWk9Genl1TWFPc0N3ZDJPc0lhWjM4YlpsUXh0NTV3Tw?oc=5"
+---
+
+India, France hold dialogues on economic security, space, technology The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPeV9zalpfRjVSTHhRNHZwTUxhMjRQU2FFZkd4MW9QRlhoR3p5WkRMY1JuMUw2RDNoZG1zaU02Y2QxN05jSkZ6SjRUMVVodlF2Z0Q2Q29oUTBWYWtKZlNOeXhYaXdQT2xRc2RTQW8xajJUMkV4dGduVE9JdmF1bnQ0UFVnZzlVdjQtYkdrVXRhalRqcmg0akpLM0NlX0RobnF2ZGllbXZKZm5qeG9zNU45RkwtYlNmck5oRU5kSW9xUDl1UdIByAFBVV95cUxNUXF4V1lGUWxlVTVJaFpreTRhSE81bjdLT0pXTGVaMjZLRlBWT2FaOU5NTXdQRGVBU0RtSFh2eTJiTWo2ZVZhSFptNjkyX3g1bXpFMTlqUTV3YXgxNG81OGJYOEZ2UmJSUW1lT0Y2M1pZcjFnbHV0WjFzd2pFWXNPVVdtUGZWWXJjV3IzV0d0VExkZ1lFZHIyLTZTU0M5TXVYUEFfeEJ3SndXWk9Genl1TWFPc0N3ZDJPc0lhWjM4YlpsUXh0NTV3Tw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

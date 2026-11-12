@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India's Q2 GDP growth likely at 7.8%, above RBI estimate of 7.2%: SBI Research - Moneycontrol.com"
+date: 2026-11-11 20:42:56 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxNZkYwMUF4WFYySEgyVUp1NXphandMQ1NYY1c1cEpmY2cyLWhzcVZCaXRZeGRoOU1sWnpHbGY0Ui1YWjJnXzR1UnpIQkxibHJlVG5PMTFxX0l4U1R2bEdFX3RKZi1YS09uSkk2ZE96SGFzYURZRWZHUTNweW5mdXhhWHVVN3lTbDJIbGVpaWxsdUd3aEJBNS1UOEQyQTdTR09GRWJVcGhRMWVGSDF5Z18zc3l0c1o4YVJyaG5kZjdlSjY5bk1rRGlVRlJVV010U2FnM1RUaU5R0gHbAUFVX3lxTE9rdnhXMXlMeUgxSWtacFRGZGk1aXpyYkRHM3NudlVSWGpSRTBBQmwxcmdqZk5zWGQ1dW1oY19ZTmpXT1RKaEVtMWw4aXRkRk1NMVFLRVlNWk8yZm5waHZMYVltY044Tjg5dWxOVDhSblV3cWNFM3VMSGZIczYydDI5TlZGZnhyYWNpdk54YThaX2NPdHNOYmJ4QTYwZWNZbDMyT0xaQmZ1Q2xrSV9iLVNHN3g1a0lDeHE1cVBEU1F5VFFBdEgzaW5TX2ZLUW9ZY3V6TUVvcUl3XzJvRQ?oc=5"
+---
+
+India's Q2 GDP growth likely at 7.8%, above RBI estimate of 7.2%: SBI Research Moneycontrol.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNZkYwMUF4WFYySEgyVUp1NXphandMQ1NYY1c1cEpmY2cyLWhzcVZCaXRZeGRoOU1sWnpHbGY0Ui1YWjJnXzR1UnpIQkxibHJlVG5PMTFxX0l4U1R2bEdFX3RKZi1YS09uSkk2ZE96SGFzYURZRWZHUTNweW5mdXhhWHVVN3lTbDJIbGVpaWxsdUd3aEJBNS1UOEQyQTdTR09GRWJVcGhRMWVGSDF5Z18zc3l0c1o4YVJyaG5kZjdlSjY5bk1rRGlVRlJVV010U2FnM1RUaU5R0gHbAUFVX3lxTE9rdnhXMXlMeUgxSWtacFRGZGk1aXpyYkRHM3NudlVSWGpSRTBBQmwxcmdqZk5zWGQ1dW1oY19ZTmpXT1RKaEVtMWw4aXRkRk1NMVFLRVlNWk8yZm5waHZMYVltY044Tjg5dWxOVDhSblV3cWNFM3VMSGZIczYydDI5TlZGZnhyYWNpdk54YThaX2NPdHNOYmJ4QTYwZWNZbDMyT0xaQmZ1Q2xrSV9iLVNHN3g1a0lDeHE1cVBEU1F5VFFBdEgzaW5TX2ZLUW9ZY3V6TUVvcUl3XzJvRQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

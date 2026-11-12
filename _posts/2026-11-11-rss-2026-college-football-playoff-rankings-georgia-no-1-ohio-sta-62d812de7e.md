@@ -1,0 +1,17 @@
+---
+layout: post
+title: "2026 College Football Playoff Rankings: Georgia No. 1, Ohio State Outside Top 10 - FOX Sports"
+date: 2026-11-11 08:15:08 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYVZZTVQ0dmJ1U0h3V24yZEtNb3hhTGxxWjRLSGpWdHJZZFBPNGI1QVNIMFFTYlJielNjRzBSTGJhdjBxb2RpMDhBMFItNXB1V1QzSXJXbU55Z212VGRpQVlMMmllZmZ2d1VNTFNTaUJxMmRxVVhqTFh3OFdYNmg0NDg0Sk1mRlRoSllnTnVjUFdKYlUyeGVwT0NqUHAzSkpyRXlvYmpoZEhFRl9BeURZREhoaUoyV0JTVGZJ0gG7AUFVX3lxTE5oOFhsWnJzYkZSdVBGUjRObFRJWFNWUnVhMlByWGR4LWtvQkgyMXh0SDk2MGFxV2JpZTRKS1VoV01TVkR5eklCYWdXQVVPd2psOFFNNmJnVlNuNVhSSk1SS3JlUTlZTXpQU2JiaTRTN1Nib1JEVFNDcjF3dU1wOENGN2tFcVpXYkstSmdoMVRmQ3M5TzdZWlFHaVRFMlYwNVZtOWZNMmZHNS1YbnhpaW03MHRnQzhXdXlpbTQ?oc=5"
+---
+
+2026 College Football Playoff Rankings: Georgia No. 1, Ohio State Outside Top 10 FOX Sports
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNYVZZTVQ0dmJ1U0h3V24yZEtNb3hhTGxxWjRLSGpWdHJZZFBPNGI1QVNIMFFTYlJielNjRzBSTGJhdjBxb2RpMDhBMFItNXB1V1QzSXJXbU55Z212VGRpQVlMMmllZmZ2d1VNTFNTaUJxMmRxVVhqTFh3OFdYNmg0NDg0Sk1mRlRoSllnTnVjUFdKYlUyeGVwT0NqUHAzSkpyRXlvYmpoZEhFRl9BeURZREhoaUoyV0JTVGZJ0gG7AUFVX3lxTE5oOFhsWnJzYkZSdVBGUjRObFRJWFNWUnVhMlByWGR4LWtvQkgyMXh0SDk2MGFxV2JpZTRKS1VoV01TVkR5eklCYWdXQVVPd2psOFFNNmJnVlNuNVhSSk1SS3JlUTlZTXpQU2JiaTRTN1Nib1JEVFNDcjF3dU1wOENGN2tFcVpXYkstSmdoMVRmQ3M5TzdZWlFHaVRFMlYwNVZtOWZNMmZHNS1YbnhpaW03MHRnQzhXdXlpbTQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

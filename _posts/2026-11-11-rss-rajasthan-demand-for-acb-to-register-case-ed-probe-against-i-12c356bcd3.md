@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Demand for ACB to register case, ED probe against IAS officer Shikhar Agrawal - ThePrint"
+date: 2026-11-11 15:20:52 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxQeHpCS3R6SW1DUmxZY1hOcUhmZlZtUzB1SFM1Vkt2VUcwSHZLOFlCUGJCa3NLOFBIZEZUenBFdXA4dFprNDFYZUhLQk9OOU1OM1paYjhrV0ZzX0tLcURUaE8yd2doR2JTeUhoMG9KZnlkVzU4VVNzN2hZTURaeG11UkZIV1ZRTjBkNC10VHV3b20xWUlSeEdiMzZRSlJleWN5Q1FoOUJQTFA3NFZQRS01UFdNOTdwaHo0WDBsUUJR0gHDAUFVX3lxTFA4NTl4WlpsclZULTNCd3VRX1o4aWYzZHg0SXZCdWRuS1Z4QkFINmtFeTNmcEMwbjRzNkRBekw5WDJPdTY2Nlp2QVlCRXFBYkY5ZlRZWUJiVnBIclBnam5fQjh5WkJsVy11MzF0UkRpeW5qU1RHeHl4bS0xbnFOV3BOdlhEMllaa1BKU2pfS3BVaVREZjZxS0xIdXlVQnZuejVOQ0haNjBSQnVkYU5oVVU2RFdqYWEtS3Z1R3NHdmIyazdVNA?oc=5"
+---
+
+Rajasthan: Demand for ACB to register case, ED probe against IAS officer Shikhar Agrawal ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxQeHpCS3R6SW1DUmxZY1hOcUhmZlZtUzB1SFM1Vkt2VUcwSHZLOFlCUGJCa3NLOFBIZEZUenBFdXA4dFprNDFYZUhLQk9OOU1OM1paYjhrV0ZzX0tLcURUaE8yd2doR2JTeUhoMG9KZnlkVzU4VVNzN2hZTURaeG11UkZIV1ZRTjBkNC10VHV3b20xWUlSeEdiMzZRSlJleWN5Q1FoOUJQTFA3NFZQRS01UFdNOTdwaHo0WDBsUUJR0gHDAUFVX3lxTFA4NTl4WlpsclZULTNCd3VRX1o4aWYzZHg0SXZCdWRuS1Z4QkFINmtFeTNmcEMwbjRzNkRBekw5WDJPdTY2Nlp2QVlCRXFBYkY5ZlRZWUJiVnBIclBnam5fQjh5WkJsVy11MzF0UkRpeW5qU1RHeHl4bS0xbnFOV3BOdlhEMllaa1BKU2pfS3BVaVREZjZxS0xIdXlVQnZuejVOQ0haNjBSQnVkYU5oVVU2RFdqYWEtS3Z1R3NHdmIyazdVNA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

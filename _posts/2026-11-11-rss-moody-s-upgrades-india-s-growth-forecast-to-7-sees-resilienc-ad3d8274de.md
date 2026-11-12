@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Moody's upgrades India's growth forecast to 7%, sees resilience to global shocks - India Today"
+date: 2026-11-11 16:31:07 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxNZ000am0wWUFMS3k2Vkw0WEtsM1FHUkQyUU5CLXV0a1BSVXB1V1hEVy1iQ3VhbU1aM2N6cElMOFFDUVRCOUtKNUtObGJRWkdLdjJjYVVHcW43aFRNUlI3eTQ2T2dfTWpKanFOSVNFaktDN2RLQWFubU8tdWRhejZ0djBkT0FlZ0FkQXBCWjRHekk2QnRUZUNLWi1qM3VKOXRLQkR5UklTdkYzM3Mxc2NVQXNZaEQ2alNfbjlHQXpULTNtZkZSMnlyckl4bmdYbUZJR0dEeDJUc9IB3AFBVV95cUxPaXpJQVF6NFM5eDlfS2RKVVFQZGRjcF9vdFdUMzNnWjFoRzFPWjBLY0tlSUQwREkydEc5cG1pRGxtdDQxdVhJRnNpRnMtOGRhVFpKbGRGTjl0aVdRM2lfM1A3ZndCQ3RWM3I4N1hCT1J5aXc1WE5HdzhZT0doMW5WZWNvbnFmTklsZGtTeEZkOC1uc3plbGNIbUNaT2diaDhVUERsajhSRkF2NWtKeUxDUFhBNklpRTZnXzEwNUk1M0JXcG9IUEI4UWEyOVVzRWtjdTNuNEpnS2g4Z1BY?oc=5"
+---
+
+Moody's upgrades India's growth forecast to 7%, sees resilience to global shocks India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxNZ000am0wWUFMS3k2Vkw0WEtsM1FHUkQyUU5CLXV0a1BSVXB1V1hEVy1iQ3VhbU1aM2N6cElMOFFDUVRCOUtKNUtObGJRWkdLdjJjYVVHcW43aFRNUlI3eTQ2T2dfTWpKanFOSVNFaktDN2RLQWFubU8tdWRhejZ0djBkT0FlZ0FkQXBCWjRHekk2QnRUZUNLWi1qM3VKOXRLQkR5UklTdkYzM3Mxc2NVQXNZaEQ2alNfbjlHQXpULTNtZkZSMnlyckl4bmdYbUZJR0dEeDJUc9IB3AFBVV95cUxPaXpJQVF6NFM5eDlfS2RKVVFQZGRjcF9vdFdUMzNnWjFoRzFPWjBLY0tlSUQwREkydEc5cG1pRGxtdDQxdVhJRnNpRnMtOGRhVFpKbGRGTjl0aVdRM2lfM1A3ZndCQ3RWM3I4N1hCT1J5aXc1WE5HdzhZT0doMW5WZWNvbnFmTklsZGtTeEZkOC1uc3plbGNIbUNaT2diaDhVUERsajhSRkF2NWtKeUxDUFhBNklpRTZnXzEwNUk1M0JXcG9IUEI4UWEyOVVzRWtjdTNuNEpnS2g4Z1BY?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

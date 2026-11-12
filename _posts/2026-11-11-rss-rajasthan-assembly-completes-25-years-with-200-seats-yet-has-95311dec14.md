@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Assembly Completes 25 Years With 200 Seats, Yet Has Never Witnessed A Full House - Free Press Journal"
+date: 2026-11-11 17:41:56 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxQaDRWOHlFQWgyd0s5NDFxVF8ydHJzSjdvdkpoemRHcThCWDRfaGZKQXUwb0RybUpPNEdkc2E1WlpwUWNIOFNCUmVZNjRhSzNBcDI3MU93c2RaVHdxd0JhZGFWLVNpeEtCQ21GaXdKaDJRYktSc1hUbGdFTnZ5VnBjbng4Nm04ZWhBX01UN1FYYUZWZVFYX2pBQXgzbC1KZ1dvU1FLWGJCZ3g1QVRjbU5QVkFwcGNoZlBPOFFhUklScGI1aG1HY2fSAcsBQVVfeXFMTnh0cTNTUEZRWHJ5aFhSaXBIc1hvR2tGRzhHeFZFcGhPY0RLb25HR2xYaHVvdy1XRkJXYm5reUhPYmJtR0RPa2hwWDVQeXBzV2R3N1hYMFdNbHNhenJZM3RKNVlmZmVIQVQ3V2d2R0lxV2FxX25DTngycmZCM2pxaWhuc0NWemdXSjk0MUNRWFZRQzBKaG8tN0dyaDlsM1VJYXZTRlppV3l4M1dzSUdPcjQ5ZktfajN3cHpPVTBIMkJ3QlBFT29GdUNSQ2M?oc=5"
+---
+
+Rajasthan Assembly Completes 25 Years With 200 Seats, Yet Has Never Witnessed A Full House Free Press Journal
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxQaDRWOHlFQWgyd0s5NDFxVF8ydHJzSjdvdkpoemRHcThCWDRfaGZKQXUwb0RybUpPNEdkc2E1WlpwUWNIOFNCUmVZNjRhSzNBcDI3MU93c2RaVHdxd0JhZGFWLVNpeEtCQ21GaXdKaDJRYktSc1hUbGdFTnZ5VnBjbng4Nm04ZWhBX01UN1FYYUZWZVFYX2pBQXgzbC1KZ1dvU1FLWGJCZ3g1QVRjbU5QVkFwcGNoZlBPOFFhUklScGI1aG1HY2fSAcsBQVVfeXFMTnh0cTNTUEZRWHJ5aFhSaXBIc1hvR2tGRzhHeFZFcGhPY0RLb25HR2xYaHVvdy1XRkJXYm5reUhPYmJtR0RPa2hwWDVQeXBzV2R3N1hYMFdNbHNhenJZM3RKNVlmZmVIQVQ3V2d2R0lxV2FxX25DTngycmZCM2pxaWhuc0NWemdXSjk0MUNRWFZRQzBKaG8tN0dyaDlsM1VJYXZTRlppV3l4M1dzSUdPcjQ5ZktfajN3cHpPVTBIMkJ3QlBFT29GdUNSQ2M?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

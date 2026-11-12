@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Terrorists on bike open fire at CRPF checkpost in J&K's Kulgam, 3 jawans injured - India Today"
+date: 2026-11-11 14:47:19 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxOaUdOakpTbFlNMzJ4ajhYR0dNWU52V1A0RkZJTkFyanR4WUsxWmZBYWRsWkh4NjdReTlRYktzZ2RrN0t5TWFraDcxNlpvZkhXMVk1aWtmNk4xNmowOE5IdTRPUVF0SFRoUURlSDFqaDl4QVRlRHplU3Q0YmFoaFA3RnIteUwxbkIyX2pJdzdQb2VIakNSUEVDT1RFZTdKWFJONElZZVRTeVM4cWliMG83QXJsbVBEUGM3YjJIaWtuUDNMRFNXallqbFM5bXJPbGVZdFNJ0gHYAUFVX3lxTFAxRXlyRm9mdXpYWUxrRTMzTnBlZnI0Z0NNQnAtWEpnT2s5enR3V3VpN2tla0txaG1acDdPRzlDMXY1Y1pHNkdsS2JXc181OFloRUw2NG5rM1BIUU40SDJzV0owekxDd1l0V21yQjFXMl9BakJGbkRVTWZmRFg3TU93eW9CcEU3azV3R0xIMVkzQW1SQTZfYnpRN0lrOGs5MEgzR3J0ellhU3hhR19icE54VVYtZllQZktOWk1kTzI4UjZPUVAyUWV1UXFoSE9fNDVNLVI5VHpXUg?oc=5"
+---
+
+Terrorists on bike open fire at CRPF checkpost in J&K's Kulgam, 3 jawans injured India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOaUdOakpTbFlNMzJ4ajhYR0dNWU52V1A0RkZJTkFyanR4WUsxWmZBYWRsWkh4NjdReTlRYktzZ2RrN0t5TWFraDcxNlpvZkhXMVk1aWtmNk4xNmowOE5IdTRPUVF0SFRoUURlSDFqaDl4QVRlRHplU3Q0YmFoaFA3RnIteUwxbkIyX2pJdzdQb2VIakNSUEVDT1RFZTdKWFJONElZZVRTeVM4cWliMG83QXJsbVBEUGM3YjJIaWtuUDNMRFNXallqbFM5bXJPbGVZdFNJ0gHYAUFVX3lxTFAxRXlyRm9mdXpYWUxrRTMzTnBlZnI0Z0NNQnAtWEpnT2s5enR3V3VpN2tla0txaG1acDdPRzlDMXY1Y1pHNkdsS2JXc181OFloRUw2NG5rM1BIUU40SDJzV0owekxDd1l0V21yQjFXMl9BakJGbkRVTWZmRFg3TU93eW9CcEU3azV3R0xIMVkzQW1SQTZfYnpRN0lrOGs5MEgzR3J0ellhU3hhR19icE54VVYtZllQZktOWk1kTzI4UjZPUVAyUWV1UXFoSE9fNDVNLVI5VHpXUg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

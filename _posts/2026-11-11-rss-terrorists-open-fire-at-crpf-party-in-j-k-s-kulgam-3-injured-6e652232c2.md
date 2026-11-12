@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Terrorists open fire at CRPF party in J&K's Kulgam, 3 injured - The Times of India"
+date: 2026-11-11 14:47:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxPNnZCbm1NbmlkelpUcFRwMUVJMjJtQ29KZ0pRMktkbGI4UHZOSWlibTRhMnZYRHVidjVOWGJRa1V6MVdFRFVDUjU5M0hneGthamZyUzFqRG1mZkZMenR6TzQ1aF9lWndZeDloVnI3U05COGFiRkR5UWdxamNCcXpFT3liUWVnWEZnX0VNM3JRY25qTFo5RFBSbXc0d3YwcVNlNHQ4dERxWVdNR2Uzb3Fmdl8wbG85UlJrT2N2dTlhaEZvdUtzanpndTZWZWVQNS1pLXBxSGN5a9IB3AFBVV95cUxOWWY1U1ZfLXZNZFZuREplTnlLM1JGRUtKWDh6NHRQSjNMYjNvQnl6S2EzeGRNcEh5cXJFQUZWV192NEhJZ05DcW9LZ1FhaDVYSTFEQTJCMldVRHZoN0pQcFQ3YXRic1RoWG04M1p1YUtoZXZDaHYzcjdHRElqek5OQ2hqMGtLSHVDU2txQ2tfOUJVQ1RtN184NUVkUzhMejloblZWWEYxREx1dlB6cm1iX3R1MU9QYTF4VjVLRkl6ZWEzdDFNVVBQNFh6UVQwOVE4WGIySnlMOHN0SDIw?oc=5"
+---
+
+Terrorists open fire at CRPF party in J&K's Kulgam, 3 injured The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxPNnZCbm1NbmlkelpUcFRwMUVJMjJtQ29KZ0pRMktkbGI4UHZOSWlibTRhMnZYRHVidjVOWGJRa1V6MVdFRFVDUjU5M0hneGthamZyUzFqRG1mZkZMenR6TzQ1aF9lWndZeDloVnI3U05COGFiRkR5UWdxamNCcXpFT3liUWVnWEZnX0VNM3JRY25qTFo5RFBSbXc0d3YwcVNlNHQ4dERxWVdNR2Uzb3Fmdl8wbG85UlJrT2N2dTlhaEZvdUtzanpndTZWZWVQNS1pLXBxSGN5a9IB3AFBVV95cUxOWWY1U1ZfLXZNZFZuREplTnlLM1JGRUtKWDh6NHRQSjNMYjNvQnl6S2EzeGRNcEh5cXJFQUZWV192NEhJZ05DcW9LZ1FhaDVYSTFEQTJCMldVRHZoN0pQcFQ3YXRic1RoWG04M1p1YUtoZXZDaHYzcjdHRElqek5OQ2hqMGtLSHVDU2txQ2tfOUJVQ1RtN184NUVkUzhMejloblZWWEYxREx1dlB6cm1iX3R1MU9QYTF4VjVLRkl6ZWEzdDFNVVBQNFh6UVQwOVE4WGIySnlMOHN0SDIw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
