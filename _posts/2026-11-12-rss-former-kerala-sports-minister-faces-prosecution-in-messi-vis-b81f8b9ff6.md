@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Former Kerala Sports Minister Faces Prosecution in Messi Visit Fraud Case - Deccan Chronicle"
+date: 2026-11-12 23:32:24 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxQSlRXSFZSNFBYZTFHSk00djVHT1RfdlloQUQxQVBvQnBaQXVsRW9mcHFXLXA3eFkwOWlReDVhbjZVS0p5T3VPbkVsUFZOVUx5NU1ycEpqTUM1TUswTDZUU1VWTjlBTW1XdExUZFlfOUVTNDRXTGdlYnRvOUtDMFpTY0Y2M0xJZ0RYal9zMjc5Z1pKTV9pdE01ZWpxRTRTOTBYYkRCbERzSUJSZWptVjI0TlNTMXdjMUNQX0k2clg1Z0tob0dqSTJReG5ZTVh5djlJOVHSAdcBQVVfeXFMTnFaZExwX3JhQjZaUHZNU0lPRTFKN0UyNENDUGx5Z1lBeThxRV9MSVZVTU1BRjZXVWRrbVJGQTlySS1SQVJSYVRtU2xGVFlqX0JwV1NlTUt6dlZtNHRLMkVzYzQ5bGdPNXZ1RVQ3TDg1ZVBYTzBGWG5qSnl0WUdyMUtNbk5Odm9XUThOQkRBVUVTR05kNEliRWQ3a3hIWHhvc0VHbFZXaWhvY3lUOUFhYVJCdEc5Q1ExZGZwYkFYMkNZMGxWMUljcVlmTHF2cDVHYUc4bGhVUEk?oc=5"
+---
+
+Former Kerala Sports Minister Faces Prosecution in Messi Visit Fraud Case Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxQSlRXSFZSNFBYZTFHSk00djVHT1RfdlloQUQxQVBvQnBaQXVsRW9mcHFXLXA3eFkwOWlReDVhbjZVS0p5T3VPbkVsUFZOVUx5NU1ycEpqTUM1TUswTDZUU1VWTjlBTW1XdExUZFlfOUVTNDRXTGdlYnRvOUtDMFpTY0Y2M0xJZ0RYal9zMjc5Z1pKTV9pdE01ZWpxRTRTOTBYYkRCbERzSUJSZWptVjI0TlNTMXdjMUNQX0k2clg1Z0tob0dqSTJReG5ZTVh5djlJOVHSAdcBQVVfeXFMTnFaZExwX3JhQjZaUHZNU0lPRTFKN0UyNENDUGx5Z1lBeThxRV9MSVZVTU1BRjZXVWRrbVJGQTlySS1SQVJSYVRtU2xGVFlqX0JwV1NlTUt6dlZtNHRLMkVzYzQ5bGdPNXZ1RVQ3TDg1ZVBYTzBGWG5qSnl0WUdyMUtNbk5Odm9XUThOQkRBVUVTR05kNEliRWQ3a3hIWHhvc0VHbFZXaWhvY3lUOUFhYVJCdEc5Q1ExZGZwYkFYMkNZMGxWMUljcVlmTHF2cDVHYUc4bGhVUEk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

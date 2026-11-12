@@ -1,0 +1,17 @@
+---
+layout: post
+title: "From The Hindu Archive, November 13, 1926: India’s demand for motor cars - The Hindu"
+date: 2026-11-13 03:38:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxPbDJVUm4xcnhuMEpLbkJ1NTBGVXZRMjlpdmdscnU1RlVRSFlZdVNtOWxRRU5IQ0xJc0ZzbExxc1NnU0lNbUNrME91bVlLZmhyVzdpYmhkd2tnSjVCUzJGNzAtQWtyWGliZGJyVGxhb2tIcmtfOUgzQ3hQY1hHUk5YR1UzQmNQOXdJR2g2bklaMWhiM2ZYLVNKOXI2VTAteVR2dUpmQWQ0d3d3WTJHVTQwb0xKTWRrVlktQjR2RlVyc9IBxgFBVV95cUxNaDBKbXhTNXhFRXFYc1h4M1R2NE5oZW8zNGtzWW1haHZKMTBiTGFjSXl6a3g3ZC1JWGRnUFRpYXNmLXlUb2lvN1M3T3h0LWYyNHVrTHdydEJhUXBILTczR3pEM0NiYkx0MFlxNnBuM0J3QXY1RmtEcmEtQzA2VmI3WTdhRzI4a2hzdWxJWlc1RlRQYjZHMGlvZ0lKM3VOXzBaRkd4UkRISkUzTXZZbFhlbS1KdlNxZlJVU0VEUTg5ODMyc0VzN2c?oc=5"
+---
+
+From The Hindu Archive, November 13, 1926: India’s demand for motor cars The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxPbDJVUm4xcnhuMEpLbkJ1NTBGVXZRMjlpdmdscnU1RlVRSFlZdVNtOWxRRU5IQ0xJc0ZzbExxc1NnU0lNbUNrME91bVlLZmhyVzdpYmhkd2tnSjVCUzJGNzAtQWtyWGliZGJyVGxhb2tIcmtfOUgzQ3hQY1hHUk5YR1UzQmNQOXdJR2g2bklaMWhiM2ZYLVNKOXI2VTAteVR2dUpmQWQ0d3d3WTJHVTQwb0xKTWRrVlktQjR2RlVyc9IBxgFBVV95cUxNaDBKbXhTNXhFRXFYc1h4M1R2NE5oZW8zNGtzWW1haHZKMTBiTGFjSXl6a3g3ZC1JWGRnUFRpYXNmLXlUb2lvN1M3T3h0LWYyNHVrTHdydEJhUXBILTczR3pEM0NiYkx0MFlxNnBuM0J3QXY1RmtEcmEtQzA2VmI3WTdhRzI4a2hzdWxJWlc1RlRQYjZHMGlvZ0lKM3VOXzBaRkd4UkRISkUzTXZZbFhlbS1KdlNxZlJVU0VEUTg5ODMyc0VzN2c?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

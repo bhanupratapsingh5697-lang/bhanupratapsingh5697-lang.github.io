@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Vivaan Kapoor wins trap silver, secures India’s LA 2028 Olympic quota - The Hindu"
+date: 2026-11-13 04:14:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxONWVkY2htbmVySmNDeXVxSEJHc0dNZlVJS3JscklYTHhoOWUwQnNMMi1mYnpYa1BwNVNjbFVvNlJhSl9NZTlwS3d4aGJwbjJvUS01bGVuY2xwTFgyM2pzVURkektJd0tzVG5ZSkp3SngzQWx2eUkxSmhoRnpXeGJOSjdyR0ZEMkNEU1NRU3ZjdUpnb0ZIclg5OFc5NXZBWnBPRlNLR1B3M01hZ1lBMXVnQWJaSG1CQTU3aGfSAcABQVVfeXFMTkVteVJlY1A5T3lfOEdWYlJ4X3BqX18zZEk2Y05ueW5taV9nZUZ0RnNrRU5SNlV2c3gtOGJvYm9YaUkwSDY0bUltemR5b1JQN0JpRXpLbXBLNDBJeEpBNGJTYXpEV2QtM0RHQ2NXN0tVNUdFblIzZXZOeldXWkYtLW55VGplOTZiMzk4SUc0WUxIYzZNd3dseVhjRXJTeGFxUVA3RURZODZfTlNZYlZDMzVKQ3R2STQyTnJCZncxQXZ3?oc=5"
+---
+
+Vivaan Kapoor wins trap silver, secures India’s LA 2028 Olympic quota The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxONWVkY2htbmVySmNDeXVxSEJHc0dNZlVJS3JscklYTHhoOWUwQnNMMi1mYnpYa1BwNVNjbFVvNlJhSl9NZTlwS3d4aGJwbjJvUS01bGVuY2xwTFgyM2pzVURkektJd0tzVG5ZSkp3SngzQWx2eUkxSmhoRnpXeGJOSjdyR0ZEMkNEU1NRU3ZjdUpnb0ZIclg5OFc5NXZBWnBPRlNLR1B3M01hZ1lBMXVnQWJaSG1CQTU3aGfSAcABQVVfeXFMTkVteVJlY1A5T3lfOEdWYlJ4X3BqX18zZEk2Y05ueW5taV9nZUZ0RnNrRU5SNlV2c3gtOGJvYm9YaUkwSDY0bUltemR5b1JQN0JpRXpLbXBLNDBJeEpBNGJTYXpEV2QtM0RHQ2NXN0tVNUdFblIzZXZOeldXWkYtLW55VGplOTZiMzk4SUc0WUxIYzZNd3dseVhjRXJTeGFxUVA3RURZODZfTlNZYlZDMzVKQ3R2STQyTnJCZncxQXZ3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

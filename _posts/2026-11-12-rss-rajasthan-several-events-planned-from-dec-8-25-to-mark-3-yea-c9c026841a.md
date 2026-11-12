@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Several events planned from Dec 8-25 to mark 3 years of Sharma govt - ThePrint"
+date: 2026-11-12 22:18:56 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxPSUdsdUNndGF1cUl6ME9aTnJUVjg0YkRGQVFZUUp1dVZENTRlV3VnZEhLSWRFRjBOWktkNjVNblppV05nQVJhY21ZQkV1V1pFOXdqdk5qNDFkOFhPN2prbkZ5Q1ZQMF8zcS1oZkZMVDVNZGNrZS1oTkdhcDJfOWk1MzUzNm5vQmpZdmlBaUtGRmRLbGNxUlc0SEkyMDhETl8tYUJnQ1ZUUHRQY1FfVmNNSGZn0gG3AUFVX3lxTFBOcFlBSDlFQS1VNU53Z0lCLTdhVjVtTkd2OU9yRUZjOXRjRS1WWHhLUjJyR3JOYzFRTG1aWDRrZEhNNlR0eS0wLWFBLURxb1lnUGlWTnB1SHU0SURWdWNMTFdpdnhuM0NEZVFDVXlRREgweHNiQXAxalF5a1I1RWdiaVhlY0tuVFE5dUIwM015R2FnUE5uamRleWIyOV9kR3kxaHdXSmhreUxjU3VuaUUwRGd0RFZpUQ?oc=5"
+---
+
+Rajasthan: Several events planned from Dec 8-25 to mark 3 years of Sharma govt ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxPSUdsdUNndGF1cUl6ME9aTnJUVjg0YkRGQVFZUUp1dVZENTRlV3VnZEhLSWRFRjBOWktkNjVNblppV05nQVJhY21ZQkV1V1pFOXdqdk5qNDFkOFhPN2prbkZ5Q1ZQMF8zcS1oZkZMVDVNZGNrZS1oTkdhcDJfOWk1MzUzNm5vQmpZdmlBaUtGRmRLbGNxUlc0SEkyMDhETl8tYUJnQ1ZUUHRQY1FfVmNNSGZn0gG3AUFVX3lxTFBOcFlBSDlFQS1VNU53Z0lCLTdhVjVtTkd2OU9yRUZjOXRjRS1WWHhLUjJyR3JOYzFRTG1aWDRrZEhNNlR0eS0wLWFBLURxb1lnUGlWTnB1SHU0SURWdWNMTFdpdnhuM0NEZVFDVXlRREgweHNiQXAxalF5a1I1RWdiaVhlY0tuVFE5dUIwM015R2FnUE5uamRleWIyOV9kR3kxaHdXSmhreUxjU3VuaUUwRGd0RFZpUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

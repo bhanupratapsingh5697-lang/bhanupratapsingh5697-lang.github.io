@@ -1,0 +1,17 @@
+---
+layout: post
+title: "U19 Asia Cup: Raichandani’s 93 sees India to final, to face Pakistan in title clash - The Hindu"
+date: 2026-11-13 00:02:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxOY1lBV19tMXE0QWJKckJhd1NnanFwalc5eHF5LTlWZktyNVZsYVhMWUR5b2NZT2E3YXlESkRsZXN0TEZKQnFsN2t2ZG1vXzF3TU5pcldlVklRQ2J1S1FFaUtKaFlHUVdqdTVPZ2NOaUFGNVE1dS14SUMzQzRNNTJEY05TakZTYXhwUzRfYzBKa2MwNnZJNV9hVGEyMm9TVzBDOG9mdEJjZUFyRTd4Q01NWWNLMEtGT1prYmpSTXdtb0psZVFzY0pjSlo3YjhLYktyYVlXLXZR0gHcAUFVX3lxTE9OeFRERXFoOGJDNXZyaDZJb19BYVF5ZDh2aXNyZnVHaW8yUURwWTRudm5GQmFad1VYM1pDR1MxRFlpWmpQTDBmNmVNM2t0cjdqcXVILUNEbUJQV25feHc5Z0ZERTBra3hUTGZiS2h6WjF0cW0zN3N5WTM1YW5QMXJSZ3RxRnpNZDA5ODA1ZUU2d3RNZzNIZG5TdUVud2NNRHFiUDdYU2F1Q1A0UHFzMFVGRndzS19EaDg4MEJIbXZaSXFmZEwxUVlNcXBReTlXOUNOaVNHRTZpLVlzWFY?oc=5"
+---
+
+U19 Asia Cup: Raichandani’s 93 sees India to final, to face Pakistan in title clash The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOY1lBV19tMXE0QWJKckJhd1NnanFwalc5eHF5LTlWZktyNVZsYVhMWUR5b2NZT2E3YXlESkRsZXN0TEZKQnFsN2t2ZG1vXzF3TU5pcldlVklRQ2J1S1FFaUtKaFlHUVdqdTVPZ2NOaUFGNVE1dS14SUMzQzRNNTJEY05TakZTYXhwUzRfYzBKa2MwNnZJNV9hVGEyMm9TVzBDOG9mdEJjZUFyRTd4Q01NWWNLMEtGT1prYmpSTXdtb0psZVFzY0pjSlo3YjhLYktyYVlXLXZR0gHcAUFVX3lxTE9OeFRERXFoOGJDNXZyaDZJb19BYVF5ZDh2aXNyZnVHaW8yUURwWTRudm5GQmFad1VYM1pDR1MxRFlpWmpQTDBmNmVNM2t0cjdqcXVILUNEbUJQV25feHc5Z0ZERTBra3hUTGZiS2h6WjF0cW0zN3N5WTM1YW5QMXJSZ3RxRnpNZDA5ODA1ZUU2d3RNZzNIZG5TdUVud2NNRHFiUDdYU2F1Q1A0UHFzMFVGRndzS19EaDg4MEJIbXZaSXFmZEwxUVlNcXBReTlXOUNOaVNHRTZpLVlzWFY?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

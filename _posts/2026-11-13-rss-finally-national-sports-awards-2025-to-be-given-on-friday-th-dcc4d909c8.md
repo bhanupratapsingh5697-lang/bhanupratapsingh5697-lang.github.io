@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Finally, National Sports Awards 2025 to be given on Friday - The New Indian Express"
+date: 2026-11-13 00:23:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxOSlBHaVdlYUpaLU9tcEFzcmdybm9WRThPR3hoYlRLSGp5R0dXUUF3T2RtUzFzb2laTUlMSnVrcTVYVjI3N2hiN2ZmQW10YUlPbVJfb0hlaElOTDFrQ1ZVaS1BVFJkR0hLNTBXM2NlOFpRY1VUMl82Y0dUdC11RDBEV1Faa1JZX3JBR2Vqbkk3YjNlQ05IV2hMVWE4UTJwYkhEalIzVVluVjhXOG0wQldYdGxpZUFSMkp0X2tVZdIBygFBVV95cUxOVXBwbk02YWhUVlJjVzFKeEtxamZiZnJlZFVhWjdoNjRxN040MlhWOEkwd2VXYllSb0JrN2VfcHRMRUEtaS1LR0JUZDhZMmRXUE5BVzBHdlkxSkp4cDduZVBxcDRTcjB1emZudWtYTzhVQzR2OWl6LXhMU2tUbUlaUHVuY2JPSGpXS01jSkhQMmtLRlJpa1B0RkRGcFE3MnJBdmVmUGlicDk0UEQ2amJmTWc4WGVTc2llUnZJVXJFODNDRU1SS0hmaG53?oc=5"
+---
+
+Finally, National Sports Awards 2025 to be given on Friday The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxOSlBHaVdlYUpaLU9tcEFzcmdybm9WRThPR3hoYlRLSGp5R0dXUUF3T2RtUzFzb2laTUlMSnVrcTVYVjI3N2hiN2ZmQW10YUlPbVJfb0hlaElOTDFrQ1ZVaS1BVFJkR0hLNTBXM2NlOFpRY1VUMl82Y0dUdC11RDBEV1Faa1JZX3JBR2Vqbkk3YjNlQ05IV2hMVWE4UTJwYkhEalIzVVluVjhXOG0wQldYdGxpZUFSMkp0X2tVZdIBygFBVV95cUxOVXBwbk02YWhUVlJjVzFKeEtxamZiZnJlZFVhWjdoNjRxN040MlhWOEkwd2VXYllSb0JrN2VfcHRMRUEtaS1LR0JUZDhZMmRXUE5BVzBHdlkxSkp4cDduZVBxcDRTcjB1emZudWtYTzhVQzR2OWl6LXhMU2tUbUlaUHVuY2JPSGpXS01jSkhQMmtLRlJpa1B0RkRGcFE3MnJBdmVmUGlicDk0UEQ2amJmTWc4WGVTc2llUnZJVXJFODNDRU1SS0hmaG53?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

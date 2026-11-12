@@ -1,0 +1,17 @@
+---
+layout: post
+title: "The SIR exercise is also a technology failure - The Hindu"
+date: 2026-11-13 02:28:14 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMipgFBVV95cUxQZU5uSmtwTy1tblI4RXY5cHNfV3ZnVDhfZ3NmRTlwZ202MWR2UmxwV2ptd3hKRDRVMjB5Nm9qdVVhek5Fa1BGQkMyVngzRGlMZmJKbjJ0RFlveUExa3EzSjROeDJVNUpjLTFLaUk1RnNPTWY4UExuWkpEZGUzVF8yMXVhcFltMlJPdUxmS1U5S0VpUjBMLW5EaDJ2SGFZTWMzTFktU0lR0gGsAUFVX3lxTFBUeTR2LXFqclNKeENKOU1EX3RjUG1CRnlCQ212Zk9IbGZXb1c4cTQzM2xZejdhYVdXa2lzT0twNUdGU05uNVhxOFUzN3VlOF9kWDE5WVBkYm50MEpCel9jRzd6dVJZMk95aFV0Z01IRDA4ZXcwNVpQLVhCZExoNW5WVkhramZSVW5xOUhJY3gzVUhTQXYyNGxqSXlEOXlaM0dLSGYyRFNqS1BQOGE?oc=5"
+---
+
+The SIR exercise is also a technology failure The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipgFBVV95cUxQZU5uSmtwTy1tblI4RXY5cHNfV3ZnVDhfZ3NmRTlwZ202MWR2UmxwV2ptd3hKRDRVMjB5Nm9qdVVhek5Fa1BGQkMyVngzRGlMZmJKbjJ0RFlveUExa3EzSjROeDJVNUpjLTFLaUk1RnNPTWY4UExuWkpEZGUzVF8yMXVhcFltMlJPdUxmS1U5S0VpUjBMLW5EaDJ2SGFZTWMzTFktU0lR0gGsAUFVX3lxTFBUeTR2LXFqclNKeENKOU1EX3RjUG1CRnlCQ212Zk9IbGZXb1c4cTQzM2xZejdhYVdXa2lzT0twNUdGU05uNVhxOFUzN3VlOF9kWDE5WVBkYm50MEpCel9jRzd6dVJZMk95aFV0Z01IRDA4ZXcwNVpQLVhCZExoNW5WVkhramZSVW5xOUhJY3gzVUhTQXYyNGxqSXlEOXlaM0dLSGYyRFNqS1BQOGE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

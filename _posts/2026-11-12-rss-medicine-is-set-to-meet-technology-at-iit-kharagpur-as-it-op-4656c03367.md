@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Medicine is set to meet technology at IIT Kharagpur as it opens doors for MD course - The New Indian Express"
+date: 2026-11-12 22:26:02 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxOc0lUOExINGVQXzc0UFRHOFprMFkyazN4U01qTHVRUlBZaHlvN1FoZlJqakpJS0tnT05neGtXM0p3V3AwMjJwc0JRT0FPR0lXaEExSU9DTU02eEF6cVhfVl9STk5sUE56RDRBTzZhOUxxZG0wVWU2TEJEb2xtT3picGZGRm5COTQxNlRnY1BZOWo0V2w4d2JJbmlwSDVjX1lHQmtPazFVU3FsRXVhak5WSy1EQjhFaEN0NlVrcDhZV1lBN0pVSUpQQ2hlMHJiS1XSAdwBQVVfeXFMTkpZellReG5ZT3Y2SE5ReWYxckcySktLQXRtd0JGRzBlWlNuTm9rRjlLbHpJeTByYXd5Y2N2TzVGZnJvM1ZlV1J6VlRiYTQtSE5Xa3lYdUtLWjdFTk5TVTJuc1E2WXRMZkZzMnFPZkswaXFLd2xzelhQT2I3NGljT3VkTUpZY2l1NG92WlR6T09DRzJpbFM4T2ViTURyOExnY1JJY3l3Nl9GX1NZR0dHa2VRSlhEd0MwcWp4RnBOeTZyUjRPQjVwZjZucWdQWGwxWXNEVE1CREpabk5zRQ?oc=5"
+---
+
+Medicine is set to meet technology at IIT Kharagpur as it opens doors for MD course The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxOc0lUOExINGVQXzc0UFRHOFprMFkyazN4U01qTHVRUlBZaHlvN1FoZlJqakpJS0tnT05neGtXM0p3V3AwMjJwc0JRT0FPR0lXaEExSU9DTU02eEF6cVhfVl9STk5sUE56RDRBTzZhOUxxZG0wVWU2TEJEb2xtT3picGZGRm5COTQxNlRnY1BZOWo0V2w4d2JJbmlwSDVjX1lHQmtPazFVU3FsRXVhak5WSy1EQjhFaEN0NlVrcDhZV1lBN0pVSUpQQ2hlMHJiS1XSAdwBQVVfeXFMTkpZellReG5ZT3Y2SE5ReWYxckcySktLQXRtd0JGRzBlWlNuTm9rRjlLbHpJeTByYXd5Y2N2TzVGZnJvM1ZlV1J6VlRiYTQtSE5Xa3lYdUtLWjdFTk5TVTJuc1E2WXRMZkZzMnFPZkswaXFLd2xzelhQT2I3NGljT3VkTUpZY2l1NG92WlR6T09DRzJpbFM4T2ViTURyOExnY1JJY3l3Nl9GX1NZR0dHa2VRSlhEd0MwcWp4RnBOeTZyUjRPQjVwZjZucWdQWGwxWXNEVE1CREpabk5zRQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
