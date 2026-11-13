@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India U-19 vs Pakistan U-19: What happened the last time the two sides faced each other? - Sportstar"
+date: 2026-11-13 21:17:01 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxNaEV2blFHSEZjQ21TbVQ4STYxRzBOc3hOVUNuUXBvdFF2Z1lWSndaOHRHZ292Z1BnU3laMmtMRFpjYk1EekxaX01XcHVlSjkzRG12U0pZVThJbUJ5RUtMRkx2NDBQNjljYk85MEk3Mi1QZW1nS0tPbFZzMUs5akMzS1JXUU5CdGFfSEhoN1RHSktaSF9JM094cV9fcjJKXzh0QkliaDRNUlBwN0xQdmprbW9vbjVRMTFUTWExSHc3dzQtWVpDcHfSAcwBQVVfeXFMUDJXMGtfdTZkZ0FBVk54OHQ1dFpEb0JjeVFYNkh3T3B1RFhJZEw2QUVDMzFCb1JwM3V2b0VIbDZlT2dVX0dscy1PMmNqcFhkOHhjMDE2cUdpSnVlLUtmQUtMYmU5RXR3R1ZoaXhwYUZaeHBoRDRhQnV2OFV1S2tlM1JTOVJfdGJmcXBzV0pjTW4xellUWmV1RVFJNUpzcXBkd0JuemFvNXB1TFFBc21ydUs0QVB1VUYwUWQ2SGhJQTJpTjhZUHZHMlBCTktl?oc=5"
+---
+
+India U-19 vs Pakistan U-19: What happened the last time the two sides faced each other? Sportstar
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxNaEV2blFHSEZjQ21TbVQ4STYxRzBOc3hOVUNuUXBvdFF2Z1lWSndaOHRHZ292Z1BnU3laMmtMRFpjYk1EekxaX01XcHVlSjkzRG12U0pZVThJbUJ5RUtMRkx2NDBQNjljYk85MEk3Mi1QZW1nS0tPbFZzMUs5akMzS1JXUU5CdGFfSEhoN1RHSktaSF9JM094cV9fcjJKXzh0QkliaDRNUlBwN0xQdmprbW9vbjVRMTFUTWExSHc3dzQtWVpDcHfSAcwBQVVfeXFMUDJXMGtfdTZkZ0FBVk54OHQ1dFpEb0JjeVFYNkh3T3B1RFhJZEw2QUVDMzFCb1JwM3V2b0VIbDZlT2dVX0dscy1PMmNqcFhkOHhjMDE2cUdpSnVlLUtmQUtMYmU5RXR3R1ZoaXhwYUZaeHBoRDRhQnV2OFV1S2tlM1JTOVJfdGJmcXBzV0pjTW4xellUWmV1RVFJNUpzcXBkd0JuemFvNXB1TFFBc21ydUs0QVB1VUYwUWQ2SGhJQTJpTjhZUHZHMlBCTktl?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "1st-year MBBS students accuse seniors of sexual abuse, ragging at govt college in Rajasthan | Some students were threatened with 'batch out' | Inshorts - Inshorts"
+date: 2026-11-13 16:54:28 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxOVC1WNmpQOG45WE1wZUU4RXcxQ0FyWnZkOFkyYVRqNllfdmVHUDNWWjE2X1JVTHc5eGpOVjdvRWlVSUpQc3VkNEhmM2tfbGJITTE3cENEREtrZWVPaVFTNXFReWNseDN4NV9GblFhQ1dlTXB6SmZFRGxJWldlb2pzdkt5aEpDRTRrVkpydGpwckRHVURaUEpwN1R1UUhSY2dqb1lJX3dpTlgtWjM1ZWlldk9jM013cU9oc3EyQno0SnNmZnZiTnRLWUpfeXNKNzTSAdQBQVVfeXFMT2l6dlpnTG85cFdUMWRuM2c0YXUwcXRoRGl3T2hhMHM2WUl3QUhaMFQwRHZzMWJWUC0wem1NQkUwbFFVQW55UmE0LVlCRVdQV1A3SlRHN1RqcF9zdHJBT2liVGl5a1FuWjhnQlJvS3cyNGg0anpyODRjMGM1dFZTSm9oajU1OS1QT205eVdSM3llSXY1MF9SdE1PMHpwcHJ4V19VSl9WMk5MWmJldE5od0lqNzIxa2xweWo4S3dvRFJ5cW43SWNpTjBmUWVIRWRvVVVEOXI?oc=5"
+---
+
+1st-year MBBS students accuse seniors of sexual abuse, ragging at govt college in Rajasthan | Some students were threatened with 'batch out' | Inshorts Inshorts
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxOVC1WNmpQOG45WE1wZUU4RXcxQ0FyWnZkOFkyYVRqNllfdmVHUDNWWjE2X1JVTHc5eGpOVjdvRWlVSUpQc3VkNEhmM2tfbGJITTE3cENEREtrZWVPaVFTNXFReWNseDN4NV9GblFhQ1dlTXB6SmZFRGxJWldlb2pzdkt5aEpDRTRrVkpydGpwckRHVURaUEpwN1R1UUhSY2dqb1lJX3dpTlgtWjM1ZWlldk9jM013cU9oc3EyQno0SnNmZnZiTnRLWUpfeXNKNzTSAdQBQVVfeXFMT2l6dlpnTG85cFdUMWRuM2c0YXUwcXRoRGl3T2hhMHM2WUl3QUhaMFQwRHZzMWJWUC0wem1NQkUwbFFVQW55UmE0LVlCRVdQV1A3SlRHN1RqcF9zdHJBT2liVGl5a1FuWjhnQlJvS3cyNGg0anpyODRjMGM1dFZTSm9oajU1OS1QT205eVdSM3llSXY1MF9SdE1PMHpwcHJ4V19VSl9WMk5MWmJldE5od0lqNzIxa2xweWo4S3dvRFJ5cW43SWNpTjBmUWVIRWRvVVVEOXI?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

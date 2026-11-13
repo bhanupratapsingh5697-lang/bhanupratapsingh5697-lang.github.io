@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Special Summary Revision draft roll records 5.26 crore voters in Rajasthan - ThePrint"
+date: 2026-11-13 15:19:29 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxNaEVhbXNLZWtUMVhFSk5KNWVYYjlnZmxlSVlON3NJS3d1ZEgyaEtTekptRmNXbWZTYXVWLXlHcVY1RWVWY2lMXzNCdmRjeXd4RldxYUowNHhLaFVFYWFvNm9mT2l1a1h4QmJ4RjhRTEw2QXgzdVN5bk95LV9yTkxTelczZWxQeFV5dnI2RW1DamdCNUVSNTNnNEJwak1iU0RUeU8zRFV6TDVmUjBmR1HSAbMBQVVfeXFMUHhvRl9nbGlxa2cyUDNyWUtsTEVZQWdHT2pYZ3Z3Vl9nRlBqQWNyb2VyZnVfbXlkUnRyVkkxVW5scEdWaGxLZjEzNFQ0MV9qaWhMaWtLejhaNTNRbnRMdGE0R0lIZ29QVnFsV1NGcEc4QUZOOE9wWFlRZElpejZTYTdVT0dBYThMcEpwc2YxREhjMVloVFljWjNFaGF0UVg5Q1U0Qk12R3lJdXR1bkF5TXJZdlE?oc=5"
+---
+
+Special Summary Revision draft roll records 5.26 crore voters in Rajasthan ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxNaEVhbXNLZWtUMVhFSk5KNWVYYjlnZmxlSVlON3NJS3d1ZEgyaEtTekptRmNXbWZTYXVWLXlHcVY1RWVWY2lMXzNCdmRjeXd4RldxYUowNHhLaFVFYWFvNm9mT2l1a1h4QmJ4RjhRTEw2QXgzdVN5bk95LV9yTkxTelczZWxQeFV5dnI2RW1DamdCNUVSNTNnNEJwak1iU0RUeU8zRFV6TDVmUjBmR1HSAbMBQVVfeXFMUHhvRl9nbGlxa2cyUDNyWUtsTEVZQWdHT2pYZ3Z3Vl9nRlBqQWNyb2VyZnVfbXlkUnRyVkkxVW5scEdWaGxLZjEzNFQ0MV9qaWhMaWtLejhaNTNRbnRMdGE0R0lIZ29QVnFsV1NGcEc4QUZOOE9wWFlRZElpejZTYTdVT0dBYThMcEpwc2YxREhjMVloVFljWjNFaGF0UVg5Q1U0Qk12R3lJdXR1bkF5TXJZdlE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

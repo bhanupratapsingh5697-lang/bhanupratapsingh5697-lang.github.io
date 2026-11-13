@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan SSR draft counts 11 lakh more voters than SIR list - The Times of India"
+date: 2026-11-13 03:21:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxORVhoZzQxY0hPd0FDRlkzOVc5b3drblZqQ255SmltcW8wZERHcExrdGJwTTdfWldFQnBqVlFlUWZLXzBfWm1yVGNCdWJNcHY3a1BmQlM4N2IyMnM0ZGVwRUFnYV82SUdFcWhkdmVrR2lxVW1kam9UT3FZRjJvbkZFc09fZE5OcjdlTlM1ZXBQSGhVNUR4blpBRkFaSU41SFhVUEFxbThxVkt0YWZtcXJLTVFvODZHWm53TmVXeEQ3RXFWd9IBxwFBVV95cUxNMjhsNmRtam51aXE2S2VpM3ZkSU5FdVVfZVRMWHQxMTdPTzJxaUxZZ2QwUlQ4V1J6UXFhdmEtdXVUTjBGNURLdHkzUUxtTlZIM3ZWcDlxRUd5NEdYNV9xdjVBd0NyalgyMXVpWFpSdDdoMG5Razd3SXJudUk5b3U1MkU3enFDd3FNRlZ6cnNMQk9fcTlJcHl6RFZqU0FKdjVzS0p2V2hiOHZkVDFIZ05PZFVvcXdxbF9EQkc0b0xfa2Y1bEptaE1r?oc=5"
+---
+
+Rajasthan SSR draft counts 11 lakh more voters than SIR list The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxORVhoZzQxY0hPd0FDRlkzOVc5b3drblZqQ255SmltcW8wZERHcExrdGJwTTdfWldFQnBqVlFlUWZLXzBfWm1yVGNCdWJNcHY3a1BmQlM4N2IyMnM0ZGVwRUFnYV82SUdFcWhkdmVrR2lxVW1kam9UT3FZRjJvbkZFc09fZE5OcjdlTlM1ZXBQSGhVNUR4blpBRkFaSU41SFhVUEFxbThxVkt0YWZtcXJLTVFvODZHWm53TmVXeEQ3RXFWd9IBxwFBVV95cUxNMjhsNmRtam51aXE2S2VpM3ZkSU5FdVVfZVRMWHQxMTdPTzJxaUxZZ2QwUlQ4V1J6UXFhdmEtdXVUTjBGNURLdHkzUUxtTlZIM3ZWcDlxRUd5NEdYNV9xdjVBd0NyalgyMXVpWFpSdDdoMG5Razd3SXJudUk5b3U1MkU3enFDd3FNRlZ6cnNMQk9fcTlJcHl6RFZqU0FKdjVzS0p2V2hiOHZkVDFIZ05PZFVvcXdxbF9EQkc0b0xfa2Y1bEptaE1r?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

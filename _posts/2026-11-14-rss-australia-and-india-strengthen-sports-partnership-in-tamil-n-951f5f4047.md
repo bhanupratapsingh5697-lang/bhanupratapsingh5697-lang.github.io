@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Australia and India strengthen sports partnership in Tamil Nadu - The New Indian Express"
+date: 2026-11-14 00:15:19 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxOWUs2RWk2T28tVWJOSC15MVMzVm5velVKaFQ5aDF5dW1kVjFDa2VDMmF3ZWNQNTdVbE9id1lwVkJIR1d0Vm5rdlZOb2pVUmlBemhoZU9tU2RjaEdxdW53bndDSVhJNnF5dmwxaFZWR2RaTlRCWWQ4RXM1cW00a3hGQzBLbjByajZMVl94ZDZYeWh5Vk9ZdWNrR2EyU1kzMmRpdW56S25EOXNjOXZ4UnBha3pSQVo4TjdCUzRNM0VzZEEtenFZ0gHSAUFVX3lxTFA2REcta2MxZXVNWjFwTS1VVjZjUTF1SVh2UXcxOHlxd3hheWZGVXM2XzlWQ1JScjJuX2NQQzQ0VDB5eFhXU0F0QVBOUXpkRWFja0pVVzBUem5DYml5NWt0OWkxNzNiWWd4cFJiUDFpZno5ZnZCT1BHaDhQNnFSdzRmQlhiWXYyd1h5dkVmaWtLVkxuTjJ6WTZsU3ZkVFZIOHhta0FjLVZGWFI4bTFibFFMY19lamdSTC01ajhiWDFlTHRCeVBucXJMNEJHamFtb2RxUQ?oc=5"
+---
+
+Australia and India strengthen sports partnership in Tamil Nadu The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxOWUs2RWk2T28tVWJOSC15MVMzVm5velVKaFQ5aDF5dW1kVjFDa2VDMmF3ZWNQNTdVbE9id1lwVkJIR1d0Vm5rdlZOb2pVUmlBemhoZU9tU2RjaEdxdW53bndDSVhJNnF5dmwxaFZWR2RaTlRCWWQ4RXM1cW00a3hGQzBLbjByajZMVl94ZDZYeWh5Vk9ZdWNrR2EyU1kzMmRpdW56S25EOXNjOXZ4UnBha3pSQVo4TjdCUzRNM0VzZEEtenFZ0gHSAUFVX3lxTFA2REcta2MxZXVNWjFwTS1VVjZjUTF1SVh2UXcxOHlxd3hheWZGVXM2XzlWQ1JScjJuX2NQQzQ0VDB5eFhXU0F0QVBOUXpkRWFja0pVVzBUem5DYml5NWt0OWkxNzNiWWd4cFJiUDFpZno5ZnZCT1BHaDhQNnFSdzRmQlhiWXYyd1h5dkVmaWtLVkxuTjJ6WTZsU3ZkVFZIOHhta0FjLVZGWFI4bTFibFFMY19lamdSTC01ajhiWDFlTHRCeVBucXJMNEJHamFtb2RxUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
