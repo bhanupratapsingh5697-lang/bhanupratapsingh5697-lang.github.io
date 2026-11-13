@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Vivaan Kapoor clinches trap silver, LA quota - The Times of India"
+date: 2026-11-13 10:17:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxPTEg2UGNVLTlpVVNOYjN6ekpWN0U5dlVmTUxWYk5ReHJiTlpqYjdXeUY2VkpYVWNBc2kyaGlHM01HN0NGUjFsQ2lSdTR2VUFYM1ZCM3BSTC02dzlmNmJJRnk3bWxSb3ljS3Z5MTZsdTZIRnpVeFF3UzFFSnBHVE9xdFJGNEdaRjNYMUhfVExZaUxBWE1FQWNEb2lWMDNZUnladkUxb0Vtb2s2RjlDclFhRWNGVXR1RkpGVXNBdEhuRDVsX2lWT2VadlFpRdIB0AFBVV95cUxPazBMSVJtT3hrVDR1b3BYU29oUUFIZGZPN0ZLYjJYR0dGZGNBRm5FZlJhNEhKdW1VV3MzMzRaajFyTHhaWkZkT2NxY2NlWG9XcXBZRGQwejYtMVVrd1ZiRHowZEx3VUh3elBQQzdSVjFFMmRsMS12VnBFYXBKWHFiSV9zUjNnbUVUTzdEcS1uY3p2RUVqUVVvYWhsZks3MFFIem1SRklraW1TUXlUUk5yd1YyZTh6eWZubEpNZ25xY1JOaVZNY1FhMDZoeVNnSU03?oc=5"
+---
+
+Vivaan Kapoor clinches trap silver, LA quota The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxPTEg2UGNVLTlpVVNOYjN6ekpWN0U5dlVmTUxWYk5ReHJiTlpqYjdXeUY2VkpYVWNBc2kyaGlHM01HN0NGUjFsQ2lSdTR2VUFYM1ZCM3BSTC02dzlmNmJJRnk3bWxSb3ljS3Z5MTZsdTZIRnpVeFF3UzFFSnBHVE9xdFJGNEdaRjNYMUhfVExZaUxBWE1FQWNEb2lWMDNZUnladkUxb0Vtb2s2RjlDclFhRWNGVXR1RkpGVXNBdEhuRDVsX2lWT2VadlFpRdIB0AFBVV95cUxPazBMSVJtT3hrVDR1b3BYU29oUUFIZGZPN0ZLYjJYR0dGZGNBRm5FZlJhNEhKdW1VV3MzMzRaajFyTHhaWkZkT2NxY2NlWG9XcXBZRGQwejYtMVVrd1ZiRHowZEx3VUh3elBQQzdSVjFFMmRsMS12VnBFYXBKWHFiSV9zUjNnbUVUTzdEcS1uY3p2RUVqUVVvYWhsZks3MFFIem1SRklraW1TUXlUUk5yd1YyZTh6eWZubEpNZ25xY1JOaVZNY1FhMDZoeVNnSU03?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

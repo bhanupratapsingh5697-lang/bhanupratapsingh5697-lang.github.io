@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Microsoft sees positive results to restart as global outage drags on after 7 hours - India Today"
+date: 2026-11-13 08:04:42 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxNYjlRQTFXczVkNkQtYWdYOGxNdk1aSUtBWnRUd2phQ0hoSTVndHRjU2k5alRSdDFFdlRiQU14Q1dFUVpXOWd5ZGROVktkZ3NKYzJOTlRONU1TbHVPY0hRSGIwcnN6V1BwRjRaZ1Z1TFpUV3NfRmtjWnczeVNaa0VEZ3g3bnNLSHBHMHgtX0NCd3BhOWZ4LU80TVhNODdpVllqekFGLU9MaDBGZks4Wlh3aDBodTR0aTcyUldDZlRNaDNvQUdlUFRNUTN30gHPAUFVX3lxTFAtQ3c2RE8xd3NKYzdMTFk1cnNrUl9nSk9Mc3FzWGQwSFVlLTdLYVoxVVptX0pEMGNuWkFnSFdfY0VfSzJMSFF2SE5DWER5dXI0dEhSTG1zbm1MLXlCZ3hOV2htU2dqYmNJU0pKNnhBTm92cGd0MnJvQjlLSUszNTgtdUpMVFlVVlA3b25Pb0l3cFlFaUxfYlJqcXFNTmF5LVRaSFBVMkVZdzJCc0pPS0tyRXNxcUphVTlKRS1JeHlMZjNCTEVzQ1FlTFpIdlA4cw?oc=5"
+---
+
+Microsoft sees positive results to restart as global outage drags on after 7 hours India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxNYjlRQTFXczVkNkQtYWdYOGxNdk1aSUtBWnRUd2phQ0hoSTVndHRjU2k5alRSdDFFdlRiQU14Q1dFUVpXOWd5ZGROVktkZ3NKYzJOTlRONU1TbHVPY0hRSGIwcnN6V1BwRjRaZ1Z1TFpUV3NfRmtjWnczeVNaa0VEZ3g3bnNLSHBHMHgtX0NCd3BhOWZ4LU80TVhNODdpVllqekFGLU9MaDBGZks4Wlh3aDBodTR0aTcyUldDZlRNaDNvQUdlUFRNUTN30gHPAUFVX3lxTFAtQ3c2RE8xd3NKYzdMTFk1cnNrUl9nSk9Mc3FzWGQwSFVlLTdLYVoxVVptX0pEMGNuWkFnSFdfY0VfSzJMSFF2SE5DWER5dXI0dEhSTG1zbm1MLXlCZ3hOV2htU2dqYmNJU0pKNnhBTm92cGd0MnJvQjlLSUszNTgtdUpMVFlVVlA3b25Pb0l3cFlFaUxfYlJqcXFNTmF5LVRaSFBVMkVZdzJCc0pPS0tyRXNxcUphVTlKRS1JeHlMZjNCTEVzQ1FlTFpIdlA4cw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

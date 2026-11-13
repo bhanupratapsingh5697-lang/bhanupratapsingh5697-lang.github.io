@@ -1,0 +1,17 @@
+---
+layout: post
+title: "113 Foreign Delegates Barred From India Ahead of Congress’s Bharat Summit - TheWire.in"
+date: 2026-11-12 16:54:02 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxOa3kzU2RIeXJFamNpSGo5SzhVYTcxMTZTbmlyeW5KN3dLODJhLXgwQkJQalJMTXFEZUlnVExTTlYxVml2S0ZKQUdzX2g3NktSSFJ4US1OWHEtbzNSUHR4OFM0UXNmRzIwTDBSbzhHREJsWnI5dXdrWTVhRGRBTEtjNVlWdmVNTXhEYmlaZmJ0dUdpTWR0aFQ2U3VoY3c4QnNxN2NsR2g4eE9ndmUxT1Rr0gG0AUFVX3lxTE1KTDV3XzYwT3lHUkFJbVBYelBaME9JT3lZdHBLVjhJWkpORWpINk1xckFXOW9sZGdsZXdlc05PbHJ6aGcybkhBUGs0YXE0NG9sd3FTb1hyRVFXNFAwcHRQY21uM1FucHQwVFBjVkRuUzF6NlJSOHV1N0RkYjFPVU0zbGV4RjZLdXdoYWROTU9FYzV4bkpCdWk0Uy1NLUVybTl0UWUtSFFyT2ktMW1yTWc3SW40Zw?oc=5"
+---
+
+113 Foreign Delegates Barred From India Ahead of Congress’s Bharat Summit TheWire.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxOa3kzU2RIeXJFamNpSGo5SzhVYTcxMTZTbmlyeW5KN3dLODJhLXgwQkJQalJMTXFEZUlnVExTTlYxVml2S0ZKQUdzX2g3NktSSFJ4US1OWHEtbzNSUHR4OFM0UXNmRzIwTDBSbzhHREJsWnI5dXdrWTVhRGRBTEtjNVlWdmVNTXhEYmlaZmJ0dUdpTWR0aFQ2U3VoY3c4QnNxN2NsR2g4eE9ndmUxT1Rr0gG0AUFVX3lxTE1KTDV3XzYwT3lHUkFJbVBYelBaME9JT3lZdHBLVjhJWkpORWpINk1xckFXOW9sZGdsZXdlc05PbHJ6aGcybkhBUGs0YXE0NG9sd3FTb1hyRVFXNFAwcHRQY21uM1FucHQwVFBjVkRuUzF6NlJSOHV1N0RkYjFPVU0zbGV4RjZLdXdoYWROTU9FYzV4bkpCdWk0Uy1NLUVybTl0UWUtSFFyT2ktMW1yTWc3SW40Zw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

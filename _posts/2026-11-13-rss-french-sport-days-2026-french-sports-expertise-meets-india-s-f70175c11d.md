@@ -1,0 +1,17 @@
+---
+layout: post
+title: "French Sport Days 2026: French Sports Expertise Meets India’s Growing Ambitions - ThePrint"
+date: 2026-11-13 10:00:46 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxOSjlMeHlRM1J3S1h1Nl9DOFdhdm9IU2NXQlloUV95R2wxZk45Z01wVTN3MVJQQ3ZMM0N2ZWpHaXFmYmtQcHlFMWg0UEhxbXZpWVRDZy1LR1AtWTk5X2pmU3NuSnNZX1Eyazdud00wRzl5Um11eUxpbTJqWHNuaFdRcGcyeE52Yk1uQUpTbGxhNXcwcHgxa1pod2JqNHBvdGlvcnREZm5BbFkxQ1JMVVBaTElZMmhSSjBZLUpwdmpLU0JsR0XSAcgBQVVfeXFMTWJTWjJ6aTg4WDRoUF8yUEM5aENUNUNNVFVoR0VpY29VbUNxOGhVMmpqZHFKSmxWcUVRU211VFZsSW1uTlNlckJyN0VwWGRpYzFQXzZXR3JDbkpQS0VnbzRsUlR6aG5BMEZXbHFVQW5jRjFveUNZZjgyTmdBUi1UZ3NieXhtWEpaZHl0NVI1X0w0cG81Tl9uUTFORmw2cGptT0NOekFrNXhOQ0NGNk8wUlBNSHUwbEtia1VwbnlRUlg5UGYxbVYtYmg?oc=5"
+---
+
+French Sport Days 2026: French Sports Expertise Meets India’s Growing Ambitions ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOSjlMeHlRM1J3S1h1Nl9DOFdhdm9IU2NXQlloUV95R2wxZk45Z01wVTN3MVJQQ3ZMM0N2ZWpHaXFmYmtQcHlFMWg0UEhxbXZpWVRDZy1LR1AtWTk5X2pmU3NuSnNZX1Eyazdud00wRzl5Um11eUxpbTJqWHNuaFdRcGcyeE52Yk1uQUpTbGxhNXcwcHgxa1pod2JqNHBvdGlvcnREZm5BbFkxQ1JMVVBaTElZMmhSSjBZLUpwdmpLU0JsR0XSAcgBQVVfeXFMTWJTWjJ6aTg4WDRoUF8yUEM5aENUNUNNVFVoR0VpY29VbUNxOGhVMmpqZHFKSmxWcUVRU211VFZsSW1uTlNlckJyN0VwWGRpYzFQXzZXR3JDbkpQS0VnbzRsUlR6aG5BMEZXbHFVQW5jRjFveUNZZjgyTmdBUi1UZ3NieXhtWEpaZHl0NVI1X0w0cG81Tl9uUTFORmw2cGptT0NOekFrNXhOQ0NGNk8wUlBNSHUwbEtia1VwbnlRUlg5UGYxbVYtYmg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

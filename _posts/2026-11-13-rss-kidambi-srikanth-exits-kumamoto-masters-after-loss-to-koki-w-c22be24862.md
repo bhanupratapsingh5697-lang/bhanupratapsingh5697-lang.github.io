@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Kidambi Srikanth Exits Kumamoto Masters After Loss To Koki Watanabe - Rediff"
+date: 2026-11-13 09:39:10 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMipAFBVV95cUxObnRGQ244ZUM0bXdpLWhGVWxJalo0VUI4eXpvQ0lsemxJYlI2dEpXMHFyV1Q0OGhsak1pc0RTSmUtWF9LQ2FJb3FHQzg4VmFCVHZSeGY2MTFSN012dkRFTWJSMlFQdERWRzhubzlkcElZd04tX2ltbTkzWWFCOEpSWTVlSTgwRmVlUVhjcWVwX3BHdThhdkhJRnQ5c2ZwOXhFUmJVeNIBpwFBVV95cUxORUI3UVdla0wyRzYtUll4OTFIWkdOQ1d0eHNGVVc5dkJPaUpEXy1jdFdLRkpJQU9GeW9Tb2Q2MFdPYlc0YXlCRmRYR2dnUldJalRuNlAwdV80UjdnV09JZUpBWjJEYU9KZllDVmtVZ3NCdUU0MG9wVkxabmd5VFJXdDZyVXBIMVJBM0NaeHEzaTFtUU96X2hXZ2R4b0VkS3FKWE8zSXByVQ?oc=5"
+---
+
+Kidambi Srikanth Exits Kumamoto Masters After Loss To Koki Watanabe Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipAFBVV95cUxObnRGQ244ZUM0bXdpLWhGVWxJalo0VUI4eXpvQ0lsemxJYlI2dEpXMHFyV1Q0OGhsak1pc0RTSmUtWF9LQ2FJb3FHQzg4VmFCVHZSeGY2MTFSN012dkRFTWJSMlFQdERWRzhubzlkcElZd04tX2ltbTkzWWFCOEpSWTVlSTgwRmVlUVhjcWVwX3BHdThhdkhJRnQ5c2ZwOXhFUmJVeNIBpwFBVV95cUxORUI3UVdla0wyRzYtUll4OTFIWkdOQ1d0eHNGVVc5dkJPaUpEXy1jdFdLRkpJQU9GeW9Tb2Q2MFdPYlc0YXlCRmRYR2dnUldJalRuNlAwdV80UjdnV09JZUpBWjJEYU9KZllDVmtVZ3NCdUU0MG9wVkxabmd5VFJXdDZyVXBIMVJBM0NaeHEzaTFtUU96X2hXZ2R4b0VkS3FKWE8zSXByVQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

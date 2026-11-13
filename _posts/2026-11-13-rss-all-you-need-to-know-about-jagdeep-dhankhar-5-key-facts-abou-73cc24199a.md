@@ -1,0 +1,17 @@
+---
+layout: post
+title: "All you need to know about Jagdeep Dhankhar: 5 key facts about India’s 14th Vice-President - The Hindu"
+date: 2026-11-13 11:44:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiuwFBVV95cUxPMm1pRm5FTFV1OHB1SmJ2Q3dVb1FRRTFUd2Q3YnBBV3lfSnZTWllqRTFmVW81WDB4MjZMazNwSmlydUNCUWl4bDQ5Y3VGMUpCZ3lQdTNvX1d5aG9HR3MycmYzTmtaZHR2M1J6Y1V5OTJ6QTdvWjcxYkNJNzl0ZFlQUDFtN1BsY2h0aHJsck1SSnJkTGZxU3c0T3ZodXNTQjdHWGpwVHZNaHZKYXp6czVZVGRNdUJLXzVYYjFj0gHCAUFVX3lxTE1PSmt6eElnNjlUSDVmV1QxNjFySEdOZ3hfd3AtN0hWSl9qajhCcUNhYlVpd0RwQ0NLcFdBRjNCTXYxZ016eXRIYm9fSnZaNGFTUVZOSzRhR1AzVXJZZmw3b0hFLVF6alVSZkdSUS10T1hBVHhkSGU5VXpQR3pBeXE5WUpleWxaZEFSeTZVVDVKbEhjbTJCZFFmV1hQVUw5YkEtV0hZdzJFMnYycV9OYmEtZEI4VEtteHVZUWludWNZYjNB?oc=5"
+---
+
+All you need to know about Jagdeep Dhankhar: 5 key facts about India’s 14th Vice-President The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPMm1pRm5FTFV1OHB1SmJ2Q3dVb1FRRTFUd2Q3YnBBV3lfSnZTWllqRTFmVW81WDB4MjZMazNwSmlydUNCUWl4bDQ5Y3VGMUpCZ3lQdTNvX1d5aG9HR3MycmYzTmtaZHR2M1J6Y1V5OTJ6QTdvWjcxYkNJNzl0ZFlQUDFtN1BsY2h0aHJsck1SSnJkTGZxU3c0T3ZodXNTQjdHWGpwVHZNaHZKYXp6czVZVGRNdUJLXzVYYjFj0gHCAUFVX3lxTE1PSmt6eElnNjlUSDVmV1QxNjFySEdOZ3hfd3AtN0hWSl9qajhCcUNhYlVpd0RwQ0NLcFdBRjNCTXYxZ016eXRIYm9fSnZaNGFTUVZOSzRhR1AzVXJZZmw3b0hFLVF6alVSZkdSUS10T1hBVHhkSGU5VXpQR3pBeXE5WUpleWxaZEFSeTZVVDVKbEhjbTJCZFFmV1hQVUw5YkEtV0hZdzJFMnYycV9OYmEtZEI4VEtteHVZUWludWNZYjNB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

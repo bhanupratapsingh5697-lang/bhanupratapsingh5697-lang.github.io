@@ -1,0 +1,17 @@
+---
+layout: post
+title: "What the Rajasthan Uniform Civil Code Bill Says on Marriage, Live-In Relations and Divorce - TheWire.in"
+date: 2026-11-11 18:03:03 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxQckthY2dsNWVSYkJWVmtJTUNDeU4yaGVCSEhzdktjdVJQX05jdnc1SzhuenlIS2RyOXB1eGRXYkFuOU1qSl9UNUl5UFhlZW9ETDRNM1NXZHE5R2dXV0w2c2lEV3h4VWtkM3JJRnd1dVBOd0puTnVkcWFGdmMxZ2hYQVhyYnJZeXE0dXU1RXdkeDdPMmxGSVo1Z0FIaGl0Sm5QZTF6ZGVUaVQwNFBSVHVGN3Rn0gHEAUFVX3lxTE5RdGdqZU5DR0xUUjJTYnpTQW5VbHI5dmJSMzNXMWxmM0gwaEFhc2tGa1RJZWdzQTF6WS1MZmdfanB0VFl6eUFYbkVwZzJSdGRwT2x1TTItWW5Rdlk5QXplWXZIcGZpUV9lWU9va2hLbzRRZ1JNc3d0V0lOYzBfTnJjOGNoeWRjeUtqdGROVEVBMmJOcHhReE91bkZuR1ZlUGJLdU1BaGVuX2FaSUpsZlk4WC03X3pOYl84VF90Z1V1NTBHRlk?oc=5"
+---
+
+What the Rajasthan Uniform Civil Code Bill Says on Marriage, Live-In Relations and Divorce TheWire.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxQckthY2dsNWVSYkJWVmtJTUNDeU4yaGVCSEhzdktjdVJQX05jdnc1SzhuenlIS2RyOXB1eGRXYkFuOU1qSl9UNUl5UFhlZW9ETDRNM1NXZHE5R2dXV0w2c2lEV3h4VWtkM3JJRnd1dVBOd0puTnVkcWFGdmMxZ2hYQVhyYnJZeXE0dXU1RXdkeDdPMmxGSVo1Z0FIaGl0Sm5QZTF6ZGVUaVQwNFBSVHVGN3Rn0gHEAUFVX3lxTE5RdGdqZU5DR0xUUjJTYnpTQW5VbHI5dmJSMzNXMWxmM0gwaEFhc2tGa1RJZWdzQTF6WS1MZmdfanB0VFl6eUFYbkVwZzJSdGRwT2x1TTItWW5Rdlk5QXplWXZIcGZpUV9lWU9va2hLbzRRZ1JNc3d0V0lOYzBfTnJjOGNoeWRjeUtqdGROVEVBMmJOcHhReE91bkZuR1ZlUGJLdU1BaGVuX2FaSUpsZlk4WC03X3pOYl84VF90Z1V1NTBHRlk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
