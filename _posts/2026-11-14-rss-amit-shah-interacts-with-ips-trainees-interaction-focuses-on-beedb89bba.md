@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Amit Shah Interacts With IPS Trainees, Interaction Focuses On National Security - NDTV"
+date: 2026-11-14 22:32:54 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiuwFBVV95cUxPYTZiNENYNkRzRFlsTWp3SDA0N1Exd2pTR3BPZDlINTZtcVl5blR1R2pkdDhvak5WdjFIM29LcDJ0dFlfSzhkR0drTEdhcHBuSEVQRnctRG55R3l6U2E1cHVrMG5WZkVFbnkxOHhWVFZRbFZRczYtM3Z5b0tRajNTSWJXQlMxeFlUMEdiTUFmNGpjOS1ib3RqMFlQS3JtWm9mRGcyV25LYldiRjZtM3MzaEZLU211V1NZUWo40gHDAUFVX3lxTE5ncFBXQWp2cGI0YVAyWlI4d3ZFaVJ6Ykdjek1nZXNxVFlDY1NPcnlVRm0yejV2YXJTTWlDdURzMDk2YlJYS3NuaUFaLWd6VkJQSHBjZEpMbkk5RldEcEpYTUJDd3BYeng1YmJ2endubDdJSll4LWl5aVhMVE1zU1MwTWtubFZNREk4WFhVYzRHMmNnRnJ4dnBOcTFKWmlzcEVUcW1KZlY3VVVETjJZQkpTVDV4eHlpR05wem9tR1p4VWxhbw?oc=5"
+---
+
+Amit Shah Interacts With IPS Trainees, Interaction Focuses On National Security NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuwFBVV95cUxPYTZiNENYNkRzRFlsTWp3SDA0N1Exd2pTR3BPZDlINTZtcVl5blR1R2pkdDhvak5WdjFIM29LcDJ0dFlfSzhkR0drTEdhcHBuSEVQRnctRG55R3l6U2E1cHVrMG5WZkVFbnkxOHhWVFZRbFZRczYtM3Z5b0tRajNTSWJXQlMxeFlUMEdiTUFmNGpjOS1ib3RqMFlQS3JtWm9mRGcyV25LYldiRjZtM3MzaEZLU211V1NZUWo40gHDAUFVX3lxTE5ncFBXQWp2cGI0YVAyWlI4d3ZFaVJ6Ykdjek1nZXNxVFlDY1NPcnlVRm0yejV2YXJTTWlDdURzMDk2YlJYS3NuaUFaLWd6VkJQSHBjZEpMbkk5RldEcEpYTUJDd3BYeng1YmJ2endubDdJSll4LWl5aVhMVE1zU1MwTWtubFZNREk4WFhVYzRHMmNnRnJ4dnBOcTFKWmlzcEVUcW1KZlY3VVVETjJZQkpTVDV4eHlpR05wem9tR1p4VWxhbw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

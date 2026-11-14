@@ -1,0 +1,17 @@
+---
+layout: post
+title: "CM intervenes to clear seven-year pending sports rewards worth Rs 1.5 crore - ThePrint"
+date: 2026-11-14 21:19:10 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxQSE1teFB5cUZZR2h3RnZGS0tMU2dWTWV3RlVueDdkeF9DdkFBUmFJejdGNzJoMl9RS2M5NGE2RzJKUVRWblpXT1J3MVJfOFpuRkxoNFM1dl9pbU90YmRtNXBTZF9UMVJlVEZ0VUdjTHk5UG5JQ3Nqdk5JdjAxYkpKaGRkbXhCUG1DZzlvdG02S0dEeWk1dEoxbGVrbTRHb1Bpc2JQV3FrRGh4UTMzRHg00gG0AUFVX3lxTE9ldE1uaUJ0b3RGUU5GeW5JMFdEUFJYWXF3N2d6MFZTSk9MWmo3eUp4dy1DTXFRR3dzTGhva3l1Qm1MS1NoVW03YWFUX2tkUThVTVJSWnVOUEpPOWR6amxOc0NLd2FtTW11MGp2WmJPZ1F2WkVaZmpSN0I4Z1FfZ18yWTYtN2NvSjBHTTN5QTE5ZDNFSWhJQV9iamdfd1YyaV9SdUl4NU1neGpRZkotSHg2ZlQzSg?oc=5"
+---
+
+CM intervenes to clear seven-year pending sports rewards worth Rs 1.5 crore ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxQSE1teFB5cUZZR2h3RnZGS0tMU2dWTWV3RlVueDdkeF9DdkFBUmFJejdGNzJoMl9RS2M5NGE2RzJKUVRWblpXT1J3MVJfOFpuRkxoNFM1dl9pbU90YmRtNXBTZF9UMVJlVEZ0VUdjTHk5UG5JQ3Nqdk5JdjAxYkpKaGRkbXhCUG1DZzlvdG02S0dEeWk1dEoxbGVrbTRHb1Bpc2JQV3FrRGh4UTMzRHg00gG0AUFVX3lxTE9ldE1uaUJ0b3RGUU5GeW5JMFdEUFJYWXF3N2d6MFZTSk9MWmo3eUp4dy1DTXFRR3dzTGhva3l1Qm1MS1NoVW03YWFUX2tkUThVTVJSWnVOUEpPOWR6amxOc0NLd2FtTW11MGp2WmJPZ1F2WkVaZmpSN0I4Z1FfZ18yWTYtN2NvSjBHTTN5QTE5ZDNFSWhJQV9iamdfd1YyaV9SdUl4NU1neGpRZkotSHg2ZlQzSg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

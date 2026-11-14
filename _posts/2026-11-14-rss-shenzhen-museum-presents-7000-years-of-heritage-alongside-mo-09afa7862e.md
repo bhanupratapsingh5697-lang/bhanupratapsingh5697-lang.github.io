@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Shenzhen museum presents 7000 years of heritage alongside modern technology - India Today - India Today"
+date: 2026-11-14 17:43:17 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxOTUpMY0UxZUduY00zQ3dsakNiWWVNUnlRVXhzUkR6SHVvZVotYTJkal9MdjdVaEJxRmZXNEJMOXBQY2d0SFlucnhpc3Vob1lOQmlZX3RkZ2VzdkRKYjUzeE1TMVJLSjRFSDhKSXJnaUdrem1MTU53cllzVzJ4X21rY3NnWTkzeDIwNkg2ejlCWkxhRTcyNVRTX3JkME5uWHVudzl3M0JiT05YdmNPYW80ekY0WGNRbUh2SVdjTUZQYjkxc0JWdS1mbkp2QVRyWWtW0gHWAUFVX3lxTFA4S3dQaks3Q25zYlRPLTRMQ29xbG9YbHNtR3R1MU1SSmFTYnlBQVF2MXNzZFVnMHNCbFVycEU5STItd3hKa0w2ZDdfZmdVek55cGtKLWkteEVSNmplZmRIZnM0NWNOQWpIYUFrU3ZrY1VzYjJLODJsczBnWE1WNzljb3pYdkZLR2ttczIzd08xczV0VlRlWVFYY1UteXhQX1dHVldaSXkwVjZCeUhpNjUtQUdJQzcxeVB1NEU5TjFIZXFMTEszRHMzS1pBZXV6ZHRUZmpFUEE?oc=5"
+---
+
+Shenzhen museum presents 7000 years of heritage alongside modern technology - India Today India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxOTUpMY0UxZUduY00zQ3dsakNiWWVNUnlRVXhzUkR6SHVvZVotYTJkal9MdjdVaEJxRmZXNEJMOXBQY2d0SFlucnhpc3Vob1lOQmlZX3RkZ2VzdkRKYjUzeE1TMVJLSjRFSDhKSXJnaUdrem1MTU53cllzVzJ4X21rY3NnWTkzeDIwNkg2ejlCWkxhRTcyNVRTX3JkME5uWHVudzl3M0JiT05YdmNPYW80ekY0WGNRbUh2SVdjTUZQYjkxc0JWdS1mbkp2QVRyWWtW0gHWAUFVX3lxTFA4S3dQaks3Q25zYlRPLTRMQ29xbG9YbHNtR3R1MU1SSmFTYnlBQVF2MXNzZFVnMHNCbFVycEU5STItd3hKa0w2ZDdfZmdVek55cGtKLWkteEVSNmplZmRIZnM0NWNOQWpIYUFrU3ZrY1VzYjJLODJsczBnWE1WNzljb3pYdkZLR2ttczIzd08xczV0VlRlWVFYY1UteXhQX1dHVldaSXkwVjZCeUhpNjUtQUdJQzcxeVB1NEU5TjFIZXFMTEszRHMzS1pBZXV6ZHRUZmpFUEE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

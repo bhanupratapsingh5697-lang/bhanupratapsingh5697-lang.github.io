@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Senior Rajasthan BJP leader recites Kalma in Churu, sparks row - The Indian Express"
+date: 2026-11-14 06:23:49 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxNSVhxdlhYSXFQb09uN2hoNVp0Z2FhWG0tNTJldHVRTDA4R2c2U2J2SWJhU1d0TEVTcUJnUlZidW9ZWXRZWlNpenE5Z2VjQmpvN0swOUQzX3lkS2JrdXpSUzVzLTJzMkk5LTZtM1VRRWVyTk9FU1lIbWlrWXN6Sko0QWtEcU1pekpuNjZMNDV4SWxQNkpJUUFHb3llZWVqWERvZ3M3dFQzR1FNNTE3YU0zWXlMNmRzd9IBvAFBVV95cUxNNHRmWmJHaVJlUkk4MnliMWVtLXcyWllmWE93RGUzWkhXTDIzeTRkSlZ0cWxjNTZld185cFNRRnhkUktBS1lzN2F5LU5NUm55eldrZHpBUzZUOGZhZzhaY2JRSFZibHZNNW5tS28tT2VHSlZNck1vOUl1bXc4RXVBb0p1TTVqeU95czdYNEEtNGp0TzBGbVZfc0RRYldVVkJmd0ZrMHlXZXQwUlp4M2FXbG5wOFRlVXE2WDJRZw?oc=5"
+---
+
+Senior Rajasthan BJP leader recites Kalma in Churu, sparks row The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxNSVhxdlhYSXFQb09uN2hoNVp0Z2FhWG0tNTJldHVRTDA4R2c2U2J2SWJhU1d0TEVTcUJnUlZidW9ZWXRZWlNpenE5Z2VjQmpvN0swOUQzX3lkS2JrdXpSUzVzLTJzMkk5LTZtM1VRRWVyTk9FU1lIbWlrWXN6Sko0QWtEcU1pekpuNjZMNDV4SWxQNkpJUUFHb3llZWVqWERvZ3M3dFQzR1FNNTE3YU0zWXlMNmRzd9IBvAFBVV95cUxNNHRmWmJHaVJlUkk4MnliMWVtLXcyWllmWE93RGUzWkhXTDIzeTRkSlZ0cWxjNTZld185cFNRRnhkUktBS1lzN2F5LU5NUm55eldrZHpBUzZUOGZhZzhaY2JRSFZibHZNNW5tS28tT2VHSlZNck1vOUl1bXc4RXVBb0p1TTVqeU95czdYNEEtNGp0TzBGbVZfc0RRYldVVkJmd0ZrMHlXZXQwUlp4M2FXbG5wOFRlVXE2WDJRZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

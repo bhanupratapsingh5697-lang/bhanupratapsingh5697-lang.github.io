@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Ashok Gehlot releases first episode of 'budget files', targets Rajasthan govt over Jal Jeevan Mission - The Hans India"
+date: 2026-11-14 19:35:44 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi4wFBVV95cUxPc3Vxd0dqa3ZOTl9tYVZkeHpSNHJVRGg5RDFleTFxc0NMZXN5dlRaa1U5dEZIbnZBd3FUUUVjVmxtUENiQnB3SUp0aHVPYVFmLXNSdVNTWmFsWkpFVXVVSDlranMxWUg0S1VmcUkxR2hpbTVtcmVHZnpqaUdKNUxlbWliemRJSExFWjEwWWFYX2lwWTZPUERELWRrNHp3ZExOdUs2V0l1cWdxN2V4V3ZGWHRhSEVRQjRVNjByaXp6RmtudEU1blc2WnFZY3podWotRmRlZzcwTGdJQzRTUmx5WC10b9IB6AFBVV95cUxNQ1RVRmdXVUF3VzVyUFJIcWtXNXlWekQ3Um45Sms5MEF4b0owdXBPMWlyUGwxXzhfa1ZtVVNoZXFkMW9nQlhmTUJZYVNqTk16Z2oyN3ZjdVZXYlFUYU9XMENKLVhFUm9KMGQzMGFLMWtDcUpIRnE4a0trM3A2bHhjWU1aRnRfUjlHNlBMLWFDb0syekphZ0x1dFNCV1pqdXg5eGU3RklWaWtfb1FacVBIcXZMNDBxNnYtR2hZc1BLNXpWR3A5bzVYTWRKc0Q1NUF6bzV5VGdfelEwdVlrRklyb2F5bHI5cG95?oc=5"
+---
+
+Ashok Gehlot releases first episode of 'budget files', targets Rajasthan govt over Jal Jeevan Mission The Hans India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4wFBVV95cUxPc3Vxd0dqa3ZOTl9tYVZkeHpSNHJVRGg5RDFleTFxc0NMZXN5dlRaa1U5dEZIbnZBd3FUUUVjVmxtUENiQnB3SUp0aHVPYVFmLXNSdVNTWmFsWkpFVXVVSDlranMxWUg0S1VmcUkxR2hpbTVtcmVHZnpqaUdKNUxlbWliemRJSExFWjEwWWFYX2lwWTZPUERELWRrNHp3ZExOdUs2V0l1cWdxN2V4V3ZGWHRhSEVRQjRVNjByaXp6RmtudEU1blc2WnFZY3podWotRmRlZzcwTGdJQzRTUmx5WC10b9IB6AFBVV95cUxNQ1RVRmdXVUF3VzVyUFJIcWtXNXlWekQ3Um45Sms5MEF4b0owdXBPMWlyUGwxXzhfa1ZtVVNoZXFkMW9nQlhmTUJZYVNqTk16Z2oyN3ZjdVZXYlFUYU9XMENKLVhFUm9KMGQzMGFLMWtDcUpIRnE4a0trM3A2bHhjWU1aRnRfUjlHNlBMLWFDb0syekphZ0x1dFNCV1pqdXg5eGU3RklWaWtfb1FacVBIcXZMNDBxNnYtR2hZc1BLNXpWR3A5bzVYTWRKc0Q1NUF6bzV5VGdfelEwdVlrRklyb2F5bHI5cG95?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "CM promises steps to strengthen sports education, facilities in K'taka - Vartha Bharati"
+date: 2026-11-14 22:35:46 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiuwFBVV95cUxNVlVXV1JfM0w4cW43LUtXVjFJczlFR2hKXy1TMDVZalFUa2RNU2VFUTVnWHpiamh6SVZGNjlzcDV3ZjZaWnRiUTVTanVXUjJ5aVkwOWNZM0hfcVIwNVpfU09XeEIta1Y2eFNuSjZ3Y0M0OUxlbmluTlRCZnN2Rnd1bDFTekR2WE9yZFdELVR6cFgwRWEySUxEb0I3X1JzY3VvZ1BmVWh6Z0pBT1FBRDdCdjM4SlVxN2FtY3pJ0gHAAUFVX3lxTFBEYkM3cWhjUG41SXNLdWtmUEdLVzNEMi1CN01JNTY2Q2FkNGZ5Tm5GaHp0Nk5vNVo3VUp6aVF6dmRsNHRoTUpzOUFuelFPUG1sNEwtb3pkZmtOZ2lSV3kxRHY2c2ZyUlpoa2NCQnlibDJ5SVF4dWFoSnE5T056d0RVRk1HdW04Y0dUZW1uV2c2OEVXSDk3by0zSlNWdEUxdkZhblJacXNCbmxZRGhKVFhQUXY0RWI1T09QYUd5SzY1WQ?oc=5"
+---
+
+CM promises steps to strengthen sports education, facilities in K'taka Vartha Bharati
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuwFBVV95cUxNVlVXV1JfM0w4cW43LUtXVjFJczlFR2hKXy1TMDVZalFUa2RNU2VFUTVnWHpiamh6SVZGNjlzcDV3ZjZaWnRiUTVTanVXUjJ5aVkwOWNZM0hfcVIwNVpfU09XeEIta1Y2eFNuSjZ3Y0M0OUxlbmluTlRCZnN2Rnd1bDFTekR2WE9yZFdELVR6cFgwRWEySUxEb0I3X1JzY3VvZ1BmVWh6Z0pBT1FBRDdCdjM4SlVxN2FtY3pJ0gHAAUFVX3lxTFBEYkM3cWhjUG41SXNLdWtmUEdLVzNEMi1CN01JNTY2Q2FkNGZ5Tm5GaHp0Nk5vNVo3VUp6aVF6dmRsNHRoTUpzOUFuelFPUG1sNEwtb3pkZmtOZ2lSV3kxRHY2c2ZyUlpoa2NCQnlibDJ5SVF4dWFoSnE5T056d0RVRk1HdW04Y0dUZW1uV2c2OEVXSDk3by0zSlNWdEUxdkZhblJacXNCbmxZRGhKVFhQUXY0RWI1T09QYUd5SzY1WQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

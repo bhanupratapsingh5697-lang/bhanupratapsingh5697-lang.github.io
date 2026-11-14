@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India Clinch U19 Asia Cup: Mohit Recalls Nerve-Racking Finish Against Pakistan - Rediff"
+date: 2026-11-14 20:37:56 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxOdXBmRHNQS1dYcDFyd2RKLWhYb3RwRE45S3FmbWJNR0FKRkhhZWRYSWo5V2NVelVxR0pZTHMyNkhtNnJfTTlQY1VwbkFaTEN6STh2aXIzUXRYekw4UExPeG9pNGZ2bmNDQ2M4anJGYVpwN250c3lfSzVLTmtmclE5YVdmZjllX3B1cUZjNXpzZk9sdTZ6Z0syU1pxWmE3Qm9WOG56QWNTZnVHZkpQcW9IdkExTzJybWZySGpSbUxFZmRPa05uc1hF0gHKAUFVX3lxTE9YRS1sa2ZSVHdpZnpTbGRWRi1ZVVp0ZkkxeURnZ1NBVTdsNlprUTV1VHdPamc3ZlUyNlFrSHdKY2g4U18tbGRwR0ktSUR3N2JZSE9ZU09wMEdlbkMtQV84a3pfZG1HS1Eydkh6SGxwQWYwSDFpQnVSYVg4VUJZM3VMd0NTMVNqbHNDZEFiNGNfeDBSZTUxbEY4b01xOS1RWW9zMERLNEFDVUlocDUyNW03MTNlV0tuRXg2Sk5sS1ZlWWhlTldZV2w5M2c?oc=5"
+---
+
+India Clinch U19 Asia Cup: Mohit Recalls Nerve-Racking Finish Against Pakistan Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxOdXBmRHNQS1dYcDFyd2RKLWhYb3RwRE45S3FmbWJNR0FKRkhhZWRYSWo5V2NVelVxR0pZTHMyNkhtNnJfTTlQY1VwbkFaTEN6STh2aXIzUXRYekw4UExPeG9pNGZ2bmNDQ2M4anJGYVpwN250c3lfSzVLTmtmclE5YVdmZjllX3B1cUZjNXpzZk9sdTZ6Z0syU1pxWmE3Qm9WOG56QWNTZnVHZkpQcW9IdkExTzJybWZySGpSbUxFZmRPa05uc1hF0gHKAUFVX3lxTE9YRS1sa2ZSVHdpZnpTbGRWRi1ZVVp0ZkkxeURnZ1NBVTdsNlprUTV1VHdPamc3ZlUyNlFrSHdKY2g4U18tbGRwR0ktSUR3N2JZSE9ZU09wMEdlbkMtQV84a3pfZG1HS1Eydkh6SGxwQWYwSDFpQnVSYVg4VUJZM3VMd0NTMVNqbHNDZEFiNGNfeDBSZTUxbEY4b01xOS1RWW9zMERLNEFDVUlocDUyNW03MTNlV0tuRXg2Sk5sS1ZlWWhlTldZV2w5M2c?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

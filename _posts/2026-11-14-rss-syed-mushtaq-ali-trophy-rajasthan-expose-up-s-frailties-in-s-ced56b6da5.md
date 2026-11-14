@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Syed Mushtaq Ali Trophy: Rajasthan expose UP’s frailties in six-wicket rout | Cricket - Hindustan Times"
+date: 2026-11-14 21:30:57 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxPY1dOYl9wX215ck1EcDJXMEFKemtGd1hKQVY0RDJOdEFmTHJRNHQ0QVhiTlhlcHhPSVZQQkN6MXg3LWhoenFTU2xCd1F1SzhxQTdBWGs5LWhzNGNiZTVFZ3BhbEdmODVSajRJYXM2aUNFYnlaM3dfODctNlpKUnM1Y3NpaER0RzlWd0hQN1hoMlU0b0hHLXlGeGpzOWtwS0hVTEt6eW9va2c0d3NZeV82cDZNLWVSb2dtVGh5QTNkZ2J6RnYzcVZtVnpKb09RTEHSAdQBQVVfeXFMTVVwZnJkN3NOLVluQWNFY2JHZkFVUW41bWNmMS1NODlOYm02WTg1bnA4a1FuRHVaWUVPcnpYdzZuM2pSdTZwOXYxdTZKb3k3ZjM2MlJCTWJMTnB5d3JkY2tLNkNtZDkwQlhxUWpTdHgyUk56enlKaFJWYnpjVm1UaVc5MmRPMV9kVDB1UUtvMGxaN1JBWTY2MHJhTXZTUnN6eHNZdk5NRVhKQWlZUkJzZFZvdXRsUDFpdlIwX2M0Y3Y0d0x6TDYybjlrQzhKUkhWZVdJWXI?oc=5"
+---
+
+Syed Mushtaq Ali Trophy: Rajasthan expose UP’s frailties in six-wicket rout | Cricket Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxPY1dOYl9wX215ck1EcDJXMEFKemtGd1hKQVY0RDJOdEFmTHJRNHQ0QVhiTlhlcHhPSVZQQkN6MXg3LWhoenFTU2xCd1F1SzhxQTdBWGs5LWhzNGNiZTVFZ3BhbEdmODVSajRJYXM2aUNFYnlaM3dfODctNlpKUnM1Y3NpaER0RzlWd0hQN1hoMlU0b0hHLXlGeGpzOWtwS0hVTEt6eW9va2c0d3NZeV82cDZNLWVSb2dtVGh5QTNkZ2J6RnYzcVZtVnpKb09RTEHSAdQBQVVfeXFMTVVwZnJkN3NOLVluQWNFY2JHZkFVUW41bWNmMS1NODlOYm02WTg1bnA4a1FuRHVaWUVPcnpYdzZuM2pSdTZwOXYxdTZKb3k3ZjM2MlJCTWJMTnB5d3JkY2tLNkNtZDkwQlhxUWpTdHgyUk56enlKaFJWYnpjVm1UaVc5MmRPMV9kVDB1UUtvMGxaN1JBWTY2MHJhTXZTUnN6eHNZdk5NRVhKQWlZUkJzZFZvdXRsUDFpdlIwX2M0Y3Y0d0x6TDYybjlrQzhKUkhWZVdJWXI?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

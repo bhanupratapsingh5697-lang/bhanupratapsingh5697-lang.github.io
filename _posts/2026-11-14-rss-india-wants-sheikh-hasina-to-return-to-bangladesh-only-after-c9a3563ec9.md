@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India wants Sheikh Hasina to return to Bangladesh only after Dhaka's guarantees: Report - India Today"
+date: 2026-11-14 09:15:15 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxQeHc0Y3lBSFJHeUZjcGdzR0kzM1hjRTQ5ZFUyQU82SFk0VUphdUdLemhRNm80Sml0V0MzMVFPNXlNZ3QtYXlwQ29GRFlNZXF3d0NTUTRwVlc5dWt1ZEdadTB1UUV6ZWxHSHllaGo4alp4Zm9VOGpUQ1BDS3BsZmh4T0UzSVJnUGhmZ0JOekFLZ0w0THJOODIyeHp3UTZTVmFsaExDOFZOdl8tSDVia3NuaHBrTUFiR25fcXRodE9sbDZjZUEzU2JvSl9MQ2RrM2VPNU5IZHFXbzHSAd4BQVVfeXFMTk5pOU9BRUVtQW1YNVBfSmxpUUp3N2x3ZllXVnlvb3hwYUZlVXZTRU1XZkhpNHoyTkhoRlFBeHFOUkNpUU00YXhkeTU5VHBGS21Sd19xdmhNUzUxMDBzcFd1UDNoYUZ6bzFtQVhsX3NlTGhSS0E4cEVkSE1QTTkzRUt5el9sZ3ViY0hLNlRCSlU2SWJycW9EZlN6WHZTLXpEUlhySXhjMl9KMm1KXy14OHpLNGFOSlR0VUp5aHFOekNKX19oTHE0RHBGMTA0bW1zcElNVDIwZHoyczdRbUln?oc=5"
+---
+
+India wants Sheikh Hasina to return to Bangladesh only after Dhaka's guarantees: Report India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxQeHc0Y3lBSFJHeUZjcGdzR0kzM1hjRTQ5ZFUyQU82SFk0VUphdUdLemhRNm80Sml0V0MzMVFPNXlNZ3QtYXlwQ29GRFlNZXF3d0NTUTRwVlc5dWt1ZEdadTB1UUV6ZWxHSHllaGo4alp4Zm9VOGpUQ1BDS3BsZmh4T0UzSVJnUGhmZ0JOekFLZ0w0THJOODIyeHp3UTZTVmFsaExDOFZOdl8tSDVia3NuaHBrTUFiR25fcXRodE9sbDZjZUEzU2JvSl9MQ2RrM2VPNU5IZHFXbzHSAd4BQVVfeXFMTk5pOU9BRUVtQW1YNVBfSmxpUUp3N2x3ZllXVnlvb3hwYUZlVXZTRU1XZkhpNHoyTkhoRlFBeHFOUkNpUU00YXhkeTU5VHBGS21Sd19xdmhNUzUxMDBzcFd1UDNoYUZ6bzFtQVhsX3NlTGhSS0E4cEVkSE1QTTkzRUt5el9sZ3ViY0hLNlRCSlU2SWJycW9EZlN6WHZTLXpEUlhySXhjMl9KMm1KXy14OHpLNGFOSlR0VUp5aHFOekNKX19oTHE0RHBGMTA0bW1zcElNVDIwZHoyczdRbUln?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

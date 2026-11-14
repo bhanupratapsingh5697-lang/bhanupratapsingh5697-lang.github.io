@@ -1,0 +1,17 @@
+---
+layout: post
+title: "U19 Asia Cup final: India overcome Pakistan by one wicket in thriller - The Hindu"
+date: 2026-11-14 15:35:05 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxNUENWNlJOLWNVTmE1N0J2ekN4U1pzUmhBcDhLLVVSV1ZJbm5PeEJFOXdvSXNQSWR0VEJzbGhseVNoODNWSzd3dXNvRDdKUHB6bWtkZndkUXU4U0pHcUpQemtzQkJDdnFCV0tTMjc1RGVScGkyUTgwWlkxV2d0dEs1cWhNaGFnMDBzTVdNNjV5YmVCWGtLa0NNSTJNWHB0eEN4VVA0d05ZeWcycFc3YWV0Ukg1eDN2RUZhSVHSAcABQVVfeXFMTnJTaFpnQkFUS2ZjeWlzd01kcm83NVVSSXZibTVZQmY4XzB0S0xwX2w1VWpNNkJIeFlfM3dZdHNXd1BUa2lpYmliUE81a2ctNWhkdW9JNkQya1YxQjc5RlB6S0dQUVF3TFNxaGtuTkpvTFpsRE90MWdpUE94dTlQZGtUM2loRUJmSXpSV1BVdW9IMk1LUW9mQXNNSVNiQ0QyT2hxdi1Ya3VuTFg0OVVrZnF2Z294alpXUXpVZy1WV0Fi?oc=5"
+---
+
+U19 Asia Cup final: India overcome Pakistan by one wicket in thriller The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxNUENWNlJOLWNVTmE1N0J2ekN4U1pzUmhBcDhLLVVSV1ZJbm5PeEJFOXdvSXNQSWR0VEJzbGhseVNoODNWSzd3dXNvRDdKUHB6bWtkZndkUXU4U0pHcUpQemtzQkJDdnFCV0tTMjc1RGVScGkyUTgwWlkxV2d0dEs1cWhNaGFnMDBzTVdNNjV5YmVCWGtLa0NNSTJNWHB0eEN4VVA0d05ZeWcycFc3YWV0Ukg1eDN2RUZhSVHSAcABQVVfeXFMTnJTaFpnQkFUS2ZjeWlzd01kcm83NVVSSXZibTVZQmY4XzB0S0xwX2w1VWpNNkJIeFlfM3dZdHNXd1BUa2lpYmliUE81a2ctNWhkdW9JNkQya1YxQjc5RlB6S0dQUVF3TFNxaGtuTkpvTFpsRE90MWdpUE94dTlQZGtUM2loRUJmSXpSV1BVdW9IMk1LUW9mQXNNSVNiQ0QyT2hxdi1Ya3VuTFg0OVVrZnF2Z294alpXUXpVZy1WV0Fi?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

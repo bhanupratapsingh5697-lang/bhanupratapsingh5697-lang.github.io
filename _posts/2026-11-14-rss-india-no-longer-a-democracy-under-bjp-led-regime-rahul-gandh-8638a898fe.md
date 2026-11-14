@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India no longer a democracy under BJP-led regime: Rahul Gandhi - The Hindu"
+date: 2026-11-14 20:06:28 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxQcVY1SzBqUDdQal9lSm9yQnlGZWNyNHJJcHpSVkJlSFNFTkpST281RE43ZHRVTWVvT01ta0tqd1R3MzlmYjBTWlduWFB2WERLbFNlMlMtMEtFYTZQNDJ0ZXY4MzRzZWUyd2Q3UXNNVTFkamRGWk9lTlJuLWlvQVI2NWo2Z2M0ZXI5RWhsX1F0TFR6QV9hSlRxZTNPMFdVM0ZWUXh1RWU1WFVma0tTamVPay04SHVPSjdRNVBld9IBwwFBVV95cUxNZ01FVXA3Yjl5QW50am9NcERxeEZsQkVuQ2JfNlpHMnFqajNVM3JDU0swa0I5LVlEczBYTmZkbXVkUWZHdG9mYmR6WnJWLVRLQ0JIUXpTTHR1c3lfNFNMdGtlSXoySFRIWWFaeWQ3R0hFMzF5bGlGQzBGc2JUeFdua0pySlFCdUFodG05S2lqVjZoN09yd0IxejlUV0tEaUNrSWNPUDRTQ2Fibk5MaW92WTF0d3QxcnM5bFBKV2t2T3pUYW8?oc=5"
+---
+
+India no longer a democracy under BJP-led regime: Rahul Gandhi The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxQcVY1SzBqUDdQal9lSm9yQnlGZWNyNHJJcHpSVkJlSFNFTkpST281RE43ZHRVTWVvT01ta0tqd1R3MzlmYjBTWlduWFB2WERLbFNlMlMtMEtFYTZQNDJ0ZXY4MzRzZWUyd2Q3UXNNVTFkamRGWk9lTlJuLWlvQVI2NWo2Z2M0ZXI5RWhsX1F0TFR6QV9hSlRxZTNPMFdVM0ZWUXh1RWU1WFVma0tTamVPay04SHVPSjdRNVBld9IBwwFBVV95cUxNZ01FVXA3Yjl5QW50am9NcERxeEZsQkVuQ2JfNlpHMnFqajNVM3JDU0swa0I5LVlEczBYTmZkbXVkUWZHdG9mYmR6WnJWLVRLQ0JIUXpTTHR1c3lfNFNMdGtlSXoySFRIWWFaeWQ3R0hFMzF5bGlGQzBGc2JUeFdua0pySlFCdUFodG05S2lqVjZoN09yd0IxejlUV0tEaUNrSWNPUDRTQ2Fibk5MaW92WTF0d3QxcnM5bFBKV2t2T3pUYW8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

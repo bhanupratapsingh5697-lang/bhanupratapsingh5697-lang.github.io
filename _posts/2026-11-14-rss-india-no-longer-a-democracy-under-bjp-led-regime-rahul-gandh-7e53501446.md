@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India no longer a democracy under BJP-led regime: Rahul Gandhi at Bharat Summit - The New Indian Express"
+date: 2026-11-14 22:15:22 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxQRmF2MXhnVlpTWVk0czdHZ1FDNk1rNlRjZG91OWdKY295MkxnSXc3UGZxNm0ydWRZZ3VocDBRclZJR1Y1QUNXalVQbGhHY0NBVG5rbVhWaGlfXy00aUxFT3JnRXBYUk9YZGxQU3NSYmdycXBOc2FGd0pQOUFjMVNuX0IwNS1iYzhhMy1UVDB0VV9IbHlRWHZsa3FqVzB0cERqRXNLU3ZZd3I2VTkxcEtUU09YSkVwdmtaRzhkNVBvNEh2aXg2ZU8yYdIB1gFBVV95cUxOY01nYllCTlVKNGRYRzFtRzhNVmNEYmZTNXY3NWw3dnZtb1BjaVRKdEFTUDlBeXFhTUZNLW1NbjYwYzFOMXN4QW9ROXMxbTM1ZlFmajYyRDUwdXl0dUpDRms4Qi1qMUxnYWlSd1FjTXZYUW9zLW1oZDR0YXJ6U3lIckFOY2o4T3NVME43SDNNYXRqbV9jNXJENl9jMXdtUEMxV2syMDVCT0I1SEthOENqaXV3ek1OY1ZwME5tRDJjNGdsUnVaM2pIRkpabXpuUFduNmRaMldn?oc=5"
+---
+
+India no longer a democracy under BJP-led regime: Rahul Gandhi at Bharat Summit The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxQRmF2MXhnVlpTWVk0czdHZ1FDNk1rNlRjZG91OWdKY295MkxnSXc3UGZxNm0ydWRZZ3VocDBRclZJR1Y1QUNXalVQbGhHY0NBVG5rbVhWaGlfXy00aUxFT3JnRXBYUk9YZGxQU3NSYmdycXBOc2FGd0pQOUFjMVNuX0IwNS1iYzhhMy1UVDB0VV9IbHlRWHZsa3FqVzB0cERqRXNLU3ZZd3I2VTkxcEtUU09YSkVwdmtaRzhkNVBvNEh2aXg2ZU8yYdIB1gFBVV95cUxOY01nYllCTlVKNGRYRzFtRzhNVmNEYmZTNXY3NWw3dnZtb1BjaVRKdEFTUDlBeXFhTUZNLW1NbjYwYzFOMXN4QW9ROXMxbTM1ZlFmajYyRDUwdXl0dUpDRms4Qi1qMUxnYWlSd1FjTXZYUW9zLW1oZDR0YXJ6U3lIckFOY2o4T3NVME43SDNNYXRqbV9jNXJENl9jMXdtUEMxV2syMDVCT0I1SEthOENqaXV3ek1OY1ZwME5tRDJjNGdsUnVaM2pIRkpabXpuUFduNmRaMldn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
