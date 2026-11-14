@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Board Postponed RBSE Class 10, 12 Board Exams 2027 Scheduled for February Due to Census Work - Jagran Josh"
+date: 2026-11-14 13:11:52 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxOMVFTa2dzemt6bkJQQklDXzdiRnhWQklSVmQtZk9WRkFZNVVZZEk1M2piTFNzRnZQUG4tZ0Y3dkNZd3ZfOVk1X2ZKZ0JSb1R0Y3phajM5bGF2S1lCZUI4b1BrYmI0Mkc2bDBHb2p4aEFFYk9ZcUFWTmZqendWUTVhTTRHNy1mSnJBV3JrUHBsNWZuUHYxb0xNS1AxSloyZUJzT3lnZGl2d2U4ZmVQdHplU01YM0ZoemlMUmVyS2tqZFFHbXZtMDZIaVZSeUt0MkxxWGtyZGVXMNIB3gFBVV95cUxNZDI4aS0wQUE2b1BDWHduZnFFQnptX3g4NTUycXpycFI2MDl1dHdKNjM4QmxoNTl3dTU2QU1DRzJ6WDY1T0xtc3VxZi1tSUxqNnFPOENlaGdmbjBTWlZybC12RGpDclBDUldUWE5DQy11bENJaVFBT2FUNkJEOWhkWkp5Zmo3dzJKUlhTX1IxU0FjX18xNHdnWFh3RWpJekpvanpFaW5iSnBrR2x5VU9MZ3BMbGt1YXhVeGU3Qm9xRjZ1VndUdC1paWRjbGNPeUhPbGZIVzVzZkduQ1F0ZkE?oc=5"
+---
+
+Rajasthan Board Postponed RBSE Class 10, 12 Board Exams 2027 Scheduled for February Due to Census Work Jagran Josh
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxOMVFTa2dzemt6bkJQQklDXzdiRnhWQklSVmQtZk9WRkFZNVVZZEk1M2piTFNzRnZQUG4tZ0Y3dkNZd3ZfOVk1X2ZKZ0JSb1R0Y3phajM5bGF2S1lCZUI4b1BrYmI0Mkc2bDBHb2p4aEFFYk9ZcUFWTmZqendWUTVhTTRHNy1mSnJBV3JrUHBsNWZuUHYxb0xNS1AxSloyZUJzT3lnZGl2d2U4ZmVQdHplU01YM0ZoemlMUmVyS2tqZFFHbXZtMDZIaVZSeUt0MkxxWGtyZGVXMNIB3gFBVV95cUxNZDI4aS0wQUE2b1BDWHduZnFFQnptX3g4NTUycXpycFI2MDl1dHdKNjM4QmxoNTl3dTU2QU1DRzJ6WDY1T0xtc3VxZi1tSUxqNnFPOENlaGdmbjBTWlZybC12RGpDclBDUldUWE5DQy11bENJaVFBT2FUNkJEOWhkWkp5Zmo3dzJKUlhTX1IxU0FjX18xNHdnWFh3RWpJekpvanpFaW5iSnBrR2x5VU9MZ3BMbGt1YXhVeGU3Qm9xRjZ1VndUdC1paWRjbGNPeUhPbGZIVzVzZkduQ1F0ZkE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

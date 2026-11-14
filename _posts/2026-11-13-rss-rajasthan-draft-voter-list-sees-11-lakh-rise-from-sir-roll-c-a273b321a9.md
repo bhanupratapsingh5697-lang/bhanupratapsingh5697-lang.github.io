@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan draft voter list sees 11 lakh rise from SIR roll, crosses 5.26 crore - India Today"
+date: 2026-11-13 16:13:33 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxNaEg1ZFN6eXRpWjFqNF80QnNTMlNPMHQxVVZsWU5iV0h1WXBQYV9nSlJGenpFeDRWaGpqdnZZeXRWVFNxQzEtNDJpeUJxcGhLWTNydE9aZWRBaURBSC01cS1haW5VVll0OFZDZURuQk1pSU1OWXE0NnlrSWMxaFRZYzNIbERINnFwYlNDMGF2QkhGTDFYV3B4cW9GWXBwUGNyZ3BORkFfT1RnQWdCNGpadEpNRU05NTNBZjNHdXVWcnA4N2hnTFBFc2JQMzk1N29uVEdHRXFB0gHbAUFVX3lxTE9iYnBsYlh3Qm43RnFJZ0ZfNjYwcElJdi1Ga0FKUlBVSndzd0pFNTMxSzdwdHV1aVJscnhFdE9Fc28zejU3b2o0eGg1VFpGUHdRdGhzQnJhX3NUZG9Zc3hBNTNsZUZwOGJqZmEwQ2gyWXBNeExNeS1zazVNQXBndXZoVU5ENHozV1JuNERaSWllQkFia1lsWjZ3bURDVGNZbjh6RWVqamJEQVF2dml6M3AzdmN6d21tYkFUR1RfVk5LLUs5Wnk5T2x5b01WdklHVkUxOWVXZThRUFVqcw?oc=5"
+---
+
+Rajasthan draft voter list sees 11 lakh rise from SIR roll, crosses 5.26 crore India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNaEg1ZFN6eXRpWjFqNF80QnNTMlNPMHQxVVZsWU5iV0h1WXBQYV9nSlJGenpFeDRWaGpqdnZZeXRWVFNxQzEtNDJpeUJxcGhLWTNydE9aZWRBaURBSC01cS1haW5VVll0OFZDZURuQk1pSU1OWXE0NnlrSWMxaFRZYzNIbERINnFwYlNDMGF2QkhGTDFYV3B4cW9GWXBwUGNyZ3BORkFfT1RnQWdCNGpadEpNRU05NTNBZjNHdXVWcnA4N2hnTFBFc2JQMzk1N29uVEdHRXFB0gHbAUFVX3lxTE9iYnBsYlh3Qm43RnFJZ0ZfNjYwcElJdi1Ga0FKUlBVSndzd0pFNTMxSzdwdHV1aVJscnhFdE9Fc28zejU3b2o0eGg1VFpGUHdRdGhzQnJhX3NUZG9Zc3hBNTNsZUZwOGJqZmEwQ2gyWXBNeExNeS1zazVNQXBndXZoVU5ENHozV1JuNERaSWllQkFia1lsWjZ3bURDVGNZbjh6RWVqamJEQVF2dml6M3AzdmN6d21tYkFUR1RfVk5LLUs5Wnk5T2x5b01WdklHVkUxOWVXZThRUFVqcw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

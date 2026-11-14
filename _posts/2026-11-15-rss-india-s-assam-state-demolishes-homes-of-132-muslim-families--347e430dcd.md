@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India’s Assam state demolishes homes of 132 Muslim families - Al Jazeera"
+date: 2026-11-15 01:53:23 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxPaWh4RnBrQW5sR3Q5Y0NPNmVhLTM0Y2F3ZDI1Nkx5WmxLUUk5ZEJzSjgyQlNwaUhOWlhTdFJDZzBSTDQzWnlHNGdwdHh4cUdJeXZ5bnR3TThLbGZJck91cjBrOGhuYTFKZVJGbWlpa2FsWnRCeXZ1ekcwQVdRVFZ5N2x4djNBeXVxYzNaa2FKeDJJM21aRUVOSGEyTGVybUpWWG5IdTZFQlBxUjTSAbABQVVfeXFMUG5reDIzRnBVYWdHdlRJR0trUXBGQTgtVTBtRjc1YWpQSDFLOVFBUmdqOC1aMHJHTm5WZUdjNGUyS3laY0U5QkJqN256NmJTNXNIQnJZX3pRWXZISkFTVkV0NkFvcFA1d25maXFTUTF3YTREcHExUExscWhNMjN2OUlrYVNoZnFESWlNcWtqNl9sNVI5cUt2ZjZpM2RfTUNtOVptYXBXbjNRNEM5dGo2ODg?oc=5"
+---
+
+India’s Assam state demolishes homes of 132 Muslim families Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPaWh4RnBrQW5sR3Q5Y0NPNmVhLTM0Y2F3ZDI1Nkx5WmxLUUk5ZEJzSjgyQlNwaUhOWlhTdFJDZzBSTDQzWnlHNGdwdHh4cUdJeXZ5bnR3TThLbGZJck91cjBrOGhuYTFKZVJGbWlpa2FsWnRCeXZ1ekcwQVdRVFZ5N2x4djNBeXVxYzNaa2FKeDJJM21aRUVOSGEyTGVybUpWWG5IdTZFQlBxUjTSAbABQVVfeXFMUG5reDIzRnBVYWdHdlRJR0trUXBGQTgtVTBtRjc1YWpQSDFLOVFBUmdqOC1aMHJHTm5WZUdjNGUyS3laY0U5QkJqN256NmJTNXNIQnJZX3pRWXZISkFTVkV0NkFvcFA1d25maXFTUTF3YTREcHExUExscWhNMjN2OUlrYVNoZnFESWlNcWtqNl9sNVI5cUt2ZjZpM2RfTUNtOVptYXBXbjNRNEM5dGo2ODg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

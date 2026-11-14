@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Batters need to fire as India targets series win - The Hindu"
+date: 2026-11-15 02:15:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxNOXV6VFl4RFJYX0djdGZOZGx1NGZlbDFpbzZTamZ0cDBISHptNHJTWnZKNDBPS0JPcFhiSGRGd0NJWUtaTjBOVWZNaktDYWtsT3BvVTg3YTlnQXdNREpDcmhvY3Z5RVVndW9fc2Z0aUlDS3c0YVVLVnV1ZEpPNlh1eV9SM203VEFIbTFoMDdhczBYbkZuWUhoR2hJQ2dXb0pWUEttTUd3RktqZEXSAbIBQVVfeXFMTmpqZXRXanJlWm1SYWNBYkQ0Tm95NFZPakFfMndhNjRaR1R5UkkyUWRwR2dXZDliamxVQWpZRndqOHA5Rk9xbnJBTVFWRnZpWkdEOE0zbG9fSHZ4NGwyODAtVjRKMWxjLTU1dlc1STNZNVNpaFlMaVAtYUM3NTRiZnZQaW5TSmp3aWt4d1Y0RG1YQl9XZFhGeHZJY2JoVjBmSUlaZHRqMHZJV19raFl2LUdHZw?oc=5"
+---
+
+Batters need to fire as India targets series win The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqwFBVV95cUxNOXV6VFl4RFJYX0djdGZOZGx1NGZlbDFpbzZTamZ0cDBISHptNHJTWnZKNDBPS0JPcFhiSGRGd0NJWUtaTjBOVWZNaktDYWtsT3BvVTg3YTlnQXdNREpDcmhvY3Z5RVVndW9fc2Z0aUlDS3c0YVVLVnV1ZEpPNlh1eV9SM203VEFIbTFoMDdhczBYbkZuWUhoR2hJQ2dXb0pWUEttTUd3RktqZEXSAbIBQVVfeXFMTmpqZXRXanJlWm1SYWNBYkQ0Tm95NFZPakFfMndhNjRaR1R5UkkyUWRwR2dXZDliamxVQWpZRndqOHA5Rk9xbnJBTVFWRnZpWkdEOE0zbG9fSHZ4NGwyODAtVjRKMWxjLTU1dlc1STNZNVNpaFlMaVAtYUM3NTRiZnZQaW5TSmp3aWt4d1Y0RG1YQl9XZFhGeHZJY2JoVjBmSUlaZHRqMHZJV19raFl2LUdHZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

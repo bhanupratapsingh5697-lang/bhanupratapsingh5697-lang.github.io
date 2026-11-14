@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India clinch U-19 Asia Cup with thrilling last-ball win over Pakistan - The New Indian Express"
+date: 2026-11-14 23:17:31 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxQSFNoS0dmZ2ZfcHJfeWh6SHBNaVFwVVpiZjYwUUM3T1FVSWREUUpkQUYtaHRpclVQSjJNaTFJNjFYNlhRTlY2VEdlUUpBS0RXU1lEbjJRdzl3OGxUeXpnM1RjNXlWYzlXWHUtNFIxTi1IZ2NrZWR5QnRiOHc4S0Z5am9WWjdqYmxhaTZGSlMxaDQzN2FKZDQ2X1BBcUhwTVNvc1g3N3BOTGFJczBxTVJRRl8yMWx5UTdha2xPTVl0LXEtZWNfZWdn0gHUAUFVX3lxTE11ZmFBVWZ4aGlOaWwzN1JpY0R3R3poT243cjNNQjRiOU1SVTVsOGV0cFM5QVhhMTlvS3VZUmhFdl8xdTdRVnh4NlVURnVoMmc4RjVDT1FPZDhiLWc2SmFlU0ZRRFJyVnNIWW5ING9LSndmQ1RRdnU3eEhrX1J1U2FTQjFRNUpPaktMVUFWcTNfaHlRanlwMkhlVk1waHF5WG16M21NNGxFOTVyZVp3d3QwTVpzWDF5ektIdGlaMFN5aWFOUXh4RFpWbm5yMWZwcHlPcHZI?oc=5"
+---
+
+India clinch U-19 Asia Cup with thrilling last-ball win over Pakistan The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxQSFNoS0dmZ2ZfcHJfeWh6SHBNaVFwVVpiZjYwUUM3T1FVSWREUUpkQUYtaHRpclVQSjJNaTFJNjFYNlhRTlY2VEdlUUpBS0RXU1lEbjJRdzl3OGxUeXpnM1RjNXlWYzlXWHUtNFIxTi1IZ2NrZWR5QnRiOHc4S0Z5am9WWjdqYmxhaTZGSlMxaDQzN2FKZDQ2X1BBcUhwTVNvc1g3N3BOTGFJczBxTVJRRl8yMWx5UTdha2xPTVl0LXEtZWNfZWdn0gHUAUFVX3lxTE11ZmFBVWZ4aGlOaWwzN1JpY0R3R3poT243cjNNQjRiOU1SVTVsOGV0cFM5QVhhMTlvS3VZUmhFdl8xdTdRVnh4NlVURnVoMmc4RjVDT1FPZDhiLWc2SmFlU0ZRRFJyVnNIWW5ING9LSndmQ1RRdnU3eEhrX1J1U2FTQjFRNUpPaktMVUFWcTNfaHlRanlwMkhlVk1waHF5WG16M21NNGxFOTVyZVp3d3QwTVpzWDF5ektIdGlaMFN5aWFOUXh4RFpWbm5yMWZwcHlPcHZI?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
