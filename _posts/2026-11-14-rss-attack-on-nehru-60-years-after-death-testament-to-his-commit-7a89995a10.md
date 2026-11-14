@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Attack on Nehru 60 years after death testament to his commitment to India: Priyanka - The Hindu"
+date: 2026-11-14 11:16:33 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxNQzJRbVRiOXpuYWNFT016Q0xPeVlvSDRtcEFKSEZBS2FlVV80R2J5cFN0Si1YUUJjUVB4S0FPaUxJWFEtalNMejN3cUQ1ZDUzazNJV3lZT2F6UjZSQlBqWUVTY2NiWFlhWE92Z0ZfcU9Nb3RQS1VzR1dGckNFV0dVbVFQWklaVzZ6VGFlLUJoMGo1QnN2RC11RmdvYXpiSEt4WDAzYXEzeV9iS0pBWjhfOXhXa0ZPY05P0gG_AUFVX3lxTE1aSTNsU2J0dWNsS2xROTV4dTNveS1XS1h6Qnkwa2pPQ29Wd0lDUDM3VVpPVksxbE0wLWkzSlZwcUFGdjdldDdISU4wb2FBOW1oQ3dqa2t6MC0xYmJia1JvT1RMUWE1RFp1MUlmUnhTaUZYbV9oM2JXa2YzVE5ySlplRUZidE9SZHN3WlR0d3RPOFRZam8wOFd6bDJOZjktT3BuVFI4VUs5a20yYUFSWTU0SGtYUkVsRXkteFp0N0x3?oc=5"
+---
+
+Attack on Nehru 60 years after death testament to his commitment to India: Priyanka The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNQzJRbVRiOXpuYWNFT016Q0xPeVlvSDRtcEFKSEZBS2FlVV80R2J5cFN0Si1YUUJjUVB4S0FPaUxJWFEtalNMejN3cUQ1ZDUzazNJV3lZT2F6UjZSQlBqWUVTY2NiWFlhWE92Z0ZfcU9Nb3RQS1VzR1dGckNFV0dVbVFQWklaVzZ6VGFlLUJoMGo1QnN2RC11RmdvYXpiSEt4WDAzYXEzeV9iS0pBWjhfOXhXa0ZPY05P0gG_AUFVX3lxTE1aSTNsU2J0dWNsS2xROTV4dTNveS1XS1h6Qnkwa2pPQ29Wd0lDUDM3VVpPVksxbE0wLWkzSlZwcUFGdjdldDdISU4wb2FBOW1oQ3dqa2t6MC0xYmJia1JvT1RMUWE1RFp1MUlmUnhTaUZYbV9oM2JXa2YzVE5ySlplRUZidE9SZHN3WlR0d3RPOFRZam8wOFd6bDJOZjktT3BuVFI4VUs5a20yYUFSWTU0SGtYUkVsRXkteFp0N0x3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

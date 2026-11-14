@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Brar added, Pant joins India’s Test squad; Kuldeep released - The Hindu"
+date: 2026-11-14 10:53:25 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxQWDhkbENQR2hkd09CNDZCVTh2V3Jzb1JGbGZPTEVjVVNPX0xielNFX0YwVGw4cUZjSGVXSU1YbkRrdGMxSncxYWVDYXdzVGJiaTRPZm9vV000R05wVXotOC1lN0tsSVdTWEZxS2FfX3JESE1XblQ0a3JhUUIxb0ZmdmxZN2lUcWc5OERpRWg5SWZPOXNzeVo4QzBBWlkyNDdiVGRMMzMyRUczR2hjWWFXcTZvWUMtQdIBvAFBVV95cUxObF8wS2lxWXktajJZQk5qbzM2QlZQZ3ptYlRkVkJzS2YzLXJCdktlRVgxZ1QyX0FkUVlTZTZlbW83NHJMNGo0REIwa0tlZW13RDI5TzBTbENoanNHTmF0UE9FUHJIcFgxVzBhZzc1V1VkU2xSaUZrYVZnUUtfNm93TTVHODRTZEhaZk52bTdqcTZwY1RPMGZTOHZ2c2RUbi11RnlIN0VTNGw2YVhrX0hmZm9NYWtIRGY0X0taYg?oc=5"
+---
+
+Brar added, Pant joins India’s Test squad; Kuldeep released The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxQWDhkbENQR2hkd09CNDZCVTh2V3Jzb1JGbGZPTEVjVVNPX0xielNFX0YwVGw4cUZjSGVXSU1YbkRrdGMxSncxYWVDYXdzVGJiaTRPZm9vV000R05wVXotOC1lN0tsSVdTWEZxS2FfX3JESE1XblQ0a3JhUUIxb0ZmdmxZN2lUcWc5OERpRWg5SWZPOXNzeVo4QzBBWlkyNDdiVGRMMzMyRUczR2hjWWFXcTZvWUMtQdIBvAFBVV95cUxObF8wS2lxWXktajJZQk5qbzM2QlZQZ3ptYlRkVkJzS2YzLXJCdktlRVgxZ1QyX0FkUVlTZTZlbW83NHJMNGo0REIwa0tlZW13RDI5TzBTbENoanNHTmF0UE9FUHJIcFgxVzBhZzc1V1VkU2xSaUZrYVZnUUtfNm93TTVHODRTZEhaZk52bTdqcTZwY1RPMGZTOHZ2c2RUbi11RnlIN0VTNGw2YVhrX0hmZm9NYWtIRGY0X0taYg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Wider access to diabetes technology needs policy support, experts say - The Hindu"
+date: 2026-11-14 06:00:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxNaERFUF9LMlNhcDFObFd5cGNoMk9WaTVrU213Wkd4SGVIMGEwY1ZkWGpLeFBkZU1iRE82RGRmUk9TcWlzOFdzaWFJSERKekVVS2xMTFlrdVVjSW1uLXJxUXJVeUxfX1FnVEZDYTVHZTJGcFB0N2tnR3BMOEhpZnVvc0tTWXNIY285MUtBUTR6bTR2QmNSV3hNbjJHa1RYbUw4MHdkOWRCakM5REhZWVJLaHZ5a3hHblV1ZFQ4M25QOWdvV1FrVEU1T9IBzwFBVV95cUxOQ3pHbWJpSlZYLU9ESElFM1VsNWNmTmVyNzVCbTUwd3Jra0hCTno0d0tERG9qU3IwaTVyb2xsTXBMRW8tZXZzUUZ0c0VtWjloMEtNejdtX1dVVFFfa2t1b1Q5Zm1BYkVVM19wN1JiSVVGS0ZUX3lJakdMTkxld3pfa3NaRXJaOVFqX3lGTDVFd2lWM2I5OWRxdTVLV00tWlAzLV9VQnFPbVAydG5XMEJsYnRaZW02cGhjQUVzNGZjYTJYN29nV1p3ZWpXTVNnbW8?oc=5"
+---
+
+Wider access to diabetes technology needs policy support, experts say The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNaERFUF9LMlNhcDFObFd5cGNoMk9WaTVrU213Wkd4SGVIMGEwY1ZkWGpLeFBkZU1iRE82RGRmUk9TcWlzOFdzaWFJSERKekVVS2xMTFlrdVVjSW1uLXJxUXJVeUxfX1FnVEZDYTVHZTJGcFB0N2tnR3BMOEhpZnVvc0tTWXNIY285MUtBUTR6bTR2QmNSV3hNbjJHa1RYbUw4MHdkOWRCakM5REhZWVJLaHZ5a3hHblV1ZFQ4M25QOWdvV1FrVEU1T9IBzwFBVV95cUxOQ3pHbWJpSlZYLU9ESElFM1VsNWNmTmVyNzVCbTUwd3Jra0hCTno0d0tERG9qU3IwaTVyb2xsTXBMRW8tZXZzUUZ0c0VtWjloMEtNejdtX1dVVFFfa2t1b1Q5Zm1BYkVVM19wN1JiSVVGS0ZUX3lJakdMTkxld3pfa3NaRXJaOVFqX3lGTDVFd2lWM2I5OWRxdTVLV00tWlAzLV9VQnFPbVAydG5XMEJsYnRaZW02cGhjQUVzNGZjYTJYN29nV1p3ZWpXTVNnbW8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

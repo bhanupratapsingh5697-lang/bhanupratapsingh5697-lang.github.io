@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Microsoft says services still returning amid widespread outage - Al Jazeera"
+date: 2026-11-14 01:51:38 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMipwFBVV95cUxNUkkzQUdNMERlTGtQbHRtanQ2U1hqT1RaMzljTEtiZXc3d0tTaVI0QkZ0aHdzcTRvc1hrTkZWUDhtblllVXB0eVBNemFKVFNUb1l1QnF1bFd6NVBKdzNMNkYxNmh6dW5QY0FJTWpWemJzRUFYeEFacnlxeDRmcV8xSkVyN0UxWUpPSWJrWEVGR0FsQXEwazZBSTdjSDRoaDQxWXVzem1Pb9IBrAFBVV95cUxNOWhmdXA5czZYZkRsbjVJc1FOVkNiU2hCZVU5ak9QX29WQ2Z1ODRuMkRNdnlCTm54Q1FLYUpZblY1ekJmRzhYU3Y0amcwenJnQzdCajBOcGNxR2NNOHBVRDNFMnYyM2c5dGJkSHN2MUxTTzVjY1JGemdHRHJlNm1oalU3NDNOUjZIeGEwbEJNQkd4T29XOEFnbnhrbzkxTndyWjZfVjBaaFU2blVT?oc=5"
+---
+
+Microsoft says services still returning amid widespread outage Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipwFBVV95cUxNUkkzQUdNMERlTGtQbHRtanQ2U1hqT1RaMzljTEtiZXc3d0tTaVI0QkZ0aHdzcTRvc1hrTkZWUDhtblllVXB0eVBNemFKVFNUb1l1QnF1bFd6NVBKdzNMNkYxNmh6dW5QY0FJTWpWemJzRUFYeEFacnlxeDRmcV8xSkVyN0UxWUpPSWJrWEVGR0FsQXEwazZBSTdjSDRoaDQxWXVzem1Pb9IBrAFBVV95cUxNOWhmdXA5czZYZkRsbjVJc1FOVkNiU2hCZVU5ak9QX29WQ2Z1ODRuMkRNdnlCTm54Q1FLYUpZblY1ekJmRzhYU3Y0amcwenJnQzdCajBOcGNxR2NNOHBVRDNFMnYyM2c5dGJkSHN2MUxTTzVjY1JGemdHRHJlNm1oalU3NDNOUjZIeGEwbEJNQkd4T29XOEFnbnhrbzkxTndyWjZfVjBaaFU2blVT?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

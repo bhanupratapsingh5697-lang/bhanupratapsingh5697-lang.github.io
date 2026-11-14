@@ -1,0 +1,17 @@
+---
+layout: post
+title: "When a Canadian prime minister walked through mud lanes to keep India out of the Soviet orbit - Scroll.in"
+date: 2026-11-14 11:30:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxQYkVFc0ROMVRuNjdDY1V6TmQ2OTZzeHRab3J2NHlOSEgxRFlFWWRFQVBjamdGeXFTUjZIcUEzUndXa1MxLWxyUFFPeXowdlF3WDRTbTB2NWtsdDNGaVRtTEd2ZUlsQkpocXh5U3F2SUZQZGpoOGtWR3V1SmZ2akRUQ0ppYjMzdU81T2l4eER2YXVWdVJkWEtScjVCQjVTSkJEaTFqcE9RUXZsV1VuYjRscHdCaUZPa0xFbk5uMlc4dVBiMEV6aW400gHMAUFVX3lxTE44a28yX1NCbjM5UkZNNEM2VEd3SkNxdGxsOURwcnB5SXpoMkpXYjBUdC0zWFFTTm9yWUF4ejcyRjdwMFcwUWl4T0xpMUlTVTRSVnJwM3VqYzE4MXd1VkRnaDJpa2U0YmtXUDZWZU10akRpYzNoRC1aYzJLX0YtVndwWlYzb3B1akpjYktDVlJtRWZyUE5EdUpHdkI4RmZiYWtKZC1UcUh0d1pDYjZjWXhja0R0WmdRMzZtT1g3UEx5QmItcXE4QWhKRVpObQ?oc=5"
+---
+
+When a Canadian prime minister walked through mud lanes to keep India out of the Soviet orbit Scroll.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxQYkVFc0ROMVRuNjdDY1V6TmQ2OTZzeHRab3J2NHlOSEgxRFlFWWRFQVBjamdGeXFTUjZIcUEzUndXa1MxLWxyUFFPeXowdlF3WDRTbTB2NWtsdDNGaVRtTEd2ZUlsQkpocXh5U3F2SUZQZGpoOGtWR3V1SmZ2akRUQ0ppYjMzdU81T2l4eER2YXVWdVJkWEtScjVCQjVTSkJEaTFqcE9RUXZsV1VuYjRscHdCaUZPa0xFbk5uMlc4dVBiMEV6aW400gHMAUFVX3lxTE44a28yX1NCbjM5UkZNNEM2VEd3SkNxdGxsOURwcnB5SXpoMkpXYjBUdC0zWFFTTm9yWUF4ejcyRjdwMFcwUWl4T0xpMUlTVTRSVnJwM3VqYzE4MXd1VkRnaDJpa2U0YmtXUDZWZU10akRpYzNoRC1aYzJLX0YtVndwWlYzb3B1akpjYktDVlJtRWZyUE5EdUpHdkI4RmZiYWtKZC1UcUh0d1pDYjZjWXhja0R0WmdRMzZtT1g3UEx5QmItcXE4QWhKRVpObQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

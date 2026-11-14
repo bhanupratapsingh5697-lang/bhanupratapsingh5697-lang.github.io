@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Gambhir 'concerned' by India's frequent ODI batting collapses - Cricinfo"
+date: 2026-11-13 16:49:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxOWVJDc19FRzR6ak5lcnlOdDlCc2FTWkY4NXYwMk1VRERsekxYN0lHbWw2VWxQaUlTTlprZ2hnNVM1ODcxZmp4WHJfRTF0cjJYLVJLWjBwdllOenA2Q1NYUmg1SE9hNjMydTdCZHlMR0tCdkRSNmFNR2VERXMzZmFQWkNuU1E4WDV1T3NoLVluVFhMSW5ZWFN3dWRxbjcwTm9jNU5UdTFXTHFGMkFVZXBRVXBadUNVTFZaZWpkSG5vbUo5RTTSAdQBQVVfeXFMT1NBajBWYnlvck5acy1tN1NQenhQVWNvRkJUTmF4ZEJRLWtBOWNRSUh3QW5fSWVmNkJNRWdpaldwc0NFTVpzV0xWODZEUUFnbzk4WWU5X1N3RVRFemtPZThGNU5HS3YxUTFLQ2Zaa0lZd0tUaUhUM05WUElHbHQxWEE2MURhY2FqLW9McklKMllkNjdscmlWTnd5RTZrV3NaTmUtc09MZEd0NUg0c2lnMGxhQ2k1WWpMQ3pKTXM1UkhzYWpqdFlLci1EQjRJMFJyeE1lckE?oc=5"
+---
+
+Gambhir 'concerned' by India's frequent ODI batting collapses Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOWVJDc19FRzR6ak5lcnlOdDlCc2FTWkY4NXYwMk1VRERsekxYN0lHbWw2VWxQaUlTTlprZ2hnNVM1ODcxZmp4WHJfRTF0cjJYLVJLWjBwdllOenA2Q1NYUmg1SE9hNjMydTdCZHlMR0tCdkRSNmFNR2VERXMzZmFQWkNuU1E4WDV1T3NoLVluVFhMSW5ZWFN3dWRxbjcwTm9jNU5UdTFXTHFGMkFVZXBRVXBadUNVTFZaZWpkSG5vbUo5RTTSAdQBQVVfeXFMT1NBajBWYnlvck5acy1tN1NQenhQVWNvRkJUTmF4ZEJRLWtBOWNRSUh3QW5fSWVmNkJNRWdpaldwc0NFTVpzV0xWODZEUUFnbzk4WWU5X1N3RVRFemtPZThGNU5HS3YxUTFLQ2Zaa0lZd0tUaUhUM05WUElHbHQxWEE2MURhY2FqLW9McklKMllkNjdscmlWTnd5RTZrV3NaTmUtc09MZEd0NUg0c2lnMGxhQ2k1WWpMQ3pKTXM1UkhzYWpqdFlLci1EQjRJMFJyeE1lckE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

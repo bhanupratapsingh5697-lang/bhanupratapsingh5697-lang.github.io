@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Microsoft outage highlights risks of relying on a single technology provider - The Indian Express"
+date: 2026-11-14 07:36:23 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxNUVpET2VRQUJXYno5VldVeW1fYlAyQV9xQmF2UHNYUzlVR1hnMEFvWEJIdC1LSUh3MGtrajJJcEpuVUt4WkprQzRVWWY0ZU1PSnN2N3pRMUxkUm5CNWlRdnFjZkttTGJPbXNZUEpMY0tldUhZLUtwYUdPU2ZaME1JQmJreTdSRDdoempja0ctcjNMU1VqcEtDdF9jTUZmMlNVNmtraTBscXhNOUZ0Q1lqSS1sTjJNazdsSjRCb2ZwYnV6Nk9McFVFTUViZ9IB0gFBVV95cUxOcEM2b0gyWnRWSWJiQ1R6RzBtems4Qm9OeHRoakRLc284Zkg0bUlmMk1wbTY2ZU1pb3dKYklzS096YUxYbzluVEhfUklNNkxZU2ZKSjVkU093TWhwOVBvdTQ1UWxYZ1BiWVNQU1gwYXdYa0xkRDhycHJKbUJsNTdmdXFuZG9wWDhQLV8tOENOR3dUZVNhUzVLalM3RFc3T3NmS0lIQnhQazNKVXRYVzF3QzNpZXVITlBPOXBSWHRaaV9reGRIMGh4QWs0REtwc1U4blE?oc=5"
+---
+
+Microsoft outage highlights risks of relying on a single technology provider The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxNUVpET2VRQUJXYno5VldVeW1fYlAyQV9xQmF2UHNYUzlVR1hnMEFvWEJIdC1LSUh3MGtrajJJcEpuVUt4WkprQzRVWWY0ZU1PSnN2N3pRMUxkUm5CNWlRdnFjZkttTGJPbXNZUEpMY0tldUhZLUtwYUdPU2ZaME1JQmJreTdSRDdoempja0ctcjNMU1VqcEtDdF9jTUZmMlNVNmtraTBscXhNOUZ0Q1lqSS1sTjJNazdsSjRCb2ZwYnV6Nk9McFVFTUViZ9IB0gFBVV95cUxOcEM2b0gyWnRWSWJiQ1R6RzBtems4Qm9OeHRoakRLc284Zkg0bUlmMk1wbTY2ZU1pb3dKYklzS096YUxYbzluVEhfUklNNkxZU2ZKSjVkU093TWhwOVBvdTQ1UWxYZ1BiWVNQU1gwYXdYa0xkRDhycHJKbUJsNTdmdXFuZG9wWDhQLV8tOENOR3dUZVNhUzVLalM3RFc3T3NmS0lIQnhQazNKVXRYVzF3QzNpZXVITlBPOXBSWHRaaV9reGRIMGh4QWs0REtwc1U4blE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan panchayat polls: Final phase of voting underway in 25 districts - The Hindu"
+date: 2026-11-14 10:54:06 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxPNV9NY2xFQkxUSGhJLW04SEU3OWJyWDduU0tjei0xTWJ0M252OTh5TTJhUENLckJWOVAwNi1HTjdwaTZreXlUbWxKblpjc3duVHRpN3lGYjlfckJZejdfVW44RXBkcDFZMFpLQzRWT0owLUs2OEJzS3VDVE9TakVQd0ZGM05kTVFNN2JjSlIzRzF5alNqVUlkclY4Zi1rVDEtNHp4bklrUVZIRnU5YTRmVkdZVk1vd1NmR29jc0daTGhJSy16dUhz0gHOAUFVX3lxTE0yWHdBYkphbVNfRGVfa2xmaUNGRVdXdENkdTBqdG1sWWd0YmE3YjRrZjlJQ0Vrc0Noc2hQeG5HaDNEU0hBLU1TTVlWSG5HV0sxZWx1UklEdTEzSVdiQ05DT2RIeEJQbklVVS04dWs2cTl5RUFLYVVUbGxweTNNNVI3NmUtR3VhVjZXYmRDMFRYUVpiNW9nX0N1cGJBNGpRNzdKbUZIRUVRaTRNSllTLUZJVkpVdG56THVocGtwSjU4LWU3clU4UXBzUkxEdzdn?oc=5"
+---
+
+Rajasthan panchayat polls: Final phase of voting underway in 25 districts The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxPNV9NY2xFQkxUSGhJLW04SEU3OWJyWDduU0tjei0xTWJ0M252OTh5TTJhUENLckJWOVAwNi1HTjdwaTZreXlUbWxKblpjc3duVHRpN3lGYjlfckJZejdfVW44RXBkcDFZMFpLQzRWT0owLUs2OEJzS3VDVE9TakVQd0ZGM05kTVFNN2JjSlIzRzF5alNqVUlkclY4Zi1rVDEtNHp4bklrUVZIRnU5YTRmVkdZVk1vd1NmR29jc0daTGhJSy16dUhz0gHOAUFVX3lxTE0yWHdBYkphbVNfRGVfa2xmaUNGRVdXdENkdTBqdG1sWWd0YmE3YjRrZjlJQ0Vrc0Noc2hQeG5HaDNEU0hBLU1TTVlWSG5HV0sxZWx1UklEdTEzSVdiQ05DT2RIeEJQbklVVS04dWs2cTl5RUFLYVVUbGxweTNNNVI3NmUtR3VhVjZXYmRDMFRYUVpiNW9nX0N1cGJBNGpRNzdKbUZIRUVRaTRNSllTLUZJVkpVdG56THVocGtwSjU4LWU3clU4UXBzUkxEdzdn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

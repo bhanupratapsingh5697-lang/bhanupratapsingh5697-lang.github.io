@@ -1,0 +1,17 @@
+---
+layout: post
+title: "26L deleted in Rajasthan post-SIR still on panchayat poll rolls: PUCL - The Times of India"
+date: 2026-11-14 00:57:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxPc3VISWYyVDR1TmU4R2tPX3plZnNwVGZQUk0xN0ozU21hZlo0blVCeWlFdzlENFdsTHpyS2dDd2UzMXc2aFFXa05odUtGZl9oRmt6Ym93NHRadk5aX25uUGJXRWhOWVVndEhhSVhkaU9RRzFvekx2ZDNMVEMwQkV5TTdqZHRQSlVqZExCaURwVDRQUjhIU1laWFdQYWdmMlpRdzJrNFFsNFZYMlRoY08yamFoZnF1U3ZPYWU2a3RLd2RZcmNYQVBUUUtzWlVWX3FYdWJ4Z3I3QVppUdIB3wFBVV95cUxNN0JjTzBVdUZNRVh1N19XNTM5bk5GSk5CM2gxVXRIUDBrbVRnRGRDWG1wOEQyaW83RzVUWmYyOUl2a1F1dkU4RW5NenEwZTBkYW9ob0JUcU4xOWtYcFVTUmxiakpGek9SSHVpTnFrcVZyZERtbkNVUlpvcUdidDY5Qmd5SUlvYlpUMDZLTXA4cjZNOXlhc1VrSWFwNTBxWWo2OGJRSzQtYXFyTFEwdFluQTdBYy1pcFBEMXJJMThzLW4tRXhYd3FwVHBnYW1KeUdWN1JPWGdCcUpORmJBc1BR?oc=5"
+---
+
+26L deleted in Rajasthan post-SIR still on panchayat poll rolls: PUCL The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPc3VISWYyVDR1TmU4R2tPX3plZnNwVGZQUk0xN0ozU21hZlo0blVCeWlFdzlENFdsTHpyS2dDd2UzMXc2aFFXa05odUtGZl9oRmt6Ym93NHRadk5aX25uUGJXRWhOWVVndEhhSVhkaU9RRzFvekx2ZDNMVEMwQkV5TTdqZHRQSlVqZExCaURwVDRQUjhIU1laWFdQYWdmMlpRdzJrNFFsNFZYMlRoY08yamFoZnF1U3ZPYWU2a3RLd2RZcmNYQVBUUUtzWlVWX3FYdWJ4Z3I3QVppUdIB3wFBVV95cUxNN0JjTzBVdUZNRVh1N19XNTM5bk5GSk5CM2gxVXRIUDBrbVRnRGRDWG1wOEQyaW83RzVUWmYyOUl2a1F1dkU4RW5NenEwZTBkYW9ob0JUcU4xOWtYcFVTUmxiakpGek9SSHVpTnFrcVZyZERtbkNVUlpvcUdidDY5Qmd5SUlvYlpUMDZLTXA4cjZNOXlhc1VrSWFwNTBxWWo2OGJRSzQtYXFyTFEwdFluQTdBYy1pcFBEMXJJMThzLW4tRXhYd3FwVHBnYW1KeUdWN1JPWGdCcUpORmJBc1BR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

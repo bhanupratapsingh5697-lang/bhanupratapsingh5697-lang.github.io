@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: PHC nursing officer benched for threatening medical officer, charging for free medicines - ThePrint"
+date: 2026-11-13 22:18:41 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxPbm1Odml2b3Y4dE82Y01rakk0clljSm5YV1kzbk5nOFlqOWJvek54bkZMSllNWVZjSTQ3MG5mYlZFSmhzcVVlZm1QWFo1V3hPc2ZVZG16UGJ6TzBrU3BqWEhDM3NqaDU5TjBLT292MlFqQmVzR3dLa2dKQ2xfbE5ILTVwNXJieTlZR2w3eXI4Mm9ENkw1Nmo2WTJCbmpDc3dhR0J4VTdmMWFqaU9KMjMyWmJUSEdBQV9nMXI0VDZGUlVGT0F6ZENRZnJtaljSAdIBQVVfeXFMTXlVVDJaRHh6bXhpMTQ0aU1nQ3YxdDVkemtiazk4Z1FRT1RKRTVpYUJUZzEyV3dnQ1NmMThUbEVRVkVIV180cEZIR3pOUnlqVGpuZEgyT2IycjdNUUt3cmxySHc3b05WTnNad0psMlRncEdTaHUzdTlGcWlDQlREN05YWVp3S2J2QVo5YWs1ZVMtNWxKLUhEMnRSbWswWk00bHJBRUYtbVk3RmkwOG5vbkVWVTU0a2tKYmJQV28yU0g1UENmQV8yTXFvd1A4QnFVLWJn?oc=5"
+---
+
+Rajasthan: PHC nursing officer benched for threatening medical officer, charging for free medicines ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxPbm1Odml2b3Y4dE82Y01rakk0clljSm5YV1kzbk5nOFlqOWJvek54bkZMSllNWVZjSTQ3MG5mYlZFSmhzcVVlZm1QWFo1V3hPc2ZVZG16UGJ6TzBrU3BqWEhDM3NqaDU5TjBLT292MlFqQmVzR3dLa2dKQ2xfbE5ILTVwNXJieTlZR2w3eXI4Mm9ENkw1Nmo2WTJCbmpDc3dhR0J4VTdmMWFqaU9KMjMyWmJUSEdBQV9nMXI0VDZGUlVGT0F6ZENRZnJtaljSAdIBQVVfeXFMTXlVVDJaRHh6bXhpMTQ0aU1nQ3YxdDVkemtiazk4Z1FRT1RKRTVpYUJUZzEyV3dnQ1NmMThUbEVRVkVIV180cEZIR3pOUnlqVGpuZEgyT2IycjdNUUt3cmxySHc3b05WTnNad0psMlRncEdTaHUzdTlGcWlDQlREN05YWVp3S2J2QVo5YWs1ZVMtNWxKLUhEMnRSbWswWk00bHJBRUYtbVk3RmkwOG5vbkVWVTU0a2tKYmJQV28yU0g1UENmQV8yTXFvd1A4QnFVLWJn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

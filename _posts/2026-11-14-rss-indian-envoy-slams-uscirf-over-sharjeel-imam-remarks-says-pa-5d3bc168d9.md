@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indian envoy slams USCIRF over Sharjeel Imam remarks, says panel has 'no locus standi' - The Hindu"
+date: 2026-11-14 10:16:38 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4AFBVV95cUxQR3lXazlDQ2p1T3kyWDA0TXd4VGJaRE1JZDVaTm1SSmlidVEwd0VyY0IwYVBGUG5uYzJYcmtlVlpNdmdVdklIMFVmVDdiNXZOYkxacHV3Xy1mTFNfZGdUUDRvYU10eGNaSmFlbGIwUXZyU3lOMks5ZS1SUzN4UmpSVDZDRS0xYWpuOGk3SGFTNnQwajdBSWdFcHREbFR1Q0Yta3RObE9Vei05c2tabUNKMlRGRnNaWk9qZHlMWks4WGhOUlM5T3RGdlZ6UERRN0I1NHVnSE03SHN2Wmh0X2dIZdIB5wFBVV95cUxNSmU4d0taVHF2cWFMdnlUMFU5QnMwSVBxN1hiNW1YaDJmSTJ2amptb0NkS1laSmoxVnZxRS1Bc05KaS11WWhjVEMzU0RDQVlEV1hEVUp3b1VMdjd2TXpqV19kSTA3dDFkcDJmRnotNTVmZkVybV9kLTQtSFdqazlJOWNXTG4xQXdyWXZuWGJEMERjb1FZc3R4c29Zb2JnYWduYVM3b2Ywdml5RWhfYjRIYmdZMXNUdEhBanRBaG9lVHkyQ25xV0pveW5FVnpNY29fUjR2THFiWVZPMlZJR3UtLTVvV0pPdkk?oc=5"
+---
+
+Indian envoy slams USCIRF over Sharjeel Imam remarks, says panel has 'no locus standi' The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4AFBVV95cUxQR3lXazlDQ2p1T3kyWDA0TXd4VGJaRE1JZDVaTm1SSmlidVEwd0VyY0IwYVBGUG5uYzJYcmtlVlpNdmdVdklIMFVmVDdiNXZOYkxacHV3Xy1mTFNfZGdUUDRvYU10eGNaSmFlbGIwUXZyU3lOMks5ZS1SUzN4UmpSVDZDRS0xYWpuOGk3SGFTNnQwajdBSWdFcHREbFR1Q0Yta3RObE9Vei05c2tabUNKMlRGRnNaWk9qZHlMWks4WGhOUlM5T3RGdlZ6UERRN0I1NHVnSE03SHN2Wmh0X2dIZdIB5wFBVV95cUxNSmU4d0taVHF2cWFMdnlUMFU5QnMwSVBxN1hiNW1YaDJmSTJ2amptb0NkS1laSmoxVnZxRS1Bc05KaS11WWhjVEMzU0RDQVlEV1hEVUp3b1VMdjd2TXpqV19kSTA3dDFkcDJmRnotNTVmZkVybV9kLTQtSFdqazlJOWNXTG4xQXdyWXZuWGJEMERjb1FZc3R4c29Zb2JnYWduYVM3b2Ywdml5RWhfYjRIYmdZMXNUdEhBanRBaG9lVHkyQ25xV0pveW5FVnpNY29fUjR2THFiWVZPMlZJR3UtLTVvV0pPdkk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Crocker’s Nehru - Telegraph India"
+date: 2026-11-14 08:27:09 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxOWjhWRzZvZlBwSGdqOE9mNlFzRlg4NkZIR2dJQ052dGJoZDg2eFBfRjAxUXBvQWd6clJGVXBnTURfUTNvVGlhUUZYMWVqUmxzRmc2V0dEWmhVMFJ2Zm5wQy0xZll4ek9mZVJ5blA0Q01UWkJiX085TU9BNW5SWWRRbDNUV2lIWUhEUVhWYmdRd0hweVRCX25YVVh2ck5ZQ05Db0lWUThVbm0wN2xSQUJmMV9OODdoUdIBuwFBVV95cUxNTGREM2NJZ21oNDFWMkM4TEFEVDVOcHZvZllGUFhzVXBFOTlSN3VNTi1WRElKb0FOWnpkYjFZYUVGbkwxdmNKN3JjYWpZWi1VaWV2SUxObTZ3cFZWTEdSVVRxY0ZHLV9iSjhua2JSdnlnX1lZZXRXel9nQmRBcVRWTmRnOERObnZabFhGbTJ3VXFSMFdJZHQ1YUJFa0thY0pVd0lFQl8xOW5KYXhBOTdpRHgybmFsMWNWUjBV?oc=5"
+---
+
+Crocker’s Nehru Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxOWjhWRzZvZlBwSGdqOE9mNlFzRlg4NkZIR2dJQ052dGJoZDg2eFBfRjAxUXBvQWd6clJGVXBnTURfUTNvVGlhUUZYMWVqUmxzRmc2V0dEWmhVMFJ2Zm5wQy0xZll4ek9mZVJ5blA0Q01UWkJiX085TU9BNW5SWWRRbDNUV2lIWUhEUVhWYmdRd0hweVRCX25YVVh2ck5ZQ05Db0lWUThVbm0wN2xSQUJmMV9OODdoUdIBuwFBVV95cUxNTGREM2NJZ21oNDFWMkM4TEFEVDVOcHZvZllGUFhzVXBFOTlSN3VNTi1WRElKb0FOWnpkYjFZYUVGbkwxdmNKN3JjYWpZWi1VaWV2SUxObTZ3cFZWTEdSVVRxY0ZHLV9iSjhua2JSdnlnX1lZZXRXel9nQmRBcVRWTmRnOERObnZabFhGbTJ3VXFSMFdJZHQ1YUJFa0thY0pVd0lFQl8xOW5KYXhBOTdpRHgybmFsMWNWUjBV?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

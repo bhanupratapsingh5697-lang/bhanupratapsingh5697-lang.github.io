@@ -1,0 +1,17 @@
+---
+layout: post
+title: "8,843 candidates in fray as Rajasthan gears up for final phase of panchayat polls - ThePrint"
+date: 2026-11-13 15:20:33 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxPNmFwUGlsU0Y4YXJYQ3hBUTNiSHJYQ1REbThkS0NLZVFaNjYxSVNEbzJZUFQxaTRlNHVqdzBNX2NaM0tSQnZWbXZ6ekpTaFRWWFNaU0xyX0Z4RXdjbWpXenRXQUxGOVMyZERVTGxOZTV0LTMtR1dyUC1vVUU2T0p3cHg3Rjk1cFlhekFOZWNOTzVzM3NWejU0aFEtZkdLLUFUR1NpWkNSYWY5T05aV0MzZ3hpSjNDQdIBuwFBVV95cUxOMjJQM3dDMzBRc2ZLa2pOamk5bE1RaGUwTzRyT0dJTmVjTkU1Rm8zVUMtWWhuSU5xdXh1cE5sdWF0MDZCNWdya2VXc1AxVUpaYkhjdURFQ2k0OW9DYlE3R0cxQWl6azRsQVVOY1VkWmNoaXloNVhBdi1GTS1TM1RJVnB4aFhTRl9FOVJ2cS01VkJ0WGxEZ2dJamdPNDhOcTFTUHZpWHNHLWd0ZDJIRFJwYnBtbmJsNFh3Qk04?oc=5"
+---
+
+8,843 candidates in fray as Rajasthan gears up for final phase of panchayat polls ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxPNmFwUGlsU0Y4YXJYQ3hBUTNiSHJYQ1REbThkS0NLZVFaNjYxSVNEbzJZUFQxaTRlNHVqdzBNX2NaM0tSQnZWbXZ6ekpTaFRWWFNaU0xyX0Z4RXdjbWpXenRXQUxGOVMyZERVTGxOZTV0LTMtR1dyUC1vVUU2T0p3cHg3Rjk1cFlhekFOZWNOTzVzM3NWejU0aFEtZkdLLUFUR1NpWkNSYWY5T05aV0MzZ3hpSjNDQdIBuwFBVV95cUxOMjJQM3dDMzBRc2ZLa2pOamk5bE1RaGUwTzRyT0dJTmVjTkU1Rm8zVUMtWWhuSU5xdXh1cE5sdWF0MDZCNWdya2VXc1AxVUpaYkhjdURFQ2k0OW9DYlE3R0cxQWl6azRsQVVOY1VkWmNoaXloNVhBdi1GTS1TM1RJVnB4aFhTRl9FOVJ2cS01VkJ0WGxEZ2dJamdPNDhOcTFTUHZpWHNHLWd0ZDJIRFJwYnBtbmJsNFh3Qk04?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
