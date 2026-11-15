@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Malaysian gamers aged 52 to 64 beat Japan to win Asia's first live senior e-sports tournament | Trending - Hindustan Times"
+date: 2026-11-15 11:03:43 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi6AFBVV95cUxQU0JiWnZrYUtGMjJoMFljTC1OakRrOFRsWWdYVUtUSEI5Q0NuTF9EWHpydU16ZkxzRHJ6aWNhX2NaaDU4WFF0MWZnUDNFS1NqemZFdlhoakVKbFRueGtkREhGYmIydjB6ei03akNpNVdrcjhiYzhHdnFWOVJPSXdFeGhRRlJHSnpXcFkxeEhZd2haVVNLWXFvQnhYQkkwa3E4YnJmUmRmdDNpV3lidVQxV0tLcHpQbEpQalFtY2I0U29kdVJwR1dkM3VIU3RTWTF3M1ZONmFLaEJodk1RWl9vOHVwWjBGWGpz0gHuAUFVX3lxTE00SkliRF9BZXhYYVhPMW9ITUFoaTdfeEFaQjBsLVFlbnZmUUk3Sk5GMVplOUduSzJVUHpVMXBSdTlZWDJSTW5vSkMzaEQxa2JKOXFOSDRqY1MyX2pfcHBBVjdJNHZfWXdjanVMX1NGX1Q1UXpEWGVsOXhJZlpTcnZhQWdINmRIQnN5YzJadVBpV3Byd1lIcXI5NHZkYjRsVXd3alEtNjlYMF9nVVc4SjhRajNHVmIxUV9qR3RGMVRVMnRTTTkxcEhWbGNmYzAweVJFc09tMWg1M0Z4R3I0VHlrd3RqMTNsQy1DZlQ0NFE?oc=5"
+---
+
+Malaysian gamers aged 52 to 64 beat Japan to win Asia's first live senior e-sports tournament | Trending Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi6AFBVV95cUxQU0JiWnZrYUtGMjJoMFljTC1OakRrOFRsWWdYVUtUSEI5Q0NuTF9EWHpydU16ZkxzRHJ6aWNhX2NaaDU4WFF0MWZnUDNFS1NqemZFdlhoakVKbFRueGtkREhGYmIydjB6ei03akNpNVdrcjhiYzhHdnFWOVJPSXdFeGhRRlJHSnpXcFkxeEhZd2haVVNLWXFvQnhYQkkwa3E4YnJmUmRmdDNpV3lidVQxV0tLcHpQbEpQalFtY2I0U29kdVJwR1dkM3VIU3RTWTF3M1ZONmFLaEJodk1RWl9vOHVwWjBGWGpz0gHuAUFVX3lxTE00SkliRF9BZXhYYVhPMW9ITUFoaTdfeEFaQjBsLVFlbnZmUUk3Sk5GMVplOUduSzJVUHpVMXBSdTlZWDJSTW5vSkMzaEQxa2JKOXFOSDRqY1MyX2pfcHBBVjdJNHZfWXdjanVMX1NGX1Q1UXpEWGVsOXhJZlpTcnZhQWdINmRIQnN5YzJadVBpV3Byd1lIcXI5NHZkYjRsVXd3alEtNjlYMF9nVVc4SjhRajNHVmIxUV9qR3RGMVRVMnRTTTkxcEhWbGNmYzAweVJFc09tMWg1M0Z4R3I0VHlrd3RqMTNsQy1DZlQ0NFE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

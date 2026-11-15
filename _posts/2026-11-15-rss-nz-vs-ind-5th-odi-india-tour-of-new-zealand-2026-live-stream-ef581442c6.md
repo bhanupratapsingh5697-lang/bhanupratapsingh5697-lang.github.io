@@ -1,0 +1,17 @@
+---
+layout: post
+title: "NZ vs IND, 5th ODI, India tour of New Zealand 2026 - Live Stream - Cricbuzz"
+date: 2026-11-15 07:02:13 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiogFBVV95cUxONF9VNUpHbUpKRE1WQ0ZDelg0SDVESVlicXFROVdKU0x3dmNlRlBQcy1Mem1yRVFLbS1VV0oyeGktSFdsOTFGRXBzQjFRTmVvVGt1NE1YZFRaOGs0Mm5lZHlKVkhQNE9meVNyM0J2NEFZc1h1LUlXOHBRVTM3ZURzRHdHQ3dYVU5WVVduRUtJZVlYeXdOalJxSzhmVmo0T0pWaXc?oc=5"
+---
+
+NZ vs IND, 5th ODI, India tour of New Zealand 2026 - Live Stream Cricbuzz
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiogFBVV95cUxONF9VNUpHbUpKRE1WQ0ZDelg0SDVESVlicXFROVdKU0x3dmNlRlBQcy1Mem1yRVFLbS1VV0oyeGktSFdsOTFGRXBzQjFRTmVvVGt1NE1YZFRaOGs0Mm5lZHlKVkhQNE9meVNyM0J2NEFZc1h1LUlXOHBRVTM3ZURzRHdHQ3dYVU5WVVduRUtJZVlYeXdOalJxSzhmVmo0T0pWaXc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

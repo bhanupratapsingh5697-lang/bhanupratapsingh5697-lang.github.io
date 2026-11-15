@@ -1,0 +1,17 @@
+---
+layout: post
+title: "US flights resume after ageing technology blamed for outage - Al Jazeera"
+date: 2026-11-15 03:17:31 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMisAFBVV95cUxQT2xISFZ5aDdmX1dnN2dHUWFnUUtOQko3dTg1ZnI4eHdaUXZxTEU5NVZkc3lFYXo2SWpnOUJ4a0ZwV2NkMkhmOTlCZFdvc3hOVDVjaDRIVGlWcXhkR0huV1U5YzQzbWVGRU11VmFjblRyY0RmcTkxcS1fWmhjY0UzSE43Q1AzVWNETGFuYWNRZlhCRGRSZWV2UFZMeUxVOWhWd2VsWmsxNEN6dGt2dzlJZtIBtgFBVV95cUxQU3ZoUl9yY0E3bTEyWVR2QmphOEJrRnBpcFpMQlcwMS13QzZmM1hNZlZFSkxDUkRmdUF2UjB5YVVVbkl1VVEyS1RaZ1NSR3hYSXNMWl93V0MtSWxpeTBIbVJqS1ZRZ1dvUndXVXp6SHN6V3NGT0R5UGtKdnl4T2h2eFAzeTJZSFZ2M1hJYzRYT2JTeHJ4MFJyZ19iWEd1em1ESkxvdVlHR1piQkpqVGNNNnRoWDlqZw?oc=5"
+---
+
+US flights resume after ageing technology blamed for outage Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisAFBVV95cUxQT2xISFZ5aDdmX1dnN2dHUWFnUUtOQko3dTg1ZnI4eHdaUXZxTEU5NVZkc3lFYXo2SWpnOUJ4a0ZwV2NkMkhmOTlCZFdvc3hOVDVjaDRIVGlWcXhkR0huV1U5YzQzbWVGRU11VmFjblRyY0RmcTkxcS1fWmhjY0UzSE43Q1AzVWNETGFuYWNRZlhCRGRSZWV2UFZMeUxVOWhWd2VsWmsxNEN6dGt2dzlJZtIBtgFBVV95cUxQU3ZoUl9yY0E3bTEyWVR2QmphOEJrRnBpcFpMQlcwMS13QzZmM1hNZlZFSkxDUkRmdUF2UjB5YVVVbkl1VVEyS1RaZ1NSR3hYSXNMWl93V0MtSWxpeTBIbVJqS1ZRZ1dvUndXVXp6SHN6V3NGT0R5UGtKdnl4T2h2eFAzeTJZSFZ2M1hJYzRYT2JTeHJ4MFJyZ19iWEd1em1ESkxvdVlHR1piQkpqVGNNNnRoWDlqZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "2 With Pakistan Links Arrested In Punjab For Rajasthan Train Track Blast - NDTV"
+date: 2026-11-15 10:22:01 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxNWW1aMWJwV1VmWTZ4bXNwZlJNdU9VRmgwMzRIREpyVmRIWDRMNE9wYWVudmtabDZNU0xrQ1dsVWtPLXNfSkh0NE9QWUZ1U09jbHFKY1ZaRzYyVmZOdFNNRURTYWRCc2VPbWlxdjRUT0pCNTRIdzh5UXRpNTUxNXpYNjJib045bEhuQkF6ZUx2Y2VmUUVDcjV6NWhHYWk2cUJ1cS13dDlBQktGbUhJeUZqWkNWSzRSa25FLUJRR1JUNHJZWEJ5RFNJ0gHPAUFVX3lxTE9acHVUSy0zZ2FuQjhvbTJYLWlBSkpyZnJaNEtJRHotX3o2OVI5NlY1ZUlSZ0x1RFNxRVlhdkYwNE1yUVlva3hoVkN3UmVwUVpaOUhxZlh4N0dPN3M4YkhkUlk4U1dKaU91bmwxRlQzN1RpbS1uYWthaHJpU1VLUG1yNmZWdzFJai1LM0Vob1loM09QZmUxLXdKcjhWcUhSTl9xMXRyZnBDV1QtM0FlWUlFYVFpWVpUMVNSQ1hxMkd5U19pQlNDWkF2Qzh6cHF5VQ?oc=5"
+---
+
+2 With Pakistan Links Arrested In Punjab For Rajasthan Train Track Blast NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxNWW1aMWJwV1VmWTZ4bXNwZlJNdU9VRmgwMzRIREpyVmRIWDRMNE9wYWVudmtabDZNU0xrQ1dsVWtPLXNfSkh0NE9QWUZ1U09jbHFKY1ZaRzYyVmZOdFNNRURTYWRCc2VPbWlxdjRUT0pCNTRIdzh5UXRpNTUxNXpYNjJib045bEhuQkF6ZUx2Y2VmUUVDcjV6NWhHYWk2cUJ1cS13dDlBQktGbUhJeUZqWkNWSzRSa25FLUJRR1JUNHJZWEJ5RFNJ0gHPAUFVX3lxTE9acHVUSy0zZ2FuQjhvbTJYLWlBSkpyZnJaNEtJRHotX3o2OVI5NlY1ZUlSZ0x1RFNxRVlhdkYwNE1yUVlva3hoVkN3UmVwUVpaOUhxZlh4N0dPN3M4YkhkUlk4U1dKaU91bmwxRlQzN1RpbS1uYWthaHJpU1VLUG1yNmZWdzFJai1LM0Vob1loM09QZmUxLXdKcjhWcUhSTl9xMXRyZnBDV1QtM0FlWUlFYVFpWVpUMVNSQ1hxMkd5U19pQlNDWkF2Qzh6cHF5VQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Technological mindlessness - The Hindu"
+date: 2026-11-15 05:08:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMikwFBVV95cUxNVHc5eGdzaWE5N2tmbU15MFh3aDZBa2lXUnFHTkhXSWlrUDd4X0Y1U2lkY2JnVXVyYUdYUElUdzNIcjNpTEt4czFwV3ZRVUc5ZXlYdHNEdHNPTVNMNkJOU2R4MXQ4QTFLWTU2WDBNemx6LWpXZHpWYXJPNHdSX0wwQWhHU2tNWUxrUzN1UWtQMkQ4UE3SAZoBQVVfeXFMTXpPNGl0VDd3NFR2eFJXWkw3bmpRS21QM1JMeE1qa21CdkpHOVF3THV4NVlGWHVvUTF3S3ppWklLZFJyTXRrWHJXUFdKU0dBY2FEMmVsOU0tZUhvRnRlbzdfTk1DZzUyZjNfd3NId3UxSmtCeFFhdC1nbGdubGxiLXVBZkZjZnpab3VkaE1rUk4yUFFDWTRpQkY3Zw?oc=5"
+---
+
+Technological mindlessness The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMikwFBVV95cUxNVHc5eGdzaWE5N2tmbU15MFh3aDZBa2lXUnFHTkhXSWlrUDd4X0Y1U2lkY2JnVXVyYUdYUElUdzNIcjNpTEt4czFwV3ZRVUc5ZXlYdHNEdHNPTVNMNkJOU2R4MXQ4QTFLWTU2WDBNemx6LWpXZHpWYXJPNHdSX0wwQWhHU2tNWUxrUzN1UWtQMkQ4UE3SAZoBQVVfeXFMTXpPNGl0VDd3NFR2eFJXWkw3bmpRS21QM1JMeE1qa21CdkpHOVF3THV4NVlGWHVvUTF3S3ppWklLZFJyTXRrWHJXUFdKU0dBY2FEMmVsOU0tZUhvRnRlbzdfTk1DZzUyZjNfd3NId3UxSmtCeFFhdC1nbGdubGxiLXVBZkZjZnpab3VkaE1rUk4yUFFDWTRpQkY3Zw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

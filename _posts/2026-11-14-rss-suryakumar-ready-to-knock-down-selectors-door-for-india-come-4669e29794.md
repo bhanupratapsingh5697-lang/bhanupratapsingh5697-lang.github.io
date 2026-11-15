@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Suryakumar ready to 'knock down' selectors' door for India comeback - Cricinfo"
+date: 2026-11-14 20:50:19 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxNSDRkWTVLaDMtSmJ1RXI0b3lKclpFSjA2eVNhbEZTY0xucDh0eUtqajZvaWI0REU3QmVYbGdPSnRmQVZ5d0trb0pmaG1fdHdXakUzSHJSUGo1Zk4wUkVDT3RtQ0p0aURLR3I2UnlHQkFOenY3Y29wQktQQVFnRk1SaXA3SlQteHZ4SnRXS1laNW1zWHhuSUk0NXI2Qk9RYXFlTzJYZkt3QXY5a1d4ODJaSXZyT3rSAcYBQVVfeXFMUDJzUVlWTjAzY0VZMkJJelpzOFFMT2F1WHg1c0JkbzBJRGkxUm9HRzN6Q2xHNm1ySjQyOVR0U1RQX25tQl9XS210RGVKU3BWbXFpMW81bjVUbEp1LXNpQnhPZThZeFg1blYwTmpvc2w4X0NhSUxoWmlnT29kMHI4bWdHZWZnbk5MNzBYTUdIZ2lFYm9TZmNnbGlPdG1tb2prTDQxRU1tM1lMaUpJY3kyWWxkNmlvZTFKUUFmNDJSbW5IdGF5VURn?oc=5"
+---
+
+Suryakumar ready to 'knock down' selectors' door for India comeback Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxNSDRkWTVLaDMtSmJ1RXI0b3lKclpFSjA2eVNhbEZTY0xucDh0eUtqajZvaWI0REU3QmVYbGdPSnRmQVZ5d0trb0pmaG1fdHdXakUzSHJSUGo1Zk4wUkVDT3RtQ0p0aURLR3I2UnlHQkFOenY3Y29wQktQQVFnRk1SaXA3SlQteHZ4SnRXS1laNW1zWHhuSUk0NXI2Qk9RYXFlTzJYZkt3QXY5a1d4ODJaSXZyT3rSAcYBQVVfeXFMUDJzUVlWTjAzY0VZMkJJelpzOFFMT2F1WHg1c0JkbzBJRGkxUm9HRzN6Q2xHNm1ySjQyOVR0U1RQX25tQl9XS210RGVKU3BWbXFpMW81bjVUbEp1LXNpQnhPZThZeFg1blYwTmpvc2w4X0NhSUxoWmlnT29kMHI4bWdHZWZnbk5MNzBYTUdIZ2lFYm9TZmNnbGlPdG1tb2prTDQxRU1tM1lMaUpJY3kyWWxkNmlvZTFKUUFmNDJSbW5IdGF5VURn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

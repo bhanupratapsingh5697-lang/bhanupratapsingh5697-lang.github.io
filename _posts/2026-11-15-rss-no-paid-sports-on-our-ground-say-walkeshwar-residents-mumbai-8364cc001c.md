@@ -1,0 +1,17 @@
+---
+layout: post
+title: "No paid sports on our ground, say Walkeshwar residents | Mumbai news - Hindustan Times"
+date: 2026-11-15 07:43:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxNWHNpUkYzQ0FOdW0zalJMSVhBdmJYZmlVQWNsNHpIQ2d2RWVSQ3FTYTlIWVRNMHJSTmJMME5IMHZCOGVmS08wdXlldVY2dEtYS21BWlVac1RtR1hPbjBiX2dST3oyUHFGZG92aDZVSzlKelJNSHhGSndtWkpLdDExZkdpWjMwOWpvVEk0ejVLUE5LUE8zS21wQ0tRQUs4RWM1cTR6WFRSUzNkWmc5VlNERVM5aDkzWnRuNS1IdjdQTFpnZ9IBxwFBVV95cUxPby1HOVRLUnIxNUJ5bkJLMmxFTHg3Yzl0TmNoWlJ3UUZMakRQaUFNeVY0dVRkQXNkWENKd1ZYbEFfc0E1LWFvUHdOVVJTVTdDMlhEd3hPV0NieEJSdVFHcUhPUTlMMS1QRU5BSTgyLVJoYVU5c3ZILVZvQlVmcFpFTmxyTVBLR2loeThNQXFQYmk4MF9yekt3N3dEZGZOVXc1UVVDMEx6aVQzbWp6VXhoTkdtTE9jTWdmLWtCY0pkZ3RKam1Zb3VJ?oc=5"
+---
+
+No paid sports on our ground, say Walkeshwar residents | Mumbai news Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNWHNpUkYzQ0FOdW0zalJMSVhBdmJYZmlVQWNsNHpIQ2d2RWVSQ3FTYTlIWVRNMHJSTmJMME5IMHZCOGVmS08wdXlldVY2dEtYS21BWlVac1RtR1hPbjBiX2dST3oyUHFGZG92aDZVSzlKelJNSHhGSndtWkpLdDExZkdpWjMwOWpvVEk0ejVLUE5LUE8zS21wQ0tRQUs4RWM1cTR6WFRSUzNkWmc5VlNERVM5aDkzWnRuNS1IdjdQTFpnZ9IBxwFBVV95cUxPby1HOVRLUnIxNUJ5bkJLMmxFTHg3Yzl0TmNoWlJ3UUZMakRQaUFNeVY0dVRkQXNkWENKd1ZYbEFfc0E1LWFvUHdOVVJTVTdDMlhEd3hPV0NieEJSdVFHcUhPUTlMMS1QRU5BSTgyLVJoYVU5c3ZILVZvQlVmcFpFTmxyTVBLR2loeThNQXFQYmk4MF9yekt3N3dEZGZOVXc1UVVDMEx6aVQzbWp6VXhoTkdtTE9jTWdmLWtCY0pkZ3RKam1Zb3VJ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indian women’s U20 team in semis of Rugby Sevens meet - The Times of India"
+date: 2026-11-15 09:50:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxOU0NJNFN1SllmWDVPVENzX3BsNU5CMGR4ZkxtYzNuRWM2YU1qMWhkRkNDdG9Wcm02YjJIc1JvTHAyaFZIVjdQcEV1S2oxZE5LN25fUEN2dGx5WVEtZHJ6a0FQSEFkRGllcXlZQVFqR19HajM3Ynk5TDN1WGVOUVJGZmVnOGlkdVBkOXFLWlJOWDNSLUJpbWdOOF90QXljdE5mMmdtU0xsUkxwcWdCaFZYV3pyb0hTUWNDY0NiZ1gzTEU5bUdqT0xiMnlWd0hDMkM1bGh3RXdoZ9IB3AFBVV95cUxNRFl4UFZLMU8tamg0UHY1SDdrLXlEMVk4dVdMUXVOUTdva1Bsa3RVVmZvdlp4SUZwel9iSjB1ajlBdEhDSFJ3SU1wc3g1LWtfZmxZa3c3ZXE3QjBhUkdKZ3ItMmdxbG82TVdYcjVDLU9icWNNNnRmLWR1ZTRmcDM2cmFTYkxGWjFDbXhETHoxbGVmUE82eEt0WHN2Mjd0SW9VVjlycUVQRkNEZ2t2dW5kQkVrYVU3dnZDZllrRHk0TURidzlicF92LXpQRFVmYy1Cc0ltaXFxanF3bm5t?oc=5"
+---
+
+Indian women’s U20 team in semis of Rugby Sevens meet The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxOU0NJNFN1SllmWDVPVENzX3BsNU5CMGR4ZkxtYzNuRWM2YU1qMWhkRkNDdG9Wcm02YjJIc1JvTHAyaFZIVjdQcEV1S2oxZE5LN25fUEN2dGx5WVEtZHJ6a0FQSEFkRGllcXlZQVFqR19HajM3Ynk5TDN1WGVOUVJGZmVnOGlkdVBkOXFLWlJOWDNSLUJpbWdOOF90QXljdE5mMmdtU0xsUkxwcWdCaFZYV3pyb0hTUWNDY0NiZ1gzTEU5bUdqT0xiMnlWd0hDMkM1bGh3RXdoZ9IB3AFBVV95cUxNRFl4UFZLMU8tamg0UHY1SDdrLXlEMVk4dVdMUXVOUTdva1Bsa3RVVmZvdlp4SUZwel9iSjB1ajlBdEhDSFJ3SU1wc3g1LWtfZmxZa3c3ZXE3QjBhUkdKZ3ItMmdxbG82TVdYcjVDLU9icWNNNnRmLWR1ZTRmcDM2cmFTYkxGWjFDbXhETHoxbGVmUE82eEt0WHN2Mjd0SW9VVjlycUVQRkNEZ2t2dW5kQkVrYVU3dnZDZllrRHk0TURidzlicF92LXpQRFVmYy1Cc0ltaXFxanF3bm5t?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

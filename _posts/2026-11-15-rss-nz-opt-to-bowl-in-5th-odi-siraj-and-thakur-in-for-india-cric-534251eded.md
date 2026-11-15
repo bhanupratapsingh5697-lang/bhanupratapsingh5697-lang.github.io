@@ -1,0 +1,17 @@
+---
+layout: post
+title: "NZ opt to bowl in 5th ODI; Siraj and Thakur in for India - Cricinfo"
+date: 2026-11-15 07:26:59 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxObms5N1BxUjdjaXZNZDJ5M3VzUVhLZjR6RFJwWTJYbWFDUGd1Ui1jRW5UYXVCSUtERlJfMndGSVVoSUp4bHFfaTJBVTRVS0RFVFRSMWR4RzQxMHdRVWZCeklYdElDakh0SVhSUmFFTzlLYlFHS29MS0hMLTRCZzJQZUVKZWdYd2wyOEhoM2tCeVM3V0tnT1NFcUVDa2tWdm5Pak4tRlAxbndLN0VGVHdn0gHAAUFVX3lxTFBCVnRoejR1MmUyWm8zU3h1VWdLeVJtdkN2UDMtekxDNjFJRGgyTDNRb09ZTlpscUduZWpZTWY4c2dkcDF4SFZJUXR2eHM0dUZNMXJNQUlTaG95RExUcGp2bk5fLXFMeDdXU0FQRFhUaVdSWHZWcmxlMmZaMXIySERseEV2Vl90NmsxeHRGMVJXbjItSV9BUmp3VW1KSVdvUmVFNGxOa0pNckhtUG12TE0tckRiR0ZzTmNtc0FJZ05FaA?oc=5"
+---
+
+NZ opt to bowl in 5th ODI; Siraj and Thakur in for India Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxObms5N1BxUjdjaXZNZDJ5M3VzUVhLZjR6RFJwWTJYbWFDUGd1Ui1jRW5UYXVCSUtERlJfMndGSVVoSUp4bHFfaTJBVTRVS0RFVFRSMWR4RzQxMHdRVWZCeklYdElDakh0SVhSUmFFTzlLYlFHS29MS0hMLTRCZzJQZUVKZWdYd2wyOEhoM2tCeVM3V0tnT1NFcUVDa2tWdm5Pak4tRlAxbndLN0VGVHdn0gHAAUFVX3lxTFBCVnRoejR1MmUyWm8zU3h1VWdLeVJtdkN2UDMtekxDNjFJRGgyTDNRb09ZTlpscUduZWpZTWY4c2dkcDF4SFZJUXR2eHM0dUZNMXJNQUlTaG95RExUcGp2bk5fLXFMeDdXU0FQRFhUaVdSWHZWcmxlMmZaMXIySERseEV2Vl90NmsxeHRGMVJXbjItSV9BUmp3VW1KSVdvUmVFNGxOa0pNckhtUG12TE0tckRiR0ZzTmNtc0FJZ05FaA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

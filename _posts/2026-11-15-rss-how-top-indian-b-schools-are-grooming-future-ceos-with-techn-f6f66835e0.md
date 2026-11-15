@@ -1,0 +1,17 @@
+---
+layout: post
+title: "How top Indian B-schools are grooming future CEOs with technology, empathy - The Week"
+date: 2026-11-15 08:11:02 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxPUmN3REJkZ3lMLVpES1RFeDJPcW1DdnNZOTJObjBHQ19xeFdObjdGUXZYM2lNcEpmcHZ4d3BCR3hkUkkycGhDZTljeGVSUUtUclVsNUtaTUlWVW5ROVV5bWtVamJEZFh1RFlaTHdxQmd1NjBibVhWMklYU1VIeERrc1FwZGZ0dXFlWW1MWFlTdHd3Zm03djRkdHhWb1dVcjlfRGQtNC1yaEFEMHBUNE8tVm1hY1o3VUhYdXdhUmFPQ1lLaG900gHWAUFVX3lxTE9fWVJoSzBaQjZNbkpQanJPS0xzSWtGZjc4UGxlWEFVT2hxNG5JcFVHZlVoXzFUVWtlUktzZjA5WVliZDFMX1FoUG54T3M2WkwzZ3hvY1RWcVF0RVhxa250THZUWVJ2QklHNWhBZmlIMTItQUU5LS03UGp2dFRXdEZWekI3dzg0TzFxUVNQd0xHU1B2clFPVldWWWFKeEt2TXotbkZmREY1N2tQUTY0ZXo5eGVWbjhURU5DYkw3OE9hcjdtOFNXb1oybVpoWlptSnNJakVSV0E?oc=5"
+---
+
+How top Indian B-schools are grooming future CEOs with technology, empathy The Week
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxPUmN3REJkZ3lMLVpES1RFeDJPcW1DdnNZOTJObjBHQ19xeFdObjdGUXZYM2lNcEpmcHZ4d3BCR3hkUkkycGhDZTljeGVSUUtUclVsNUtaTUlWVW5ROVV5bWtVamJEZFh1RFlaTHdxQmd1NjBibVhWMklYU1VIeERrc1FwZGZ0dXFlWW1MWFlTdHd3Zm03djRkdHhWb1dVcjlfRGQtNC1yaEFEMHBUNE8tVm1hY1o3VUhYdXdhUmFPQ1lLaG900gHWAUFVX3lxTE9fWVJoSzBaQjZNbkpQanJPS0xzSWtGZjc4UGxlWEFVT2hxNG5JcFVHZlVoXzFUVWtlUktzZjA5WVliZDFMX1FoUG54T3M2WkwzZ3hvY1RWcVF0RVhxa250THZUWVJ2QklHNWhBZmlIMTItQUU5LS03UGp2dFRXdEZWekI3dzg0TzFxUVNQd0xHU1B2clFPVldWWWFKeEt2TXotbkZmREY1N2tQUTY0ZXo5eGVWbjhURU5DYkw3OE9hcjdtOFNXb1oybVpoWlptSnNJakVSV0E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

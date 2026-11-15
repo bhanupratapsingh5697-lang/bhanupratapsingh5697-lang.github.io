@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India Vs New Zealand Live Score, 5th ODI: NZ 32/1 vs IND at Mount Maunganui - The Indian Express"
+date: 2026-11-15 11:52:41 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi6AFBVV95cUxNLTQ2QmZoM2ZvLXEwdk1EUmRGbEQ3R1RnVEJaVW55NC0xQTRXcmhOdUg5WDVsQ2M1SjZjU1ZMaXZrNWVnRjBCSTMtRjhtcEFwVHJZVDJQNnVQVUUwWF9SVU5KbS12c0lxVkpCXzlKNXozc1I4bzlvSXM4eFZ4cGphU0pOZ1pRM2xBdXNfMVJqaUxVclg2NzhGTm1VeFczdnA0Y2QzTHp4eUdNbDBaeHRteXdMaEFIVnJJM1NIaDY3bHMzc1dnMG9QS25XaHdSNnRQNEFob0RDVGZWWEdsTkdhcWJTMnRLOU5v0gHvAUFVX3lxTE94MmhfbTBiYUdTb1hIb3d0WDl0dWlsRDRRbjVYYVdLX1RWdUdSbzd6a2lQWDlKN0RBZm1jX3NoVFVVYkowZTU5SGQ0ZEEzUG04Rlhxd05XbERvQzBSTnFXZFdYd2RmTFZ1c1pKaGNCMWNlMnBGRHo4MGZPdEd1NDZzaFZzMFAtdklWUmcyRDhuUHVaMkxrOVpoc1FiT01GZUxuZ1BrVmJZNlhDRjRlanF0VzZETTNra0xNY3FYbkdTeE1fXzVGU1dZNjR6R09ZeWo5MXROZHJ2QmVOd3lzQVpMbkhVTTZ0X1Q2RlY4LU9j?oc=5"
+---
+
+India Vs New Zealand Live Score, 5th ODI: NZ 32/1 vs IND at Mount Maunganui The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi6AFBVV95cUxNLTQ2QmZoM2ZvLXEwdk1EUmRGbEQ3R1RnVEJaVW55NC0xQTRXcmhOdUg5WDVsQ2M1SjZjU1ZMaXZrNWVnRjBCSTMtRjhtcEFwVHJZVDJQNnVQVUUwWF9SVU5KbS12c0lxVkpCXzlKNXozc1I4bzlvSXM4eFZ4cGphU0pOZ1pRM2xBdXNfMVJqaUxVclg2NzhGTm1VeFczdnA0Y2QzTHp4eUdNbDBaeHRteXdMaEFIVnJJM1NIaDY3bHMzc1dnMG9QS25XaHdSNnRQNEFob0RDVGZWWEdsTkdhcWJTMnRLOU5v0gHvAUFVX3lxTE94MmhfbTBiYUdTb1hIb3d0WDl0dWlsRDRRbjVYYVdLX1RWdUdSbzd6a2lQWDlKN0RBZm1jX3NoVFVVYkowZTU5SGQ0ZEEzUG04Rlhxd05XbERvQzBSTnFXZFdYd2RmTFZ1c1pKaGNCMWNlMnBGRHo4MGZPdEd1NDZzaFZzMFAtdklWUmcyRDhuUHVaMkxrOVpoc1FiT01GZUxuZ1BrVmJZNlhDRjRlanF0VzZETTNra0xNY3FYbkdTeE1fXzVGU1dZNjR6R09ZeWo5MXROZHJ2QmVOd3lzQVpMbkhVTTZ0X1Q2RlY4LU9j?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
