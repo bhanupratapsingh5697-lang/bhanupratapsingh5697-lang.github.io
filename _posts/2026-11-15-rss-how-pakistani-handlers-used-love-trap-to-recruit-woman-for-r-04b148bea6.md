@@ -1,0 +1,17 @@
+---
+layout: post
+title: "How Pakistani handlers used 'love trap' to recruit woman for Rajasthan train blast - India Today"
+date: 2026-11-15 13:30:08 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxPUXdlZkhrSVYyaGRwMGNKRmlQc0RQcjgzSnllYTZ1c3RzYzhQX2FRcGVybDc2dUlFeDBacWdtT0ZHd0pTcmN2aHgwWVl1UEFDcDZ1MFBJTDMxYWhMaDlibDVCNktwQ2FkRlpsREVmT2V2WE96Sm9FSHlMM2hIVi1jV2JPSzNqNmRodXVpWlpOZTNtQXBqSFhTdmoxRmdWLWVUQ2Z2bzB5U0habXZuLUVGMkJFUGJOdnhFb2ZidUdvX0RjdnBuUnRiSXJYalPSAdIBQVVfeXFMTkZNSkRUajBiNENHdlZnV1JIYjhjejhydG9kcEVKVnU4VnZVUzBCeS1ySmI4dkxya0FuX3VaX1ByRzJrd2VyMTlvTkxqTEEtdEVNQ3VvYUhkWkYwV0cyVDNvZU5sS3ZKdjQtcjJ1RXdYelRUTzlmV2h6Wkoxb0xnTnlBRVppekFWNzJaN0RYbEw2Wmd4dmhsaHV3dkpVclRtVTBKWTgyaVBmR1dGSC1kQVVsWkRxRFlSNFhTeTBQUzJqLVUwbl9kOHhua1pnNjlpRkdB?oc=5"
+---
+
+How Pakistani handlers used 'love trap' to recruit woman for Rajasthan train blast India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxPUXdlZkhrSVYyaGRwMGNKRmlQc0RQcjgzSnllYTZ1c3RzYzhQX2FRcGVybDc2dUlFeDBacWdtT0ZHd0pTcmN2aHgwWVl1UEFDcDZ1MFBJTDMxYWhMaDlibDVCNktwQ2FkRlpsREVmT2V2WE96Sm9FSHlMM2hIVi1jV2JPSzNqNmRodXVpWlpOZTNtQXBqSFhTdmoxRmdWLWVUQ2Z2bzB5U0habXZuLUVGMkJFUGJOdnhFb2ZidUdvX0RjdnBuUnRiSXJYalPSAdIBQVVfeXFMTkZNSkRUajBiNENHdlZnV1JIYjhjejhydG9kcEVKVnU4VnZVUzBCeS1ySmI4dkxya0FuX3VaX1ByRzJrd2VyMTlvTkxqTEEtdEVNQ3VvYUhkWkYwV0cyVDNvZU5sS3ZKdjQtcjJ1RXdYelRUTzlmV2h6Wkoxb0xnTnlBRVppekFWNzJaN0RYbEw2Wmd4dmhsaHV3dkpVclRtVTBKWTgyaVBmR1dGSC1kQVVsWkRxRFlSNFhTeTBQUzJqLVUwbl9kOHhua1pnNjlpRkdB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

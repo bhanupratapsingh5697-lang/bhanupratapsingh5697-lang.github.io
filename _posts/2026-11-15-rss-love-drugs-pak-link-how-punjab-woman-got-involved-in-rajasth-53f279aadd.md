@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Love, Drugs, Pak Link: How Punjab Woman Got Involved In Rajasthan Blast Plot - NDTV"
+date: 2026-11-15 21:44:24 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxPU195RGNyMTRpN2NYRDExcXNpYnROR0s2M0dxb0J1cEZFbjNFOTdXS2xiTjVRVmZ0YTZQZFJQcnpBY1ZheGxndUFJOXB5VFdmZ0dIRUhBc1YzOVgtOERfYXByZ0d2SGszT1U1elZab0R1am1TY2JSajZqY0gxUFZpZjF2Z1J0YjF6ekVHeGtfQXljTm1MN2tEXzJXSHdoZlpYdjNETWZ0a05zcGM1WWlob1ZIRjjSAbwBQVVfeXFMUFM4Zkc1SnI2bnJWanIxck96aXVJVWNEWE1YUnpPR2p0VGZDc0xLLXVwUWxMcWRJVGpEN1E0SDFnSVRmVmtnQTFVbWoyc2JLZGV5MTdYd3RpcHJfWXhRTUNXcmRDc2RHZkg1OTVVWHpKODMwYm44MFN6ZGxWUTJYN2dCRFBJSUlKS01kcmZuZlY0WUJxSkxGU3NFR2ZaRjBncTNjM1k5VmhsZy1GenZuX1duSGVZTVE0dFdsaHY?oc=5"
+---
+
+Love, Drugs, Pak Link: How Punjab Woman Got Involved In Rajasthan Blast Plot NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxPU195RGNyMTRpN2NYRDExcXNpYnROR0s2M0dxb0J1cEZFbjNFOTdXS2xiTjVRVmZ0YTZQZFJQcnpBY1ZheGxndUFJOXB5VFdmZ0dIRUhBc1YzOVgtOERfYXByZ0d2SGszT1U1elZab0R1am1TY2JSajZqY0gxUFZpZjF2Z1J0YjF6ekVHeGtfQXljTm1MN2tEXzJXSHdoZlpYdjNETWZ0a05zcGM1WWlob1ZIRjjSAbwBQVVfeXFMUFM4Zkc1SnI2bnJWanIxck96aXVJVWNEWE1YUnpPR2p0VGZDc0xLLXVwUWxMcWRJVGpEN1E0SDFnSVRmVmtnQTFVbWoyc2JLZGV5MTdYd3RpcHJfWXhRTUNXcmRDc2RHZkg1OTVVWHpKODMwYm44MFN6ZGxWUTJYN2dCRFBJSUlKS01kcmZuZlY0WUJxSkxGU3NFR2ZaRjBncTNjM1k5VmhsZy1GenZuX1duSGVZTVE0dFdsaHY?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

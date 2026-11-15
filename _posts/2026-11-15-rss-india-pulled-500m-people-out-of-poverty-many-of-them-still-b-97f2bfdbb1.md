@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India pulled 500m people out of poverty. Many of them still barely survive - Al Jazeera"
+date: 2026-11-15 14:24:42 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxNdWVDYXdYMlpHdW9JVDVMUHJGdzl1QzdaQkJnNDRnM1lSWW9TcmpOQW9TSHFjR1llWDBpTTdidVdEYk12T2FtN2Q5ZUNPTDJZSDBqbUdzR2xWaFRtcTBtclRKNmhYVWMxaWJvU2Rxd0hBRXBKNHJjLS1jZzhNbUVJQ25XYlZEYmFRWHpuV0hNYnVYREEyTHZ6OUV6aDB2TXptSWhZRWhjWmNRd2xTc0ZTay1wMEc5eUpmTWfSAb8BQVVfeXFMT1h1SElLMHdfN0E3ejBLWFBFaHExaTN6cHYzWTVwVkhJWjZuenkybkVRM1hKR1RBWDFud2s1VGN2YVdOMHBZVlFKaGlpNkxQdU1oelY3ck1ydGMyZDZGYmtPd3hTTWtLbDc4WUJjT3FUY3Bwel9VLXY1SnZnVWhjRjVCVFhfX2pVcUNFUXFVQmJrT1R1Q280LWgteDJLWWI0bWczdGk4WnFrd3NrOC11ZjdlWTZxeXNzNFozTzE0RGc?oc=5"
+---
+
+India pulled 500m people out of poverty. Many of them still barely survive Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxNdWVDYXdYMlpHdW9JVDVMUHJGdzl1QzdaQkJnNDRnM1lSWW9TcmpOQW9TSHFjR1llWDBpTTdidVdEYk12T2FtN2Q5ZUNPTDJZSDBqbUdzR2xWaFRtcTBtclRKNmhYVWMxaWJvU2Rxd0hBRXBKNHJjLS1jZzhNbUVJQ25XYlZEYmFRWHpuV0hNYnVYREEyTHZ6OUV6aDB2TXptSWhZRWhjWmNRd2xTc0ZTay1wMEc5eUpmTWfSAb8BQVVfeXFMT1h1SElLMHdfN0E3ejBLWFBFaHExaTN6cHYzWTVwVkhJWjZuenkybkVRM1hKR1RBWDFud2s1VGN2YVdOMHBZVlFKaGlpNkxQdU1oelY3ck1ydGMyZDZGYmtPd3hTTWtLbDc4WUJjT3FUY3Bwel9VLXY1SnZnVWhjRjVCVFhfX2pVcUNFUXFVQmJrT1R1Q280LWgteDJLWWI0bWczdGk4WnFrd3NrOC11ZjdlWTZxeXNzNFozTzE0RGc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

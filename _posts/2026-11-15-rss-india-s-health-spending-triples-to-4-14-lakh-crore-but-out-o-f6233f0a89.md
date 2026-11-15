@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India’s health spending triples to ₹4.14 lakh crore, but out-of-pocket share drops to 42.7%: NHA - The Hindu"
+date: 2026-11-15 22:53:44 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4gFBVV95cUxQSWNsdHRHNGc5cllkdG1VWVF5Sm1rMUx2emtqb29URC1XT0JhR0VtNFczenhYZVRlQ2JIckRycUlfdmhnR19vUUdSZ0VzSU1jck9jdEpVeDZyM2VqdTlmWVY0OW93S3kzZWQ2bDNZRExuem1FalNpTFlaRVlrVDdwcVMweEdjckp0a3NZaUJDaDI4UGx5YTRGTE02U0FrdGg4eFFzbUVkZTNUU3ViekdNN2RHZkl5WU5hRmR2bUIzNWhFNklITXpZME1oT2JUWVlOUGN5Uk1MQ1dyT1BEWlhQTXBn0gHoAUFVX3lxTE50ZXZzV1pjYnR3c3RuM01yVG5ReWROVW0xTWRBQTU2ejF6WF9kRVpQcHZ0dzZ0d25PNlNqclU4TlFtVmIzY3dxWkYxY3dESjRfdVJaWjFueGR2NUpCcXJBaGc5RU9PWVJkWS1PN1BMNV8wZGZVQ3dXcEk4M19MNXBzY3hQWU5RZUJ1YXpLTkdPSjNLSW9EN292TFBGaTF2NW50VHN2aWVLSWdXTTVwWHAzZkgyQ0s5ODRYTVFIdTR6MkRZMGdocWp4NUJaekN2TXFDZnNJcklhNnBMeElxU3Y5ck0wQnBkZkw?oc=5"
+---
+
+India’s health spending triples to ₹4.14 lakh crore, but out-of-pocket share drops to 42.7%: NHA The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4gFBVV95cUxQSWNsdHRHNGc5cllkdG1VWVF5Sm1rMUx2emtqb29URC1XT0JhR0VtNFczenhYZVRlQ2JIckRycUlfdmhnR19vUUdSZ0VzSU1jck9jdEpVeDZyM2VqdTlmWVY0OW93S3kzZWQ2bDNZRExuem1FalNpTFlaRVlrVDdwcVMweEdjckp0a3NZaUJDaDI4UGx5YTRGTE02U0FrdGg4eFFzbUVkZTNUU3ViekdNN2RHZkl5WU5hRmR2bUIzNWhFNklITXpZME1oT2JUWVlOUGN5Uk1MQ1dyT1BEWlhQTXBn0gHoAUFVX3lxTE50ZXZzV1pjYnR3c3RuM01yVG5ReWROVW0xTWRBQTU2ejF6WF9kRVpQcHZ0dzZ0d25PNlNqclU4TlFtVmIzY3dxWkYxY3dESjRfdVJaWjFueGR2NUpCcXJBaGc5RU9PWVJkWS1PN1BMNV8wZGZVQ3dXcEk4M19MNXBzY3hQWU5RZUJ1YXpLTkdPSjNLSW9EN292TFBGaTF2NW50VHN2aWVLSWdXTTVwWHAzZkgyQ0s5ODRYTVFIdTR6MkRZMGdocWp4NUJaekN2TXFDZnNJcklhNnBMeElxU3Y5ck0wQnBkZkw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

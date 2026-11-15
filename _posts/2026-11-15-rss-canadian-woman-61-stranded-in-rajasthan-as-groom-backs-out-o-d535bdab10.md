@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Canadian woman, 61, stranded in Rajasthan as groom backs out over her age - Rediff"
+date: 2026-11-15 20:22:33 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiuwFBVV95cUxOREMtNkNTcUFneHhieXFGOHM2aE9uVnEyN3RPUk9SMzJuR0otOHhwZW9OaXk1b0FKNGpid3ZCOVRPLUtDc2EzRWtUOUpWcDk2MklvbVdIVkFpa2VfbjRwLWFNaVlBZmpOSXZuajBFUVlKR3Bqb0hqYTh3eUxmLU1PdHliQ0l0Nk1MUVZXSHhiRzVtd09BMUdodXVfTGxqY1U0cDVmNXlPN2xBQ3lsdnpxQXFxZVoycHhGcmQ40gG-AUFVX3lxTE4wR2RfdmZpWmFjNGU5QVgyWDdfQllORUhCT3JDbzFEcDFXVWV2VENsUGMwa19jLXdZY081cmF3VFFOVTdfTEFmQmVTU0l0TEdCY19oVnVYaV9GTnN6N2hLZ2ZpYWlibFJTeDhVbHlOU1VmOHBUdWpzSzNSa1lFYTlKSFpjWTZRdG1YWTJrY3BpbTdjSzc3eHdIMVZmYl9rMTg3NGZKY011N0ZSdC1rVWJUTENaSzU3YXdmMXdOZ1E?oc=5"
+---
+
+Canadian woman, 61, stranded in Rajasthan as groom backs out over her age Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuwFBVV95cUxOREMtNkNTcUFneHhieXFGOHM2aE9uVnEyN3RPUk9SMzJuR0otOHhwZW9OaXk1b0FKNGpid3ZCOVRPLUtDc2EzRWtUOUpWcDk2MklvbVdIVkFpa2VfbjRwLWFNaVlBZmpOSXZuajBFUVlKR3Bqb0hqYTh3eUxmLU1PdHliQ0l0Nk1MUVZXSHhiRzVtd09BMUdodXVfTGxqY1U0cDVmNXlPN2xBQ3lsdnpxQXFxZVoycHhGcmQ40gG-AUFVX3lxTE4wR2RfdmZpWmFjNGU5QVgyWDdfQllORUhCT3JDbzFEcDFXVWV2VENsUGMwa19jLXdZY081cmF3VFFOVTdfTEFmQmVTU0l0TEdCY19oVnVYaV9GTnN6N2hLZ2ZpYWlibFJTeDhVbHlOU1VmOHBUdWpzSzNSa1lFYTlKSFpjWTZRdG1YWTJrY3BpbTdjSzc3eHdIMVZmYl9rMTg3NGZKY011N0ZSdC1rVWJUTENaSzU3YXdmMXdOZ1E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

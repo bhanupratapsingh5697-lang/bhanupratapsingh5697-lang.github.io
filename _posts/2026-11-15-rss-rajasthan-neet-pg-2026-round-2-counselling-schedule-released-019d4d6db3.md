@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan NEET PG 2026 Round 2 Counselling Schedule Released - Medical Dialogues"
+date: 2026-11-15 14:30:26 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxPVi05eWdZUWFkUkFaRVdac1pfQUFqaHJkNU5MT0g3dk55TktqVTBTU0I2am9VOTV4OF8tbGVveHNvR21wMGxBRXhhZlpmNjN2VGdmOHQtbTM1Mm1ZdG5XQ3dYd3psSElTa1h1WTZsWHBUSkRSSV9Ca1FCcnl6WC1kbXBzLWNsNUhCTlRzaWlfUWd5aUZlSS1JYTQ3bFQ2cGlGYV9ZbDF4YnJtZGd1SFlqQ281cHY1NDhGUWk0N280WTZ0TkNMZXZGT9IBzgFBVV95cUxOVmg4c09ZZjJ3bFJHNkIxSjZHb0RNanVIMW1TSG5MNWdHSDlDR0ZiZXRHSVZUNkFzSnZMX29GaUZRZTFTZC1fTWFFaXBnX2hveUQ1Z3ZUMzM0R01ld1lnaTdtTTlzQjh3bGppby1TYWc1Sm1VTXpiZGE2MHNRMU1lbU1IaHR2eFJNS1NEa1lTQlE2QUZrZnZicS1UMlRLYkh3V2FsdjlxSEpuUW1jMlE2STFaNF9CbG0yU0w4Nzh5NmVuMVd3TVd1dkRjaURCUQ?oc=5"
+---
+
+Rajasthan NEET PG 2026 Round 2 Counselling Schedule Released Medical Dialogues
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPVi05eWdZUWFkUkFaRVdac1pfQUFqaHJkNU5MT0g3dk55TktqVTBTU0I2am9VOTV4OF8tbGVveHNvR21wMGxBRXhhZlpmNjN2VGdmOHQtbTM1Mm1ZdG5XQ3dYd3psSElTa1h1WTZsWHBUSkRSSV9Ca1FCcnl6WC1kbXBzLWNsNUhCTlRzaWlfUWd5aUZlSS1JYTQ3bFQ2cGlGYV9ZbDF4YnJtZGd1SFlqQ281cHY1NDhGUWk0N280WTZ0TkNMZXZGT9IBzgFBVV95cUxOVmg4c09ZZjJ3bFJHNkIxSjZHb0RNanVIMW1TSG5MNWdHSDlDR0ZiZXRHSVZUNkFzSnZMX29GaUZRZTFTZC1fTWFFaXBnX2hveUQ1Z3ZUMzM0R01ld1lnaTdtTTlzQjh3bGppby1TYWc1Sm1VTXpiZGE2MHNRMU1lbU1IaHR2eFJNS1NEa1lTQlE2QUZrZnZicS1UMlRLYkh3V2FsdjlxSEpuUW1jMlE2STFaNF9CbG0yU0w4Nzh5NmVuMVd3TVd1dkRjaURCUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

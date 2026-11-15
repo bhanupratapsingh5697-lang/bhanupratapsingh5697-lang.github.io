@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Centre flags governance gaps in AI, geospatial and microbiome tech - The Economic Times"
+date: 2026-11-15 23:46:29 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxOR1gtWW5XUFpxTGVKSTMzRTBRSXBxMjBJMVp5MFE1YzhjeTBSY1hkQlZ0TnVIaHFza0I0NFg0VHBTU0NRbmRSbXJzbVZZVktkSy12ODZMajhPUWxXYUsyQWxmeW1jaGVLdzEzdlRYdlFFZXl0czB0NzNHSlhSTEJ0U1FXeHVUNUxVQ0hxdXlobEE0emNhQ3AzYzVad2lHQmVHRTRCSmU4eThVMGZaZXAzUmVUZlFBSmdPRGdyY3NUOEhEZnNoam1KX01rSFBqcmxQNE1fYWVR0gHbAUFVX3lxTE9YQTdOYkFDeUNlNWx6NndSZDd3NVlzT010czlXYUwwTkoxcmxDYW9OQ1dVVHg0SzF4X2lDb1lhWkg2eWtnSDhzdXMwZUlqcHVTcndBaG5pZkh5UTMyZUlHVWdEVzhrNGtnRjR2TUREdTVBb01qQk4tbTg4bnJSclpSTWFaN21obmRQMFhNanMtQl95Skc2UnZlSG5vUUdzYnlseVhIVFZvcHYtOHZSQXRVZkpDWm9fbmNENEFzSGY0RS1oWFJDaXYxeURpbEpkeHpiOXl2c01peW4yMA?oc=5"
+---
+
+Centre flags governance gaps in AI, geospatial and microbiome tech The Economic Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOR1gtWW5XUFpxTGVKSTMzRTBRSXBxMjBJMVp5MFE1YzhjeTBSY1hkQlZ0TnVIaHFza0I0NFg0VHBTU0NRbmRSbXJzbVZZVktkSy12ODZMajhPUWxXYUsyQWxmeW1jaGVLdzEzdlRYdlFFZXl0czB0NzNHSlhSTEJ0U1FXeHVUNUxVQ0hxdXlobEE0emNhQ3AzYzVad2lHQmVHRTRCSmU4eThVMGZaZXAzUmVUZlFBSmdPRGdyY3NUOEhEZnNoam1KX01rSFBqcmxQNE1fYWVR0gHbAUFVX3lxTE9YQTdOYkFDeUNlNWx6NndSZDd3NVlzT010czlXYUwwTkoxcmxDYW9OQ1dVVHg0SzF4X2lDb1lhWkg2eWtnSDhzdXMwZUlqcHVTcndBaG5pZkh5UTMyZUlHVWdEVzhrNGtnRjR2TUREdTVBb01qQk4tbTg4bnJSclpSTWFaN21obmRQMFhNanMtQl95Skc2UnZlSG5vUUdzYnlseVhIVFZvcHYtOHZSQXRVZkpDWm9fbmNENEFzSGY0RS1oWFJDaXYxeURpbEpkeHpiOXl2c01peW4yMA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
