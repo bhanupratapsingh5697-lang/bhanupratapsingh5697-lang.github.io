@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan teacher arrested after refusing to marry 61-year-old Canadian woman he met on dating app | India News - Hindustan Times"
+date: 2026-11-15 20:55:41 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxQOFdMTGhUTFpUd3duRjU4cGl5azNtVlNYZnh0SXJ4Wm9uRDBLdVl2SnFWVThXX1ZVSDYtdEk0aTdaZnNjbFI1aThmejd1MDVNcFRiVHhIQmJpR3JXc1NlQmYteFNQZlJ2M0tESTB0MUZ3U29XbGt3RXZJNF81SGNxaUpLTkVBQ3B2RVQwMnRZVzh2bF8wOU9HNmxEdUs4dks3WHFmY3hpb2swazJWa282Ykk5eUpYdzdlUUp6STVsc2hkbVc4QWZkY01pd2hTZV9oVVdF0gHYAUFVX3lxTE41V2hybmtENVA1Mk5rWlBaWlI1eVpGMUExN2FnLUlaUE9uY1l1QUFMR0tTRFZYVHRaUTU4VDlHaFpNdDRQRndKU1B2clhKSmZidDJOVkNwZFVfRHBrYnk1clo3MlM4RlVyeHlhNmFCWS1zZ3pUTXRfUHV3S3JsQlJPTEVtSXBNOTF1Mm1OZ1I2OGFlYXdabGE5cFNVRldMVHdrVFpNeVpRVks1RExiUzU4eVExMzZXZzRibXZzR0htNVdYSjJBQmItNG5lLVlDalFSYUFrdldtWQ?oc=5"
+---
+
+Rajasthan teacher arrested after refusing to marry 61-year-old Canadian woman he met on dating app | India News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQOFdMTGhUTFpUd3duRjU4cGl5azNtVlNYZnh0SXJ4Wm9uRDBLdVl2SnFWVThXX1ZVSDYtdEk0aTdaZnNjbFI1aThmejd1MDVNcFRiVHhIQmJpR3JXc1NlQmYteFNQZlJ2M0tESTB0MUZ3U29XbGt3RXZJNF81SGNxaUpLTkVBQ3B2RVQwMnRZVzh2bF8wOU9HNmxEdUs4dks3WHFmY3hpb2swazJWa282Ykk5eUpYdzdlUUp6STVsc2hkbVc4QWZkY01pd2hTZV9oVVdF0gHYAUFVX3lxTE41V2hybmtENVA1Mk5rWlBaWlI1eVpGMUExN2FnLUlaUE9uY1l1QUFMR0tTRFZYVHRaUTU4VDlHaFpNdDRQRndKU1B2clhKSmZidDJOVkNwZFVfRHBrYnk1clo3MlM4RlVyeHlhNmFCWS1zZ3pUTXRfUHV3S3JsQlJPTEVtSXBNOTF1Mm1OZ1I2OGFlYXdabGE5cFNVRldMVHdrVFpNeVpRVks1RExiUzU4eVExMzZXZzRibXZzR0htNVdYSjJBQmItNG5lLVlDalFSYUFrdldtWQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

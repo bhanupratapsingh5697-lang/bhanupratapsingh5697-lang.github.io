@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Kaynes Technology shares tank 18% as Q2 PAT plunges 65%, margin shrinks - Business Standard"
+date: 2026-11-16 09:51:05 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxPdUM3N0lvRDBxOWlBUDNXMlIxT0ZpeEN1UmdvYkZrNkI0TXZVMFNUMkFtWHlyWWZlazhwU2tRai1rSzVPUWhmOW9DQmdfSlVOZVR2SThYVzAzX3RkWkJSZE9YcU1vOHVKSkd6RjZGYlJnZE1NRFE2RGxxWnNNQXktdW12V0pDT3A1aEVsb1ZCS21iRmN6UEY1OFRXMU9QNTctT1JnSFdVQjBHaFBFLV9ZNlYwVzV0S2dTbGpGVUNnVWZpaVRxemxPd3FVcmpyVmlK0gHWAUFVX3lxTE1UUmppNDAybXBHRUdFbDNkbUhYNEdoU0MzTWRsakdPUWdXNmdGanpEN0FnOGN3RGNCdTk1QzNZdlRuMDhpLTJ1b3ctdXdxc2s3ZERJU0hIMGJTOHFjZWhqb2RRMUZNODQ5LS15MXFQMEJDdUlWX09Zd3pza1lHd3Z6Tk96R0RnRUJfbVNKa2tkQy1jaERDRGJnNWxJd1R2OTUyNUljRmdockU1RmhRSTItQ0ItaVJQRFJ3MUp5d2s0eUI2ZmVORFM1R2h3RFFTcVh6YVlOdEE?oc=5"
+---
+
+Kaynes Technology shares tank 18% as Q2 PAT plunges 65%, margin shrinks Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPdUM3N0lvRDBxOWlBUDNXMlIxT0ZpeEN1UmdvYkZrNkI0TXZVMFNUMkFtWHlyWWZlazhwU2tRai1rSzVPUWhmOW9DQmdfSlVOZVR2SThYVzAzX3RkWkJSZE9YcU1vOHVKSkd6RjZGYlJnZE1NRFE2RGxxWnNNQXktdW12V0pDT3A1aEVsb1ZCS21iRmN6UEY1OFRXMU9QNTctT1JnSFdVQjBHaFBFLV9ZNlYwVzV0S2dTbGpGVUNnVWZpaVRxemxPd3FVcmpyVmlK0gHWAUFVX3lxTE1UUmppNDAybXBHRUdFbDNkbUhYNEdoU0MzTWRsakdPUWdXNmdGanpEN0FnOGN3RGNCdTk1QzNZdlRuMDhpLTJ1b3ctdXdxc2s3ZERJU0hIMGJTOHFjZWhqb2RRMUZNODQ5LS15MXFQMEJDdUlWX09Zd3pza1lHd3Z6Tk96R0RnRUJfbVNKa2tkQy1jaERDRGJnNWxJd1R2OTUyNUljRmdockU1RmhRSTItQ0ItaVJQRFJ3MUp5d2s0eUI2ZmVORFM1R2h3RFFTcVh6YVlOdEE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

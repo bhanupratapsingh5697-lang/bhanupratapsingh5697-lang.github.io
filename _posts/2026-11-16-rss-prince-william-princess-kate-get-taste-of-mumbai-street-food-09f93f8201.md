@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Prince William, Princess Kate get taste of Mumbai street food with Sachin Tendulkar - India Today"
+date: 2026-11-16 10:54:25 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxPZjFKLVlQXzZPVGhoOHdVMEFmNlYxS0FJQWtadldxdW1RbEZ1SUlrUjBUaHl1SWVvVWdjZm55Y1F0VERJZTc5MEdfcWJ6YU15TEJXR211VVFzM19XT3JhRXhQRW8zbGxNTzAwWXhPUGNJdlhXZUVVTFVFWjdqcDV6dTZxN2xsUGJXSkotRzlLdHBXMV9oTl9tbl9DMUtldzZabFpNM2wxbXFqLUhORWpTQW16Yk1mNGd6T2lYdUZPRks4bTRmMGx2OHdn0gHPAUFVX3lxTE5NR0lIZW56a21aa2V0TE9vNTNVUGpQZVdzS3ZtM0VTTVVHYzFGVlE1b2NUNlNIYzQ1UkV5VHoxamNPTi1yZHctelJiVFBlRDlCc3VIMlZIZWJmRXhnSEdScTViVkcyMG8wSHBnRXhZY0xwMTBveks0XzBZeVl3X2gxLXNHWHBERFkzdU5aVXQwNHV1X3N0dVhHY3c0Tk5xMjBrU0MzNkxvZlJyNXFMSjNZSV9PWER1eXp4VXFMenlTRzBFM0NMdVRKNGlvX3l6RQ?oc=5"
+---
+
+Prince William, Princess Kate get taste of Mumbai street food with Sachin Tendulkar India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxPZjFKLVlQXzZPVGhoOHdVMEFmNlYxS0FJQWtadldxdW1RbEZ1SUlrUjBUaHl1SWVvVWdjZm55Y1F0VERJZTc5MEdfcWJ6YU15TEJXR211VVFzM19XT3JhRXhQRW8zbGxNTzAwWXhPUGNJdlhXZUVVTFVFWjdqcDV6dTZxN2xsUGJXSkotRzlLdHBXMV9oTl9tbl9DMUtldzZabFpNM2wxbXFqLUhORWpTQW16Yk1mNGd6T2lYdUZPRks4bTRmMGx2OHdn0gHPAUFVX3lxTE5NR0lIZW56a21aa2V0TE9vNTNVUGpQZVdzS3ZtM0VTTVVHYzFGVlE1b2NUNlNIYzQ1UkV5VHoxamNPTi1yZHctelJiVFBlRDlCc3VIMlZIZWJmRXhnSEdScTViVkcyMG8wSHBnRXhZY0xwMTBveks0XzBZeVl3X2gxLXNHWHBERFkzdU5aVXQwNHV1X3N0dVhHY3c0Tk5xMjBrU0MzNkxvZlJyNXFMSjNZSV9PWER1eXp4VXFMenlTRzBFM0NMdVRKNGlvX3l6RQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Two arrested in Rajasthan railway track blast case, links to Pakistani handlers suspected - Telegraph India"
+date: 2026-11-15 15:21:40 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxQUGlBVUVITldlUF91LTJaWC1QS0k4empNYUozNlVIWDhjS09lWlBOMHhHUWQydW9GY09xWDRwNFNWOWgxRlotZk15Y3JmNXBsSGRTZTlzQm1fZjd1cmdUNFJIa0FjX2d1c05HWFNDajhVaE9HOEVSVUs0UzFpUWNaZ0lWVzFmeGN6QTdWQlpjbzREODBQY3lHblhKWmRWY2oyM0RSX3FQNWpNbXYwaFl5cmlhaEJaWVBuQXJ2RXZFaXVDTUJWX3lWcEpBTWRaRjBEcE1Z0gHYAUFVX3lxTE9OOHplajFhOE55SzRBYU1obmJoSTZrZ0lySFNZUzNnc2s2R1BoZ3JJbVctWXFyYTBaYTB1N2dSYXN3cnFRZkpPOVBKUmlpNm1vckJFNkM2OXJNaEdIMktRS0kzYjRfZ3ItQkI5anVlQnUzUE1MMUlIYlRUVWFVN2ZDWlRZbkZBM0ZxWnhkdUZpbGRXa1hpWWFTaXF6MEk5YmwxYjNjb2tNb21ZT0phb082aFFmZTJNRWNBUC14ajc2a2MwdGVheGhNbmdyRW5Dd0dTRGhXUk1WdQ?oc=5"
+---
+
+Two arrested in Rajasthan railway track blast case, links to Pakistani handlers suspected Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQUGlBVUVITldlUF91LTJaWC1QS0k4empNYUozNlVIWDhjS09lWlBOMHhHUWQydW9GY09xWDRwNFNWOWgxRlotZk15Y3JmNXBsSGRTZTlzQm1fZjd1cmdUNFJIa0FjX2d1c05HWFNDajhVaE9HOEVSVUs0UzFpUWNaZ0lWVzFmeGN6QTdWQlpjbzREODBQY3lHblhKWmRWY2oyM0RSX3FQNWpNbXYwaFl5cmlhaEJaWVBuQXJ2RXZFaXVDTUJWX3lWcEpBTWRaRjBEcE1Z0gHYAUFVX3lxTE9OOHplajFhOE55SzRBYU1obmJoSTZrZ0lySFNZUzNnc2s2R1BoZ3JJbVctWXFyYTBaYTB1N2dSYXN3cnFRZkpPOVBKUmlpNm1vckJFNkM2OXJNaEdIMktRS0kzYjRfZ3ItQkI5anVlQnUzUE1MMUlIYlRUVWFVN2ZDWlRZbkZBM0ZxWnhkdUZpbGRXa1hpWWFTaXF6MEk5YmwxYjNjb2tNb21ZT0phb082aFFmZTJNRWNBUC14ajc2a2MwdGVheGhNbmdyRW5Dd0dTRGhXUk1WdQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

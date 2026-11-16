@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan railway track blast Two arrested over alleged Pakistan links - The Hindu"
+date: 2026-11-16 10:47:11 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxNZ3I0cjU1WEllVFY1QW5qcDIxRnBFWWkwbXg0QlRFNEdIbzB6NWJsSDVPdmZPdlRYMTRQNmFjZnNBX0FSNFIwVWtIaWtmdFYyM1Z3WUM4QTN3NmY5bGdqbE1zRG8tNUxxUXV6ZWo0V2ZOTXpzdmVVdGNUQmw1a3YxQzJ5STI4Zm5DMlZIeEhmQ1R4Y3c1aTBsWXRfMU03S2REX1BLQy1lX2MxTnluSnczazFCRklVSzRkWS0tN0tjRdIBxgFBVV95cUxNdUVDODJKMjJXeHM5SVdMWEhudFdLazRBLVM1Q0hQeWtQRHYwS2E4ekpUVHVaOTdxS013YktKM05yOWJDaG5OZTkyc1Vab0R0S2VGdk5FV2ZqUUl5b3l5T290N0JialNrTHZfN2dmOGVMTHg3M1haRHlZRzQ3dXRJc1RoSkd2ZVpadk9BUGN5ZGM2Nm1kbXdVbXVTZEFocEREQXNLNlRGQUNBODNENWgtU2UyOFhSQnE0WlZ2MGJtekFmZ1hMa1E?oc=5"
+---
+
+Rajasthan railway track blast Two arrested over alleged Pakistan links The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxNZ3I0cjU1WEllVFY1QW5qcDIxRnBFWWkwbXg0QlRFNEdIbzB6NWJsSDVPdmZPdlRYMTRQNmFjZnNBX0FSNFIwVWtIaWtmdFYyM1Z3WUM4QTN3NmY5bGdqbE1zRG8tNUxxUXV6ZWo0V2ZOTXpzdmVVdGNUQmw1a3YxQzJ5STI4Zm5DMlZIeEhmQ1R4Y3c1aTBsWXRfMU03S2REX1BLQy1lX2MxTnluSnczazFCRklVSzRkWS0tN0tjRdIBxgFBVV95cUxNdUVDODJKMjJXeHM5SVdMWEhudFdLazRBLVM1Q0hQeWtQRHYwS2E4ekpUVHVaOTdxS013YktKM05yOWJDaG5OZTkyc1Vab0R0S2VGdk5FV2ZqUUl5b3l5T290N0JialNrTHZfN2dmOGVMTHg3M1haRHlZRzQ3dXRJc1RoSkd2ZVpadk9BUGN5ZGM2Nm1kbXdVbXVTZEFocEREQXNLNlRGQUNBODNENWgtU2UyOFhSQnE0WlZ2MGJtekFmZ1hMa1E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

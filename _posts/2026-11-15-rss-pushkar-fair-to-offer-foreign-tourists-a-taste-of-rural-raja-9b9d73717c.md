@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Pushkar Fair to offer foreign tourists a taste of rural Rajasthan through traditional games - ThePrint"
+date: 2026-11-15 17:17:04 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxPU2s2QkVjbXRyTi1QM1VRcWlpUndvSEltVXBpVVFxQ0UxZHB5VGxJZEloV3FEZGNhOFM5cEdVMG5Ham5jbmRYTzFUVmtSNHBNdUVweWpFSVA0QkVSY2xFaS1WTzBxMnE4UmVNdzY4amg4RTRRelc4MDVTdFhqNWUzNnZsbDc3RW9naHREZW05TG9INUZCemZ1eHRmSmVkU2VERmdHdmlYS1k4WWsyVEREYi1xd1UybFEydFZSWEpDdFZsdng30gHKAUFVX3lxTE05WDZraDhWMU5Ob1hod3R1VWZpSzJCdnhvOTVNVjRqZzI0QXJham1IMlgyOFRuT0dTTjE0bmtqMkxhOHkybWhJR2hSNjYwOEFrOTg3NjFGbmFVTlBDMTdfZ2VJYk9NSWxSVmpLeWtDWHRQSWdaUHJJcjdhS256VkVZRTFRX0x4TzFfdDR6YzhqY0ZiQXN6YkV5UW9OWFRKcVBHWUhmdUsydlFiTTFZQlhndWNFdWNDeEVmVjc2Q1ZLU01UZ0F4d1hFYmc?oc=5"
+---
+
+Pushkar Fair to offer foreign tourists a taste of rural Rajasthan through traditional games ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxPU2s2QkVjbXRyTi1QM1VRcWlpUndvSEltVXBpVVFxQ0UxZHB5VGxJZEloV3FEZGNhOFM5cEdVMG5Ham5jbmRYTzFUVmtSNHBNdUVweWpFSVA0QkVSY2xFaS1WTzBxMnE4UmVNdzY4amg4RTRRelc4MDVTdFhqNWUzNnZsbDc3RW9naHREZW05TG9INUZCemZ1eHRmSmVkU2VERmdHdmlYS1k4WWsyVEREYi1xd1UybFEydFZSWEpDdFZsdng30gHKAUFVX3lxTE05WDZraDhWMU5Ob1hod3R1VWZpSzJCdnhvOTVNVjRqZzI0QXJham1IMlgyOFRuT0dTTjE0bmtqMkxhOHkybWhJR2hSNjYwOEFrOTg3NjFGbmFVTlBDMTdfZ2VJYk9NSWxSVmpLeWtDWHRQSWdaUHJJcjdhS256VkVZRTFRX0x4TzFfdDR6YzhqY0ZiQXN6YkV5UW9OWFRKcVBHWUhmdUsydlFiTTFZQlhndWNFdWNDeEVmVjc2Q1ZLU01UZ0F4d1hFYmc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

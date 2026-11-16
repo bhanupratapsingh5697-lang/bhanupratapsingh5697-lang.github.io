@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Aggressive Celebrations Response To Pak Taunts - Rediff"
+date: 2026-11-16 10:39:41 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxQejFjTG8zOUg4Zi1IXzVzbThnaGUtanMyOTV4ZUp5TVVMMWpSQnhLQVF4RzNCZ0x2eExiZkF5cFcyeUUyaFh6cXZQaElENW5iOXM5c0Nhb3FJcHVzOXU5WE5GUWRDUzN6N3VPTmFWNVg3djZJQmpGMm9Edy1Td3ZETTMxSVRtZllvQ1hMbDUxaF8xQTVoZG1tTzVHVFozYzhWVTBlcG9aNW4xYzDSAa4BQVVfeXFMTzBXRld4N2dtSWltc0dELU9DejFMRS00ZnFSWExZLU52TVk5dkdwV294Q0dSSUV2MDFNVmE4VUZud2dyRlpYbWtvQ0FoQXVyRHptanJqNHhVb0ViWW1lb2NsLTdFRDFLbFV4LUUwODBDUTVxc3ZlZHFQWkdYLW15dXhnREI1ZHAzdk5uQTZFVzE5cHpUR0ZneHJrblJ2SUoxNUIwV2hJb3NjVEJPUzFn?oc=5"
+---
+
+Aggressive Celebrations Response To Pak Taunts Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQejFjTG8zOUg4Zi1IXzVzbThnaGUtanMyOTV4ZUp5TVVMMWpSQnhLQVF4RzNCZ0x2eExiZkF5cFcyeUUyaFh6cXZQaElENW5iOXM5c0Nhb3FJcHVzOXU5WE5GUWRDUzN6N3VPTmFWNVg3djZJQmpGMm9Edy1Td3ZETTMxSVRtZllvQ1hMbDUxaF8xQTVoZG1tTzVHVFozYzhWVTBlcG9aNW4xYzDSAa4BQVVfeXFMTzBXRld4N2dtSWltc0dELU9DejFMRS00ZnFSWExZLU52TVk5dkdwV294Q0dSSUV2MDFNVmE4VUZud2dyRlpYbWtvQ0FoQXVyRHptanJqNHhVb0ViWW1lb2NsLTdFRDFLbFV4LUUwODBDUTVxc3ZlZHFQWkdYLW15dXhnREI1ZHAzdk5uQTZFVzE5cHpUR0ZneHJrblJ2SUoxNUIwV2hJb3NjVEJPUzFn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

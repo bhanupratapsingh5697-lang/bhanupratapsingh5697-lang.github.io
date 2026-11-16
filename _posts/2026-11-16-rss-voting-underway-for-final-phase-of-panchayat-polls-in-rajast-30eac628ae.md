@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Voting underway for final phase of panchayat polls in Rajasthan - The Hindu"
+date: 2026-11-16 11:40:56 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxPbTRjR0U3OVpkZlhMSm1HbkpqdGh4eHFPcWJ5cjc4WV9IXzREMjM0dENRZ2tqbHBfOHR5STZ4cTQtbEV5ZTJBX2ZnUE8tZ0pFeVF0Z1oydXI5NEVCUkw1NHFsQXlIZmxVWFZTSmg4Zkp5aVZ3anJFRHpPbTNXQ1RwbjhCbVBfUGpDdU5YWHZIRllKd1VBU3oweWdoZ0o4eHdxY1dpc3lZeW9MUFpiYTlsX2hXYTQ2eVlMUWhsZ0NZay11bF8xVlJXTmk1S2szSVXSAdYBQVVfeXFMTnZNcjJkVnFjQlg3am14SF9pR3BBc0ZHaTUyamFmbF9kNWlXWTNpQ3VUODBnSmpQeV9Iam1VVGFSM0F3YnFWWEdKWlJQUHpwLVhjREVfRnBRMUxmajlTMmgtZTVaLVI5b1pwZHNEWW1EdnRNWTd0cW95Wl84aXh6V3VFLTNrZzBYRGd3S2o5anFUSERDWlBZd3M1LTNzNTdkTFNVQVBkSlg2ZWtvRnJPUW9oZmV5eElzb1pCazBMaXJHdm1VSTR0SG41WGVyZ0JkTHdEMTBBZw?oc=5"
+---
+
+Voting underway for final phase of panchayat polls in Rajasthan The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxPbTRjR0U3OVpkZlhMSm1HbkpqdGh4eHFPcWJ5cjc4WV9IXzREMjM0dENRZ2tqbHBfOHR5STZ4cTQtbEV5ZTJBX2ZnUE8tZ0pFeVF0Z1oydXI5NEVCUkw1NHFsQXlIZmxVWFZTSmg4Zkp5aVZ3anJFRHpPbTNXQ1RwbjhCbVBfUGpDdU5YWHZIRllKd1VBU3oweWdoZ0o4eHdxY1dpc3lZeW9MUFpiYTlsX2hXYTQ2eVlMUWhsZ0NZay11bF8xVlJXTmk1S2szSVXSAdYBQVVfeXFMTnZNcjJkVnFjQlg3am14SF9pR3BBc0ZHaTUyamFmbF9kNWlXWTNpQ3VUODBnSmpQeV9Iam1VVGFSM0F3YnFWWEdKWlJQUHpwLVhjREVfRnBRMUxmajlTMmgtZTVaLVI5b1pwZHNEWW1EdnRNWTd0cW95Wl84aXh6V3VFLTNrZzBYRGd3S2o5anFUSERDWlBZd3M1LTNzNTdkTFNVQVBkSlg2ZWtvRnJPUW9oZmV5eElzb1pCazBMaXJHdm1VSTR0SG41WGVyZ0JkTHdEMTBBZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "U.K.'s Prince William, Princess Kate arrive in Mumbai for three-day trip - The Hindu"
+date: 2026-11-16 10:39:34 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxNNVlwX0J5RkFTaE55UENTZVNucjZFZUg0T1Fjd2xPTVFqaDREelk1TktqLU5nTkdablNPNGljTk9iOXZOd3hGRk9uTVBsTXFLQ1BxYnRaY29Fc1JXZWRRcE1OZ2ZnTWZjMUhib2wxXzY5TW45YkQ2NUdKYVktQnFkTE1xaThRSE1oTzdPUmhBd3Z3RlJFaC1Mam1oWHgwZVQ5NEwzSjZFb2lZcDN6d1ZUQmFnZXNtVFVFelhYcWw2aUtLclR1S2plUC04OFFhMlpoMzl30gHaAUFVX3lxTE9NbHNyamFrOEFPem9weGx0MVpINTlRdG4wQVgtY01xcEVtWm1aYm1yOFJHZWo2R3NCSU8zUkJMTTFRZEwxbDdUMGZoa3JTUnlqSkFKRXZfQnppNTZsbmswTlNpTHV6bDRQNkd6Sk9sUVdqbmdOeTF6aFU5blJWaFJHMUVaVkxfVFE2TnowM3ZfRnNzSmRHRVRxcFhTYUJ6Z0lULVByaW9NbDZuRUw2NFl1YXBXbGl5R0kxcnlIeEp2LWhCdkdWVW1ZX0tEVUt3R2N4RjFMSVJydnJB?oc=5"
+---
+
+U.K.'s Prince William, Princess Kate arrive in Mumbai for three-day trip The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxNNVlwX0J5RkFTaE55UENTZVNucjZFZUg0T1Fjd2xPTVFqaDREelk1TktqLU5nTkdablNPNGljTk9iOXZOd3hGRk9uTVBsTXFLQ1BxYnRaY29Fc1JXZWRRcE1OZ2ZnTWZjMUhib2wxXzY5TW45YkQ2NUdKYVktQnFkTE1xaThRSE1oTzdPUmhBd3Z3RlJFaC1Mam1oWHgwZVQ5NEwzSjZFb2lZcDN6d1ZUQmFnZXNtVFVFelhYcWw2aUtLclR1S2plUC04OFFhMlpoMzl30gHaAUFVX3lxTE9NbHNyamFrOEFPem9weGx0MVpINTlRdG4wQVgtY01xcEVtWm1aYm1yOFJHZWo2R3NCSU8zUkJMTTFRZEwxbDdUMGZoa3JTUnlqSkFKRXZfQnppNTZsbmswTlNpTHV6bDRQNkd6Sk9sUVdqbmdOeTF6aFU5blJWaFJHMUVaVkxfVFE2TnowM3ZfRnNzSmRHRVRxcFhTYUJ6Z0lULVByaW9NbDZuRUw2NFl1YXBXbGl5R0kxcnlIeEp2LWhCdkdWVW1ZX0tEVUt3R2N4RjFMSVJydnJB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

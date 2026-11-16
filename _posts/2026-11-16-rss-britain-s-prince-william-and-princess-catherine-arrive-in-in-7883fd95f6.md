@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Britain's Prince William and Princess Catherine arrive in India for three day visit - The New Indian Express"
+date: 2026-11-16 10:37:49 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxNbVZPSUpQVUViYmFFREZkLVlPOHhaaldaZjJud3FLV196UmRpenctdUNETEptUVZXdjN1c1FWZ0NLNEdZbmdlQUJUYWs1cEdHbjZHWW1kbXRJYjFPelR1dFByQ3I1cDhXUlcyNXFKVWhiX016UE5MTWd2N1JYd1FyWkU3a09zSEVpMWZGRjBOSWxiU2cySWI5MTE2TWpPeTRkMWFYSFZUb1NDeGpabElmbjJlUmQ2WTkyeG9TS2tTdFAtRFBHUU9GT1U0MFpVUdIB2wFBVV95cUxQdHRZNTdGRmNxdzFJTGFIQXVCS3BnbUJKOVNSVTg0RkZYaXhmOXBkaVlaa1BJOG14Q0hCYmQyS3hob2VzSElhMVRiZ3N5SjUzWU5LQ3JJbW44Sm9VNGtYU1pTY1NYWm5ScGxNSW01RWVmQ0lNN0pJRGV3NVV4R3U0YmVKZVQ0YjRWbHNER0Q2MFUwYUtkQ09LYmRMcFN6U2RreEEzRjBNWTdJY3hVQ3RRdFZUZC16cUNvOEFoLWZoQTgwUUtwazdHZlVmaGhLYnRJaTlhZkppUXpjU00?oc=5"
+---
+
+Britain's Prince William and Princess Catherine arrive in India for three day visit The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxNbVZPSUpQVUViYmFFREZkLVlPOHhaaldaZjJud3FLV196UmRpenctdUNETEptUVZXdjN1c1FWZ0NLNEdZbmdlQUJUYWs1cEdHbjZHWW1kbXRJYjFPelR1dFByQ3I1cDhXUlcyNXFKVWhiX016UE5MTWd2N1JYd1FyWkU3a09zSEVpMWZGRjBOSWxiU2cySWI5MTE2TWpPeTRkMWFYSFZUb1NDeGpabElmbjJlUmQ2WTkyeG9TS2tTdFAtRFBHUU9GT1U0MFpVUdIB2wFBVV95cUxQdHRZNTdGRmNxdzFJTGFIQXVCS3BnbUJKOVNSVTg0RkZYaXhmOXBkaVlaa1BJOG14Q0hCYmQyS3hob2VzSElhMVRiZ3N5SjUzWU5LQ3JJbW44Sm9VNGtYU1pTY1NYWm5ScGxNSW01RWVmQ0lNN0pJRGV3NVV4R3U0YmVKZVQ0YjRWbHNER0Q2MFUwYUtkQ09LYmRMcFN6U2RreEEzRjBNWTdJY3hVQ3RRdFZUZC16cUNvOEFoLWZoQTgwUUtwazdHZlVmaGhLYnRJaTlhZkppUXpjU00?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
