@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Video: Prince William, Kate Middleton Experience Mumbai Metro Ride During India Visit - NDTV"
+date: 2026-11-16 16:38:38 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxOVnpxZ1lkMUFsS0dISm9JZzhwRFpPX2FFemgxYzJoZFZGZG9kaTVyS180Qkp0Q1Vrb3dqVlk2Zjdoek01Rk80ZnA3VGlodWg0dHdkZ0hFNTdtX3U5ZXNSQm9DNkNaWWtucGtyUWdINDZyZ1h1STMyT29PTDlKbWRhNEVGSUhYTzl3OG5Yd0FXYXNxOHNSSXlMeVk1eFFZam1kS25Vc3FNVHAwOEZ4bVFDNktUekEyTU5fNHd4V9IBxAFBVV95cUxOZFF4WlhGeXBxOWxqc09nUUItOWo2TkJ0WkJlM1BQbFJtVFc0ZzAya1AyTTJocFZkZktOYnFlT21aeTVaZzRzSjdHMzd1YXhqeE5vZGhmZFNqX1VyTGJUVXdXMnRIMS10NnZCSFl0RW5EZGpWWmFZaHcwZlVRMXB1MzhERGdmVHk4VHdMaGYtOGcyX0k0cGVaTEpZQmZyaFpIdktnOWhvSzlGcUJGUXVqQmxocVFwUExSdDNieWl3MDM4M2pH?oc=5"
+---
+
+Video: Prince William, Kate Middleton Experience Mumbai Metro Ride During India Visit NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxOVnpxZ1lkMUFsS0dISm9JZzhwRFpPX2FFemgxYzJoZFZGZG9kaTVyS180Qkp0Q1Vrb3dqVlk2Zjdoek01Rk80ZnA3VGlodWg0dHdkZ0hFNTdtX3U5ZXNSQm9DNkNaWWtucGtyUWdINDZyZ1h1STMyT29PTDlKbWRhNEVGSUhYTzl3OG5Yd0FXYXNxOHNSSXlMeVk1eFFZam1kS25Vc3FNVHAwOEZ4bVFDNktUekEyTU5fNHd4V9IBxAFBVV95cUxOZFF4WlhGeXBxOWxqc09nUUItOWo2TkJ0WkJlM1BQbFJtVFc0ZzAya1AyTTJocFZkZktOYnFlT21aeTVaZzRzSjdHMzd1YXhqeE5vZGhmZFNqX1VyTGJUVXdXMnRIMS10NnZCSFl0RW5EZGpWWmFZaHcwZlVRMXB1MzhERGdmVHk4VHdMaGYtOGcyX0k0cGVaTEpZQmZyaFpIdktnOWhvSzlGcUJGUXVqQmxocVFwUExSdDNieWl3MDM4M2pH?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

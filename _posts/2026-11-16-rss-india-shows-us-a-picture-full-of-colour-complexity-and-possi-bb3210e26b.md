@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India shows us a picture full of colour, complexity and possibilities, says Prince William - The Hindu"
+date: 2026-11-16 22:18:05 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4AFBVV95cUxPR3hvRTFiTTVXUUY0Q20wSldtdnltWmw0ZWYzVHVQdjRmbzhKYzY4djNMdXRfR3JBZTgyWXJKcXpLaElWOURFWjkzZk1RVFVXZ2VYTmlFdGJoOEwyRmVGWXlZY19lNzhFUzc0V3F6YU41NGpZZ3lvVHBVYmRMU2pFdEFEeVY0eXcyZzJVNG5HU1ZxajVmcmtpUTFnLW5yb284VWJGdk1nWW56NWJCSDNUSW5uRWtvbEFYYmJ5TXlDN3FUSFhhR0ZvSWI1WVlnYTNVQWdjeHZzVU91NFRpOXBCZtIB5wFBVV95cUxNeE9PeEZzUWY4T0hHbzBBZUIxdmNpOTdLYmtiSTJNVVlJNW5ZU2dMdEpoeFY2Q1ZwNVpkTXhsdGpXYktsbDV3LVBoRTdENmprNzZEd2pLMkprTmRrNWxQcy01TmlIV0RuZVFaVmhoN280STlxaE5kWjNEaXIteW13REp5ZDBvdDVyVW95Vm1GUnJ2UUM0bFI4QzExTzZ6Mm1hVndJaEY3LXhmaGtTanJNaEhyNWxqSkRTRjY2ZDJ3Y2tLOTFuQl9WT1ZXY3FrWlVZbFZBZElXTjhsTUlUc2pXSUU3bkUzN3M?oc=5"
+---
+
+India shows us a picture full of colour, complexity and possibilities, says Prince William The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4AFBVV95cUxPR3hvRTFiTTVXUUY0Q20wSldtdnltWmw0ZWYzVHVQdjRmbzhKYzY4djNMdXRfR3JBZTgyWXJKcXpLaElWOURFWjkzZk1RVFVXZ2VYTmlFdGJoOEwyRmVGWXlZY19lNzhFUzc0V3F6YU41NGpZZ3lvVHBVYmRMU2pFdEFEeVY0eXcyZzJVNG5HU1ZxajVmcmtpUTFnLW5yb284VWJGdk1nWW56NWJCSDNUSW5uRWtvbEFYYmJ5TXlDN3FUSFhhR0ZvSWI1WVlnYTNVQWdjeHZzVU91NFRpOXBCZtIB5wFBVV95cUxNeE9PeEZzUWY4T0hHbzBBZUIxdmNpOTdLYmtiSTJNVVlJNW5ZU2dMdEpoeFY2Q1ZwNVpkTXhsdGpXYktsbDV3LVBoRTdENmprNzZEd2pLMkprTmRrNWxQcy01TmlIV0RuZVFaVmhoN280STlxaE5kWjNEaXIteW13REp5ZDBvdDVyVW95Vm1GUnJ2UUM0bFI4QzExTzZ6Mm1hVndJaEY3LXhmaGtTanJNaEhyNWxqSkRTRjY2ZDJ3Y2tLOTFuQl9WT1ZXY3FrWlVZbFZBZElXTjhsTUlUc2pXSUU3bkUzN3M?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

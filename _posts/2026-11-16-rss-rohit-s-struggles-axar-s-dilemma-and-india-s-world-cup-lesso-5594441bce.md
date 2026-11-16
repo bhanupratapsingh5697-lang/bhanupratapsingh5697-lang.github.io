@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rohit's struggles, Axar's dilemma and India's World Cup lessons from New Zealand - Cricinfo"
+date: 2026-11-16 18:24:15 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxQTF9sUHlrbGJyUmI5T29zT3otdG5ibjRCTUVWZnQyV3JNV05CSDNodVJ2dnBvLTlvMEVaQnZob1hTMUtmNEJieDREYm44ZkZ3bjFLZ3IwbDUtZ3BMbDdDUlNJSF9scmF0XzdFTjM5OTdabWRidXUySmZBQS11Uy1uMTg3dTJkSHg1MkFIMXRVaG1iMzRwVGE2LVpJdG1JUWRfZWhlS25aMS1TYkRDMHRpQmdOLWRKSloyQmfSAcsBQVVfeXFMTTZRSnpLb2xjZzFqWk9wS0tmaENQRkVmMEQtbU5uSmRvZFJtQTcxVzBoVllpOTFfZHRxWld0bkJ0WXZERGQ4czRpZEF6Wjl0WkhXZENZeGk0RHNPNU9yVlZQQ2loRmRwVkhWc1pnVlExXy1fZGdpZS01WW9haDMyNW5RU2FLc00taDBNbTlvUlBsZ28xSERwZVBOWlI2MUN4bFZMY0ZWZHJLZTJIMUZwVDVERjFfOU1hbWY5VGdNTUpTQU82S1ByZzFhck0?oc=5"
+---
+
+Rohit's struggles, Axar's dilemma and India's World Cup lessons from New Zealand Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxQTF9sUHlrbGJyUmI5T29zT3otdG5ibjRCTUVWZnQyV3JNV05CSDNodVJ2dnBvLTlvMEVaQnZob1hTMUtmNEJieDREYm44ZkZ3bjFLZ3IwbDUtZ3BMbDdDUlNJSF9scmF0XzdFTjM5OTdabWRidXUySmZBQS11Uy1uMTg3dTJkSHg1MkFIMXRVaG1iMzRwVGE2LVpJdG1JUWRfZWhlS25aMS1TYkRDMHRpQmdOLWRKSloyQmfSAcsBQVVfeXFMTTZRSnpLb2xjZzFqWk9wS0tmaENQRkVmMEQtbU5uSmRvZFJtQTcxVzBoVllpOTFfZHRxWld0bkJ0WXZERGQ4czRpZEF6Wjl0WkhXZENZeGk0RHNPNU9yVlZQQ2loRmRwVkhWc1pnVlExXy1fZGdpZS01WW9haDMyNW5RU2FLc00taDBNbTlvUlBsZ28xSERwZVBOWlI2MUN4bFZMY0ZWZHJLZTJIMUZwVDVERjFfOU1hbWY5VGdNTUpTQU82S1ByZzFhck0?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

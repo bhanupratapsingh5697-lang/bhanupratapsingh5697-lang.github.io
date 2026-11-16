@@ -1,0 +1,17 @@
+---
+layout: post
+title: "2 Suspicious Boxes Found Near Railway Track In Rajasthan Blast Probe - NDTV"
+date: 2026-11-16 15:02:59 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxOSm1PV2xwVjlQXzhYcDhGVFNJV1RzbWFmMFVWSS10UjVldGZkQ3NaMEEwMWtVQTRYbm53Zk9XUzFqQUZuVzV2a3FMcE8yU1VQb19RSExFcFR4NTNYZDE2RkNBQXoxbHZPOERBVHBfY3hGYXVOOUZIdFFXMmptaTJHZHNsQTBvTE1pbXI2bWh6Tm9Sak5wMFpJcFJ3UGhfOUZ4MWVRV2ZRdnRKamlIdWfSAbYBQVVfeXFMTUZKLVRCem5vTWxPZm41Nm5fczJNQ2kyYmNNMEJUMUNqU1pXVWV4OGUyMVFSd2xuMnl5ZjN3TzBCd09TMzk2VDFUN3FHZ3NCRHRwRVZoSWNPSFJkbUgza1dhWXl2NDJzMjRBcXFlMmwzUDdWMkxiQjVaaUY4YVV6MXRPTGpTcWU3QmJRa3p5RG5GQTE4eG5JV0xxeHAzcVdVRXV3bDc4MnJfaDZ2Vmx5RDNvQlczWmc?oc=5"
+---
+
+2 Suspicious Boxes Found Near Railway Track In Rajasthan Blast Probe NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxOSm1PV2xwVjlQXzhYcDhGVFNJV1RzbWFmMFVWSS10UjVldGZkQ3NaMEEwMWtVQTRYbm53Zk9XUzFqQUZuVzV2a3FMcE8yU1VQb19RSExFcFR4NTNYZDE2RkNBQXoxbHZPOERBVHBfY3hGYXVOOUZIdFFXMmptaTJHZHNsQTBvTE1pbXI2bWh6Tm9Sak5wMFpJcFJ3UGhfOUZ4MWVRV2ZRdnRKamlIdWfSAbYBQVVfeXFMTUZKLVRCem5vTWxPZm41Nm5fczJNQ2kyYmNNMEJUMUNqU1pXVWV4OGUyMVFSd2xuMnl5ZjN3TzBCd09TMzk2VDFUN3FHZ3NCRHRwRVZoSWNPSFJkbUgza1dhWXl2NDJzMjRBcXFlMmwzUDdWMkxiQjVaaUY4YVV6MXRPTGpTcWU3QmJRa3p5RG5GQTE4eG5JV0xxeHAzcVdVRXV3bDc4MnJfaDZ2Vmx5RDNvQlczWmc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

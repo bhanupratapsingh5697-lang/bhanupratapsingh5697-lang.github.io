@@ -1,0 +1,17 @@
+---
+layout: post
+title: "70% turnout in most districts as four-phase panchayat polls end in Rajasthan - The Hindu"
+date: 2026-11-17 01:34:33 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi3AFBVV95cUxPdzNTR2gyR1FSNjBqM2VCcGQ5ZlU4dnZwLThzdGNGZXdvX3lhdzVWUTJSSFUzTjJvakxJODhCa3lXZlFPYmtsOUFJWnQ1bWotNlhYNkdsVF9LX3E5M3pYNXhXMmR3bzNGQ0lHYlNZOFQzamdCUXVQZFJXdzNjekNBQURCV1d4M01QbnVkSHQ2elFMMzhhRDZXMlNvbi1yNXhjYmVfQnJPaWtpR1JCMVhnZDZKbEZyMXFlQ3N3MVNlWE9NVHl4RjV3d01sMG9lT1FtTEtCRGJmQmN2NXJ40gHjAUFVX3lxTFBvTkZWV3dUaXV5WDdRWmc5cDBIbk9UZy1ZN3BhamxEVmloVWdSbzVERG5rZGcwQjFqdHJfOVhGRkZaTkxiamFQMHp2aThyRkttUU1mcHFFWGpiOV96MWxvMEdpbVM4YjdDUUdQOGx2T1dZYW9jOV81VF91bWc4LTBGeE04aklNTk5uYTFWVlBSNHlmdjJYb25NOGRnQmZoWFh5U3VISTRVN3ZuMFNPTi1QRUdGeEVjZ3pnSC01UE4zbi1xZmFJekhWTlc3WGM2OHdnNHJodXIwR3UzSS1hRC1VVmo4?oc=5"
+---
+
+70% turnout in most districts as four-phase panchayat polls end in Rajasthan The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPdzNTR2gyR1FSNjBqM2VCcGQ5ZlU4dnZwLThzdGNGZXdvX3lhdzVWUTJSSFUzTjJvakxJODhCa3lXZlFPYmtsOUFJWnQ1bWotNlhYNkdsVF9LX3E5M3pYNXhXMmR3bzNGQ0lHYlNZOFQzamdCUXVQZFJXdzNjekNBQURCV1d4M01QbnVkSHQ2elFMMzhhRDZXMlNvbi1yNXhjYmVfQnJPaWtpR1JCMVhnZDZKbEZyMXFlQ3N3MVNlWE9NVHl4RjV3d01sMG9lT1FtTEtCRGJmQmN2NXJ40gHjAUFVX3lxTFBvTkZWV3dUaXV5WDdRWmc5cDBIbk9UZy1ZN3BhamxEVmloVWdSbzVERG5rZGcwQjFqdHJfOVhGRkZaTkxiamFQMHp2aThyRkttUU1mcHFFWGpiOV96MWxvMEdpbVM4YjdDUUdQOGx2T1dZYW9jOV81VF91bWc4LTBGeE04aklNTk5uYTFWVlBSNHlmdjJYb25NOGRnQmZoWFh5U3VISTRVN3ZuMFNPTi1QRUdGeEVjZ3pnSC01UE4zbi1xZmFJekhWTlc3WGM2OHdnNHJodXIwR3UzSS1hRC1VVmo4?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

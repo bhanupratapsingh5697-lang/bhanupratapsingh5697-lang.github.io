@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Dog in hospital ward, rat-bite complaints prompt action against staff in Rajasthan - Telegraph India"
+date: 2026-11-16 14:19:15 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxQMjY5Um5XbHNubXVHajR3UVM4bW5RV3EyUzNNQmFaZXpvX2pNNXpCVlQ5NWh0dmhleGVKdWFvRTN6VTdILU9LNDRtM1V0bDBZU05JVGFlV01ScEZsR0YyTVA3QUVuWEZzVTlTcUxhbjcwYmRKTDNLOFVJdVZ6aU5RM0JIV1lZbEJfajFlY01OeC1wdWZ3QVFlRnliR0dYYnVEOVF6MHAwWURjT0NqSUdXWWdhYjV6QnZJX2NaQWZwbGZCOHVBSF9kRTJ30gHPAUFVX3lxTFBxNmdnTjZKa2VxMHlfajFkb1ctUUk3Z3hUOGpSbGYwMU1VSTBFQXRodDJwdVBweGJKdzRKanV6QlJhd21PTGhhUVFmSnNFQnQ4bUkydXlEVXlqZUpuazRwNXdrc24zY3NibnVxNkhIaDVSMEFpV2t1QW84T1JEZTBIZ3djeTZReDZWWERvcmZlRk9KNjFORzhqNlBTRDJwM0Vxc0NTQWRqSmdEall0bVhqWHNCT3RnRFljUWxGWkt4dHdDWDZjaFhwTHRsUkdWdw?oc=5"
+---
+
+Dog in hospital ward, rat-bite complaints prompt action against staff in Rajasthan Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxQMjY5Um5XbHNubXVHajR3UVM4bW5RV3EyUzNNQmFaZXpvX2pNNXpCVlQ5NWh0dmhleGVKdWFvRTN6VTdILU9LNDRtM1V0bDBZU05JVGFlV01ScEZsR0YyTVA3QUVuWEZzVTlTcUxhbjcwYmRKTDNLOFVJdVZ6aU5RM0JIV1lZbEJfajFlY01OeC1wdWZ3QVFlRnliR0dYYnVEOVF6MHAwWURjT0NqSUdXWWdhYjV6QnZJX2NaQWZwbGZCOHVBSF9kRTJ30gHPAUFVX3lxTFBxNmdnTjZKa2VxMHlfajFkb1ctUUk3Z3hUOGpSbGYwMU1VSTBFQXRodDJwdVBweGJKdzRKanV6QlJhd21PTGhhUVFmSnNFQnQ4bUkydXlEVXlqZUpuazRwNXdrc24zY3NibnVxNkhIaDVSMEFpV2t1QW84T1JEZTBIZ3djeTZReDZWWERvcmZlRk9KNjFORzhqNlBTRDJwM0Vxc0NTQWRqSmdEall0bVhqWHNCT3RnRFljUWxGWkt4dHdDWDZjaFhwTHRsUkdWdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Congress to appoint booth-level ‘vote protectors’, prepare for Constitution march - ThePrint"
+date: 2026-11-16 20:20:16 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwAFBVV95cUxPQ29DNmdJMlduR2UtekpqcXA4akJiaFVvUnFtRDdUeW0tQXlOOExaT3NPdFJCQ1NldS0welJYVW9VMEI1UWM3dG5FYlZUY1ZrdXFzem15VnVDVHMycC1HRjllWDhxOW5OX0p2dktLR1JFbGNpUlM5bkdJRzN0Nm0xVnVqa2VqUmhnWHl5UEczQVhwNGNGcGtMMVI5MlpyRzM3UmtFU1VhUzUtVVFxVzJKSUdmM2daRVNLbmprS1kyQkbSAcYBQVVfeXFMTU53ZHJ6U3NENjVYcDM0N0Qta3Y2Mnd4QVVyUHo0NTYzR3R3cExjSXRpckJCemVJOHdWMUtvakVpRU5hYUhtUE5FVHlXZjlGMHFOcDR5R0xhcS1xVEhoY0tkdWlHWjZJcnpXR3EybGFpUXgzUzFISHpHOHFVS3huT2ozQmpwREtXbnM4NXpkejBYRFZzMXB5ZVRGV2RqV29ERGVhd29WVmVITFowdE50Wm9iMTA2ckFtR2tldkpqQ2tyUVdCT1ZR?oc=5"
+---
+
+Rajasthan Congress to appoint booth-level ‘vote protectors’, prepare for Constitution march ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwAFBVV95cUxPQ29DNmdJMlduR2UtekpqcXA4akJiaFVvUnFtRDdUeW0tQXlOOExaT3NPdFJCQ1NldS0welJYVW9VMEI1UWM3dG5FYlZUY1ZrdXFzem15VnVDVHMycC1HRjllWDhxOW5OX0p2dktLR1JFbGNpUlM5bkdJRzN0Nm0xVnVqa2VqUmhnWHl5UEczQVhwNGNGcGtMMVI5MlpyRzM3UmtFU1VhUzUtVVFxVzJKSUdmM2daRVNLbmprS1kyQkbSAcYBQVVfeXFMTU53ZHJ6U3NENjVYcDM0N0Qta3Y2Mnd4QVVyUHo0NTYzR3R3cExjSXRpckJCemVJOHdWMUtvakVpRU5hYUhtUE5FVHlXZjlGMHFOcDR5R0xhcS1xVEhoY0tkdWlHWjZJcnpXR3EybGFpUXgzUzFISHpHOHFVS3huT2ozQmpwREtXbnM4NXpkejBYRFZzMXB5ZVRGV2RqV29ERGVhd29WVmVITFowdE50Wm9iMTA2ckFtR2tldkpqQ2tyUVdCT1ZR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
