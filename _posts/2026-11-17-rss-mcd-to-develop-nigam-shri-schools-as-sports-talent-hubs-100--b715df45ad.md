@@ -1,0 +1,17 @@
+---
+layout: post
+title: "MCD to Develop Nigam Shri Schools as Sports Talent Hubs; 100-Mark Selection & 5-Year Operational Rule Set - Jagran Josh"
+date: 2026-11-17 11:46:47 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxPbk5GQV9EZEhiUk80Rzk3eVhZMldSTC10cmZZQTgtM0ZQU2EtWjdqbTlvdXFDNi1EclAyWnJvMXBIVTdrbVJtRjMwUUFDTHFBbHhCVzVEMjc0UFJCc1Y2OEw1c0lFUjRjTmtCZHZPSXM1UDdBbWtWQzAtdi1UV2N6dFI0enBlRmVMMy1uU1NVY1p0S0dsbHVXV0VCbHY5VnQ0Nml3T0Y3Tl85ejhocHJucC1UaTQ1dGlEb3J2T3d5UC1BenFLb3RrWGt6RzM3bElVV3NWWVowV0XSAd8BQVVfeXFMTjRMZTllbjlxel9yVWk1UGhPQmE3b056N0REVnVXTjJ1YkpVTC1BV2hZUkt1ZTVXWHI3aklaNmNwUDZiOFhxTU5GMGVNME9DZEJqTXBOb3g0OFlXT2h1VDUxQU10aHVxM3JyMTZrQzFvWWV1SEZrUWJQN0FWcVFtaGx4UWtUUEgxTFlmbkpyT29ZY25zZWc4QXYyd1ZCUUhUTzBLMGgwQ0twUkRGLWF5R2hwMVpEdndfOVFCcF9CVkNraE1qd2xPeG5VbllkTHRQMVlHbmNST0Q3OHdVYXpNUQ?oc=5"
+---
+
+MCD to Develop Nigam Shri Schools as Sports Talent Hubs; 100-Mark Selection & 5-Year Operational Rule Set Jagran Josh
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxPbk5GQV9EZEhiUk80Rzk3eVhZMldSTC10cmZZQTgtM0ZQU2EtWjdqbTlvdXFDNi1EclAyWnJvMXBIVTdrbVJtRjMwUUFDTHFBbHhCVzVEMjc0UFJCc1Y2OEw1c0lFUjRjTmtCZHZPSXM1UDdBbWtWQzAtdi1UV2N6dFI0enBlRmVMMy1uU1NVY1p0S0dsbHVXV0VCbHY5VnQ0Nml3T0Y3Tl85ejhocHJucC1UaTQ1dGlEb3J2T3d5UC1BenFLb3RrWGt6RzM3bElVV3NWWVowV0XSAd8BQVVfeXFMTjRMZTllbjlxel9yVWk1UGhPQmE3b056N0REVnVXTjJ1YkpVTC1BV2hZUkt1ZTVXWHI3aklaNmNwUDZiOFhxTU5GMGVNME9DZEJqTXBOb3g0OFlXT2h1VDUxQU10aHVxM3JyMTZrQzFvWWV1SEZrUWJQN0FWcVFtaGx4UWtUUEgxTFlmbkpyT29ZY25zZWc4QXYyd1ZCUUhUTzBLMGgwQ0twUkRGLWF5R2hwMVpEdndfOVFCcF9CVkNraE1qd2xPeG5VbllkTHRQMVlHbmNST0Q3OHdVYXpNUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

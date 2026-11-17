@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Nike unveils new Air technology, Mind footwear and performance innovations across sports - Digit"
+date: 2026-11-17 12:03:45 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxPRzlkZnNqM2M2VUxGTFlGSzIxNU9BeEw2c2I1YnBqeUJDcmdaV1Bwd2ZIeTRnZ1RYbV82dEp2bTdudExvU2ZtN25UaF9selVXWDJmaXlJVEdhOFVUWVpSaU5oUkJla1ZSVVhHZGQ4WlBTbVRTSEZnSkN5NkFZMVh0V3RGRUlOdDAzeGxtZV9CTmctU3ZIWGNJcVJlUXo3OVJTUDA1czZaUE5DLXNRZUN2TWlPNFdoSkN6dUNVN0ZiM0pESVV30gHLAUFVX3lxTE4weE9uOV9XVEY0X2lyLTE0em9WTE1oMnc4RGYwdGVzYzgwakMxajhfbjdIZ05QTDNOR3FlSUx3R1ByNzM5ZXBfajNuell1SnB2RExfQjYxcW02ZkxtcG0wS051ZjdQZ2laX256LXNsbGxhN3dSYW11emtVeE9lYWVsTlB4Y0JGaHY3WnU5LUZOTlBGaE9OeV9CZkVncDJuQUMxZ1JNN05GVWw3ZkEzTkthaDZiZDdLMmxmSTFhX1BjdkRldVU4LUFvczdv?oc=5"
+---
+
+Nike unveils new Air technology, Mind footwear and performance innovations across sports Digit
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxPRzlkZnNqM2M2VUxGTFlGSzIxNU9BeEw2c2I1YnBqeUJDcmdaV1Bwd2ZIeTRnZ1RYbV82dEp2bTdudExvU2ZtN25UaF9selVXWDJmaXlJVEdhOFVUWVpSaU5oUkJla1ZSVVhHZGQ4WlBTbVRTSEZnSkN5NkFZMVh0V3RGRUlOdDAzeGxtZV9CTmctU3ZIWGNJcVJlUXo3OVJTUDA1czZaUE5DLXNRZUN2TWlPNFdoSkN6dUNVN0ZiM0pESVV30gHLAUFVX3lxTE4weE9uOV9XVEY0X2lyLTE0em9WTE1oMnc4RGYwdGVzYzgwakMxajhfbjdIZ05QTDNOR3FlSUx3R1ByNzM5ZXBfajNuell1SnB2RExfQjYxcW02ZkxtcG0wS051ZjdQZ2laX256LXNsbGxhN3dSYW11emtVeE9lYWVsTlB4Y0JGaHY3WnU5LUZOTlBGaE9OeV9CZkVncDJuQUMxZ1JNN05GVWw3ZkEzTkthaDZiZDdLMmxmSTFhX1BjdkRldVU4LUFvczdv?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Keralam government nod to book former sports minister V Abdurahiman - The New Indian Express"
+date: 2026-11-17 07:24:57 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxNTm9DQnlKUkxlQzA5Zy0tVHpNeElSWEtuamRRcHBDcml1QjZwMFYwdnBaeVZJNGJSNUtZaURQQmVNZW4tc3BvektDRHNkWHA5MjZGSnlMMEttTWNSWDh6aVo1dDdWZURmSGc5ZGtvZkk4YTB0ekVDSWlLaG1XVnY4LWN3bi1fdUhieGpPdENiVjVJaWNtQ3hfdVR1QzNMMXh4VFVJVjNIYWRHVHZqWkZKLTZjWGRmdnJQV3NLeVc3ZlFPSUV10gHSAUFVX3lxTE1mNTIzNGNIcm5KTGloWTh2b3NjTDJOaC1ZZHBLWnFhWk1teG5xYUxkSGdPYUNBdnBYeWNvZ1NOR2x0MzYzYmo2MXBreWlTNDhNdl9Ia1NRY1BHYnh0WHZfRXlSNlRUdG5aeFBsVUl2U2txYVVnT3VuT3AtalM5cjhXdE1MdXhDNE1JSU41bmQtc3BKcDlyM3l1cUZKMFo1Z1FRLV9JS1I1YlJib2Ztel9mS1NpallkaGZNWlh6Wmx2SWdaNW80a0NqWTRScmVtczI0dw?oc=5"
+---
+
+Keralam government nod to book former sports minister V Abdurahiman The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxNTm9DQnlKUkxlQzA5Zy0tVHpNeElSWEtuamRRcHBDcml1QjZwMFYwdnBaeVZJNGJSNUtZaURQQmVNZW4tc3BvektDRHNkWHA5MjZGSnlMMEttTWNSWDh6aVo1dDdWZURmSGc5ZGtvZkk4YTB0ekVDSWlLaG1XVnY4LWN3bi1fdUhieGpPdENiVjVJaWNtQ3hfdVR1QzNMMXh4VFVJVjNIYWRHVHZqWkZKLTZjWGRmdnJQV3NLeVc3ZlFPSUV10gHSAUFVX3lxTE1mNTIzNGNIcm5KTGloWTh2b3NjTDJOaC1ZZHBLWnFhWk1teG5xYUxkSGdPYUNBdnBYeWNvZ1NOR2x0MzYzYmo2MXBreWlTNDhNdl9Ia1NRY1BHYnh0WHZfRXlSNlRUdG5aeFBsVUl2U2txYVVnT3VuT3AtalM5cjhXdE1MdXhDNE1JSU41bmQtc3BKcDlyM3l1cUZKMFo1Z1FRLV9JS1I1YlJib2Ztel9mS1NpallkaGZNWlh6Wmx2SWdaNW80a0NqWTRScmVtczI0dw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
