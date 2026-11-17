@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Romance, money and sabotage: Police uncover ISI plot behind Rajasthan railway track blast - The Indian Express"
+date: 2026-11-15 20:19:58 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxQZGd4UEpqMWZNbEpWd0NEa0E1NmZSODJhWnhMQ0hlVHdBT1BZczRLRmFSYkItb2xhbkg3QWJ5NF9UelhFTV9fS1Jnelp0eF9SbFNaMFFuWTNZWmt0TjV2dWFscVUyRzhnVVRsY3VsMk94cGdKYi1ZYWhwcWdSak9KSWMybEgzQ0N6M21hanV1cVNQMERkVTJUWUdvc0FmdlNmd1Z3RDN1Y2Z3azFRRzdyZmFMQjM5Vjc1MHZuaGRndi1DWkltRkV2dHVrSlo5UmPSAdYBQVVfeXFMT0ZpaS1QYk5ocndGNWJONUs5OVh0RmY2cWhod2w3SkxUUGh6ZXoxRDhZM0hhbUVZWkNZN3BGNDlVVkRoYWVKRVYya3FMLW9JMVl4RmwtdEViLTJhZHVfNWZwaGR0RS1KS0c2WmFnbG5JQTVFT1ZmZV9DaGNWY3NJYTEzM0V5UmE1ZnlaZVlmNTRaMHNYMXE2NXluWEJUWWQ3STZrblVpSGdIUFdCeXkySjRmN2VYRlVBbDdaZngwcm8yQ2RnSVljeC1xX1M5RzcwSFVZMTBqdw?oc=5"
+---
+
+Romance, money and sabotage: Police uncover ISI plot behind Rajasthan railway track blast The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxQZGd4UEpqMWZNbEpWd0NEa0E1NmZSODJhWnhMQ0hlVHdBT1BZczRLRmFSYkItb2xhbkg3QWJ5NF9UelhFTV9fS1Jnelp0eF9SbFNaMFFuWTNZWmt0TjV2dWFscVUyRzhnVVRsY3VsMk94cGdKYi1ZYWhwcWdSak9KSWMybEgzQ0N6M21hanV1cVNQMERkVTJUWUdvc0FmdlNmd1Z3RDN1Y2Z3azFRRzdyZmFMQjM5Vjc1MHZuaGRndi1DWkltRkV2dHVrSlo5UmPSAdYBQVVfeXFMT0ZpaS1QYk5ocndGNWJONUs5OVh0RmY2cWhod2w3SkxUUGh6ZXoxRDhZM0hhbUVZWkNZN3BGNDlVVkRoYWVKRVYya3FMLW9JMVl4RmwtdEViLTJhZHVfNWZwaGR0RS1KS0c2WmFnbG5JQTVFT1ZmZV9DaGNWY3NJYTEzM0V5UmE1ZnlaZVlmNTRaMHNYMXE2NXluWEJUWWQ3STZrblVpSGdIUFdCeXkySjRmN2VYRlVBbDdaZngwcm8yQ2RnSVljeC1xX1M5RzcwSFVZMTBqdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

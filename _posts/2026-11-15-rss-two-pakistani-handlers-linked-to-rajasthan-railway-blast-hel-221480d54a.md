@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Two Pakistani handlers linked to Rajasthan railway blast held in Punjab - Rediff"
+date: 2026-11-15 15:01:03 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxQRGlUSFc2MkdqNDY2bTctYWVoc0hfSHVjcEhoR1hjV2FQVFRIUzVFSEx6LTl2TVRrbDBUT2ZIMUtXclJkTzQ1eG01cWw4c0Jua2o2VlhYLXhGaE53anJIUDRMOVBDUDFEMWJKLVdsYkdHclZyY2xrYXZWSkltWWVseDQ0UVo3Vi1wUWZNdEd0NlV2T3hDbnI5TUxFMXVoTU9GdnhWSDBEQ1lvM0QtSkHSAbABQVVfeXFMT0pQajBRTDdTbWFraC16NDhGVkdrMnJvSHJqdEtrLS1mWTVXZTZlbUhkZWtra3YwUkVYRERtOGI0Y2ZXc0FBT0t0SGs2TEsyeGJUMTJQLUpleU5vejV1V0RXQW5NUUhfYUNjajJ6Wi1qSDAzLVJtOEJTU2xucjBoakFlbWV4LUF1VjRRYnFwQjJSbFhBOXQwNmVtbG4wc1NxRV9sbWFLbHNZX1NYWk9NN2o?oc=5"
+---
+
+Two Pakistani handlers linked to Rajasthan railway blast held in Punjab Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxQRGlUSFc2MkdqNDY2bTctYWVoc0hfSHVjcEhoR1hjV2FQVFRIUzVFSEx6LTl2TVRrbDBUT2ZIMUtXclJkTzQ1eG01cWw4c0Jua2o2VlhYLXhGaE53anJIUDRMOVBDUDFEMWJKLVdsYkdHclZyY2xrYXZWSkltWWVseDQ0UVo3Vi1wUWZNdEd0NlV2T3hDbnI5TUxFMXVoTU9GdnhWSDBEQ1lvM0QtSkHSAbABQVVfeXFMT0pQajBRTDdTbWFraC16NDhGVkdrMnJvSHJqdEtrLS1mWTVXZTZlbUhkZWtra3YwUkVYRERtOGI0Y2ZXc0FBT0t0SGs2TEsyeGJUMTJQLUpleU5vejV1V0RXQW5NUUhfYUNjajJ6Wi1qSDAzLVJtOEJTU2xucjBoakFlbWV4LUF1VjRRYnFwQjJSbFhBOXQwNmVtbG4wc1NxRV9sbWFLbHNZX1NYWk9NN2o?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

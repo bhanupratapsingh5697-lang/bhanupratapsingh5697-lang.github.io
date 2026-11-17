@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Saina Nehwal Expresses Sadness Over IOA Election Row - Rediff"
+date: 2026-11-17 22:25:09 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxNaGxGeUU1MUxEWlpFQXFZbFV6OFo3M0habFFlM3hFZEswajZKQ09KblJBTjdkdVRXdVpRdkhwOEkyaDBpbGpZSWdOeGVJaGtUS0tBR0RyU3pmSi1EbGdIZ2xmWjRualBISExBa0w3LUFUSkhVbDBMSTJsMEZSX1J5Q19LbzB6SkgzN1A1bkFlRjFJaTlueW81bm5mTWZCNVdVVENMOFZOZGhXdHpmN050Q2JJZmfSAbcBQVVfeXFMTTd6WXhJNkFlV1NLNkFXX1VrTEhhVGxYWEh2di0welcybFhoN3J0X25uc1hkYjdOSExWM0J6X2Z0WlQtTl83SXZObnh5U00zYzF2bUFmYlYzOTRRU1IwTGZLODJVZFpKRjc5X2lTNVIyTDdZZFI1MkppQkY5Tm5nbG84dEphQjVtWFB4ZVp3UHdfTkFrTXFCd3BuUG5OUjVFY1dTX1kzU3pISmVpQ1NvR2NVWmIySnV3?oc=5"
+---
+
+Saina Nehwal Expresses Sadness Over IOA Election Row Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxNaGxGeUU1MUxEWlpFQXFZbFV6OFo3M0habFFlM3hFZEswajZKQ09KblJBTjdkdVRXdVpRdkhwOEkyaDBpbGpZSWdOeGVJaGtUS0tBR0RyU3pmSi1EbGdIZ2xmWjRualBISExBa0w3LUFUSkhVbDBMSTJsMEZSX1J5Q19LbzB6SkgzN1A1bkFlRjFJaTlueW81bm5mTWZCNVdVVENMOFZOZGhXdHpmN050Q2JJZmfSAbcBQVVfeXFMTTd6WXhJNkFlV1NLNkFXX1VrTEhhVGxYWEh2di0welcybFhoN3J0X25uc1hkYjdOSExWM0J6X2Z0WlQtTl83SXZObnh5U00zYzF2bUFmYlYzOTRRU1IwTGZLODJVZFpKRjc5X2lTNVIyTDdZZFI1MkppQkY5Tm5nbG84dEphQjVtWFB4ZVp3UHdfTkFrTXFCd3BuUG5OUjVFY1dTX1kzU3pISmVpQ1NvR2NVWmIySnV3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "MS Dhoni joins Messi, Ronaldo in 2026 farewells: The sports stars who stepped away - Telegraph India"
+date: 2026-11-17 16:44:51 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxNMGRqN25KQ2hvc1I3LWVvUC1tWUlyM0pfWV9CUWl4aVFQbVRuck9JdXhYRmowa202UEV5SlpJVDNwaXlVaWlUMmN3cUZkWVhta3dPMnZvUmY3MjB6RmozT0tZTTVVRlk4QkUyTWNDeEN1R09IU3BLSEV0a1l5ZnhtZFBGUW4xU09rVHNrNjBkdXRHRjJwWmItdThFOEdxTWxWM19MSDhCUnVUbFJrNERnV1kzSjNZeHdzSmRxZmJJNUlCTGMwbWo5MkRB0gHPAUFVX3lxTFA0Nldqb2V1djRaTnpWSW1QNnpUTl93azZMUlMwMFBxNVZqVDlxZWxkVDQ0Z2NXTXYwOUpQTmwydWhGbU9PQmllTkU2WVN2cGZuRDItYXdvLS1tRTJwMXRFUmpHZFFvRnFyeklBdnVxbjF0ckJLUW15emFoZHRDVVhSa2RuYjFMMjZjcHo0X2NYYVJtVF9NZ0g3blVSMlFEYkFodzJyZ0ZIOWtkQ19VMDlHQjB5eFJIUVh6a3J1cnRVZEpUam4zODNFNnFaMDFrSQ?oc=5"
+---
+
+MS Dhoni joins Messi, Ronaldo in 2026 farewells: The sports stars who stepped away Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxNMGRqN25KQ2hvc1I3LWVvUC1tWUlyM0pfWV9CUWl4aVFQbVRuck9JdXhYRmowa202UEV5SlpJVDNwaXlVaWlUMmN3cUZkWVhta3dPMnZvUmY3MjB6RmozT0tZTTVVRlk4QkUyTWNDeEN1R09IU3BLSEV0a1l5ZnhtZFBGUW4xU09rVHNrNjBkdXRHRjJwWmItdThFOEdxTWxWM19MSDhCUnVUbFJrNERnV1kzSjNZeHdzSmRxZmJJNUlCTGMwbWo5MkRB0gHPAUFVX3lxTFA0Nldqb2V1djRaTnpWSW1QNnpUTl93azZMUlMwMFBxNVZqVDlxZWxkVDQ0Z2NXTXYwOUpQTmwydWhGbU9PQmllTkU2WVN2cGZuRDItYXdvLS1tRTJwMXRFUmpHZFFvRnFyeklBdnVxbjF0ckJLUW15emFoZHRDVVhSa2RuYjFMMjZjcHo0X2NYYVJtVF9NZ0g3blVSMlFEYkFodzJyZ0ZIOWtkQ19VMDlHQjB5eFJIUVh6a3J1cnRVZEpUam4zODNFNnFaMDFrSQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "United Airlines Resolves Technology Issue After Widespread Outage - NDTV"
+date: 2026-11-17 05:20:24 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxPWDVkU0lYRDR4V2dxX3hoZVdnZWFuckdkdGNpWWpyaVVCdHY1bWVoZTIzaGFoSGFMdGlleE9YeEZyWWZBS0pOUm9leWVTb1NPQ29jNHJqRy1TcnU4MjZ0QTJ4UjlWNUlqRTczLWNkRkhmRUpnNEJsQzk2WGtFTTJIOWM1ZnNPMDNxQ3ZIUWFSN1RTMmNjVzJyVlg0VWpRQkNicHJNeWV3XzI5QdIBsgFBVV95cUxPaVEtN25JSDNHMkgxWGhpMjRvd180NjR3QWkwR3RnLVlSbTVBWEdRSTVPOUdWaF9rcXdIa3R1aVFtLUFsUmEyZFV3aGVXUDg3RE5ubi1qYW82VDV0SWZESnNlRGlvY1pyOTVDTmk3QldDR2VXOE0tXzIyVm8zbEJmckJ2MV9QVmNWWk05eS0ySmwxX2xvM2plbE80YWM0VVZVeVZaUEhxM1Q4Sl8ydWVpM2h3?oc=5"
+---
+
+United Airlines Resolves Technology Issue After Widespread Outage NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPWDVkU0lYRDR4V2dxX3hoZVdnZWFuckdkdGNpWWpyaVVCdHY1bWVoZTIzaGFoSGFMdGlleE9YeEZyWWZBS0pOUm9leWVTb1NPQ29jNHJqRy1TcnU4MjZ0QTJ4UjlWNUlqRTczLWNkRkhmRUpnNEJsQzk2WGtFTTJIOWM1ZnNPMDNxQ3ZIUWFSN1RTMmNjVzJyVlg0VWpRQkNicHJNeWV3XzI5QdIBsgFBVV95cUxPaVEtN25JSDNHMkgxWGhpMjRvd180NjR3QWkwR3RnLVlSbTVBWEdRSTVPOUdWaF9rcXdIa3R1aVFtLUFsUmEyZFV3aGVXUDg3RE5ubi1qYW82VDV0SWZESnNlRGlvY1pyOTVDTmk3QldDR2VXOE0tXzIyVm8zbEJmckJ2MV9QVmNWWk05eS0ySmwxX2xvM2plbE80YWM0VVZVeVZaUEhxM1Q4Sl8ydWVpM2h3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

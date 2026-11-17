@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Chahar wants to win white-ball trophies with Rajasthan - The Hindu"
+date: 2026-11-17 18:54:09 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxQSm1BZ1NwSlVoWi02Z184YU5wZmVMUjRVR0tXMFYxYTRsa19OV1JwSnpVWW94dXlHRldTa3dvSjVSWjQzVHdNbzBqNTJwVDRoVFNQYk5GbUgyQWZpeGxjSlg2ekE2bFNhS3RiMllVVFkxWm5sTHRIUEdfREdnUUQ4QlVheVNpckFnRC1ab2FoZ3pUU1Q0NEEtOWpVc1BZd3psdGU2a2t1el83YUZqWFg1RmdfRdIBugFBVV95cUxPdzhWVm9hQ3RvS1NXVVdhN1lYbnpTYnZ4VUdoSFJ3S2RvTF9VX3JFZ1ZkZFlVRnNVMnREWE8xTUt6TTFBV0JhZEhfdjQwSlhuOWdhdmFEYndvLUlHcV9sWUgyREtnN1ktY0ZPVVJMY1JXQ3NzX2V5bk9fSDZtNVcxVzBBczRUSVBrNWhuYmF6TWpVSFhnLWF0MHdmbXEwM3llb3A4ejl0WEJyOERxOF9nVVhiSklva1d4NkE?oc=5"
+---
+
+Chahar wants to win white-ball trophies with Rajasthan The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxQSm1BZ1NwSlVoWi02Z184YU5wZmVMUjRVR0tXMFYxYTRsa19OV1JwSnpVWW94dXlHRldTa3dvSjVSWjQzVHdNbzBqNTJwVDRoVFNQYk5GbUgyQWZpeGxjSlg2ekE2bFNhS3RiMllVVFkxWm5sTHRIUEdfREdnUUQ4QlVheVNpckFnRC1ab2FoZ3pUU1Q0NEEtOWpVc1BZd3psdGU2a2t1el83YUZqWFg1RmdfRdIBugFBVV95cUxPdzhWVm9hQ3RvS1NXVVdhN1lYbnpTYnZ4VUdoSFJ3S2RvTF9VX3JFZ1ZkZFlVRnNVMnREWE8xTUt6TTFBV0JhZEhfdjQwSlhuOWdhdmFEYndvLUlHcV9sWUgyREtnN1ktY0ZPVVJMY1JXQ3NzX2V5bk9fSDZtNVcxVzBBczRUSVBrNWhuYmF6TWpVSFhnLWF0MHdmbXEwM3llb3A4ejl0WEJyOERxOF9nVVhiSklva1d4NkE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

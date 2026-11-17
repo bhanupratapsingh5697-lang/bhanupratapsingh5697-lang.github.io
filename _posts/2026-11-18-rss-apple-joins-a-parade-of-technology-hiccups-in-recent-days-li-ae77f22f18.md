@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Apple joins a parade of technology hiccups in recent days - Livemint"
+date: 2026-11-18 01:22:29 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxOaFh1RWdfa2IybWRJMU0zN2Z1Y1JtZFhtUjU3UE01YlJSTGprTWJNV3daa2lvMFZSaERHeGdmSEMtYnpKaGtES0ZJYmE5UmlSZHVOQ3NkVUxmNVBwYm5STzZSSmNtX2lBRlRLek9mMGRNSEF6bGVNcmhEV3hQNHdMczdlZGNER0QyZDl1OEJnT2kzQ21jdC1xcW9jQUluVlNrdi0zQTJiS0ZLNDYwdHNUWG9B0gG3AUFVX3lxTE9EUVZxaHdKeG9SaTdueHJlcTROWUtvcUIxTkE1RDlJWHAyTU12WTF4N1FRakZzYkE0QURKckYyc2FZRVlodjUwWkwxWmlIMXBFLWRxLVBVR25KeDdwRUR5RTFoV3BEU3c4LS1UVERKRHZUZUhYbVV5QnJKbjRzVm9uWW1hdTRqNDlaWTBhNWt6WHdCcE52UlNjczNlR3RkQks3QzZjeDRscV9YNEtadE04Nk1FNndBbw?oc=5"
+---
+
+Apple joins a parade of technology hiccups in recent days Livemint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxOaFh1RWdfa2IybWRJMU0zN2Z1Y1JtZFhtUjU3UE01YlJSTGprTWJNV3daa2lvMFZSaERHeGdmSEMtYnpKaGtES0ZJYmE5UmlSZHVOQ3NkVUxmNVBwYm5STzZSSmNtX2lBRlRLek9mMGRNSEF6bGVNcmhEV3hQNHdMczdlZGNER0QyZDl1OEJnT2kzQ21jdC1xcW9jQUluVlNrdi0zQTJiS0ZLNDYwdHNUWG9B0gG3AUFVX3lxTE9EUVZxaHdKeG9SaTdueHJlcTROWUtvcUIxTkE1RDlJWHAyTU12WTF4N1FRakZzYkE0QURKckYyc2FZRVlodjUwWkwxWmlIMXBFLWRxLVBVR25KeDdwRUR5RTFoV3BEU3c4LS1UVERKRHZUZUhYbVV5QnJKbjRzVm9uWW1hdTRqNDlaWTBhNWt6WHdCcE52UlNjczNlR3RkQks3QzZjeDRscV9YNEtadE04Nk1FNndBbw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

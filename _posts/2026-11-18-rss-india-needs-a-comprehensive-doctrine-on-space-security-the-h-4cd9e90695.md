@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India needs a comprehensive doctrine on space security - The Hindu"
+date: 2026-11-18 00:40:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxOVnBWVlU4a3VDT2JITXJtRW9Xa2VIREJDdWVKdEg0eWJZN1I5cFMtM2NxMUk2UUNtQXo5SDhsZ21Qd1NSeXV4RHRFZ3JqbVVoZlJ3ZkRzQWpIX25HRnF5WnlSVE5MR0J1bndaTVJ4VnhPY2thQmJMd0g2Z0VTX3FVSksybW1rR1Fyd3kxMHAyZXEzWXFyRmFzSld5d2dkYUJmUXp3Ny0wR0g0VDNlQ2t3TW9pa9IBugFBVV95cUxNcXNCUWo3Q1VVMmdCVGw2VDd3emNpamwzQllRdmd4TjJlTUNkTFBhc0JrcTJLZHVOMXhPYnFoWnlwb2xyVDNId3Z0eHAtNDJwUmpmeHpsLVdac2FsMlBoYzd0WnJyV0lJZ19OMlVtUkdwSXQ4WjRsMXlSOXZLS180WUVyckdJc3VRcjBYajBQXzhobWd1OW45clZaZkM4cFBRSHR1V1ptUDFteWFReTR3ZEk3SnEzRjRvU2c?oc=5"
+---
+
+India needs a comprehensive doctrine on space security The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVnBWVlU4a3VDT2JITXJtRW9Xa2VIREJDdWVKdEg0eWJZN1I5cFMtM2NxMUk2UUNtQXo5SDhsZ21Qd1NSeXV4RHRFZ3JqbVVoZlJ3ZkRzQWpIX25HRnF5WnlSVE5MR0J1bndaTVJ4VnhPY2thQmJMd0g2Z0VTX3FVSksybW1rR1Fyd3kxMHAyZXEzWXFyRmFzSld5d2dkYUJmUXp3Ny0wR0g0VDNlQ2t3TW9pa9IBugFBVV95cUxNcXNCUWo3Q1VVMmdCVGw2VDd3emNpamwzQllRdmd4TjJlTUNkTFBhc0JrcTJLZHVOMXhPYnFoWnlwb2xyVDNId3Z0eHAtNDJwUmpmeHpsLVdac2FsMlBoYzd0WnJyV0lJZ19OMlVtUkdwSXQ4WjRsMXlSOXZLS180WUVyckdJc3VRcjBYajBQXzhobWd1OW45clZaZkM4cFBRSHR1V1ptUDFteWFReTR3ZEk3SnEzRjRvU2c?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
