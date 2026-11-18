@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India's Snooker Players Dominate Group Stage At World Championship - Rediff"
+date: 2026-11-18 23:16:09 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxOQ3pMSEpZRXJWNEVqaTluSHh1Uk1TMGVzek9OYV9VTEhuREVuWVVJUGNubXBZOWxrUUJjcEttQmw3LVo4Qmo0YmcxSUNSakxqVzh6eTJLcEJvM016M2JGVHJ4MEFLMWpHQVpBcWdYcmg1ZWRCMnJNeV9oMWpaT1ZWV042NTN1bzZ0ZTh0djN0NDVEVl82aGhIV0JVQm1wYmxfc2poaFZqN2p3SDgtNU5r0gGyAUFVX3lxTE9UWkpYWkRDWThGQ1BZazZtQ01jY0UzSlhaMzVFMWQ4em1mdW9GUUFrbS1LYjRwMUJ3MjlCc29uWDBhN1prSnpUb1BWVHMzWkx4Q3hxU2RuWG41RksxYkhuN19aZUVkMjhKbXpHMGJjU0NVYlItdDBkTDQ3STFBbTJyX2JZMkZsUFJIMm4zRm5FSi1GUS0ycGk3dHFTV29WSk94aER5cWZGUExLWUI4WktjTEE?oc=5"
+---
+
+India's Snooker Players Dominate Group Stage At World Championship Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxOQ3pMSEpZRXJWNEVqaTluSHh1Uk1TMGVzek9OYV9VTEhuREVuWVVJUGNubXBZOWxrUUJjcEttQmw3LVo4Qmo0YmcxSUNSakxqVzh6eTJLcEJvM016M2JGVHJ4MEFLMWpHQVpBcWdYcmg1ZWRCMnJNeV9oMWpaT1ZWV042NTN1bzZ0ZTh0djN0NDVEVl82aGhIV0JVQm1wYmxfc2poaFZqN2p3SDgtNU5r0gGyAUFVX3lxTE9UWkpYWkRDWThGQ1BZazZtQ01jY0UzSlhaMzVFMWQ4em1mdW9GUUFrbS1LYjRwMUJ3MjlCc29uWDBhN1prSnpUb1BWVHMzWkx4Q3hxU2RuWG41RksxYkhuN19aZUVkMjhKbXpHMGJjU0NVYlItdDBkTDQ3STFBbTJyX2JZMkZsUFJIMm4zRm5FSi1GUS0ycGk3dHFTV29WSk94aER5cWZGUExLWUI4WktjTEE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

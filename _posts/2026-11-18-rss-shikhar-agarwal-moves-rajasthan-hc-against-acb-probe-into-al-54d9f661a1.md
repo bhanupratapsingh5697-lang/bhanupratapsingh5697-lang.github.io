@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Shikhar Agarwal moves Rajasthan HC against ACB probe into alleged villa purchase case - The New Indian Express"
+date: 2026-11-18 12:06:40 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxNU1BUTXJISHBKXzhaTVRIOFpsR3lEMjNKSEtHbU5nclA2eFNOY2ZXa0tINEpILWE2QUdIbGxlMS1VbnBfUWN3VGF5QW1ZcDBEc21PSGtNazZwUWlOeFJOT09RYUxYcFFPUnJZd0NHSEJBeDhnbkxmLXkxaVEzWGRTZ0V4S2tLN0lsR0dlalhMX0dKRnotaVBsVjQxa3U3YzhvRlpCQTRUejB6MF9WVHgtVTkyV2QtOUw4ejgzTzlEOVR5RzduZnNBMDR3Vk5yMnhwTnfSAd8BQVVfeXFMUG45amdVd1kzTVJBa3kzS21vM2txNVhXOWZoSDliRVYtcXEwWVpxNkJpd3NoYS1paGdncW9rQ2laUlpVcUMwV24wRDJQT1hYdVFGcXE4dFVuUExqcmQ3UGdSY1V6M25Dd1BlQldnbkJFOFVUc0RjbDRLclcyRm5aN0g3Nmhtek9JeU9jN3dMT3JwM3RQTy1XTHp5Z0Frcm1lM21sTHU0eG1YWWp2aWY0Z2hCSi1ibnVYU1pTUnhTUjNZQmE2RXl3M1hEOUEzakp4OWZGTHpBc2pOZjJrd1pDcw?oc=5"
+---
+
+Shikhar Agarwal moves Rajasthan HC against ACB probe into alleged villa purchase case The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxNU1BUTXJISHBKXzhaTVRIOFpsR3lEMjNKSEtHbU5nclA2eFNOY2ZXa0tINEpILWE2QUdIbGxlMS1VbnBfUWN3VGF5QW1ZcDBEc21PSGtNazZwUWlOeFJOT09RYUxYcFFPUnJZd0NHSEJBeDhnbkxmLXkxaVEzWGRTZ0V4S2tLN0lsR0dlalhMX0dKRnotaVBsVjQxa3U3YzhvRlpCQTRUejB6MF9WVHgtVTkyV2QtOUw4ejgzTzlEOVR5RzduZnNBMDR3Vk5yMnhwTnfSAd8BQVVfeXFMUG45amdVd1kzTVJBa3kzS21vM2txNVhXOWZoSDliRVYtcXEwWVpxNkJpd3NoYS1paGdncW9rQ2laUlpVcUMwV24wRDJQT1hYdVFGcXE4dFVuUExqcmQ3UGdSY1V6M25Dd1BlQldnbkJFOFVUc0RjbDRLclcyRm5aN0g3Nmhtek9JeU9jN3dMT3JwM3RQTy1XTHp5Z0Frcm1lM21sTHU0eG1YWWp2aWY0Z2hCSi1ibnVYU1pTUnhTUjNZQmE2RXl3M1hEOUEzakp4OWZGTHpBc2pOZjJrd1pDcw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

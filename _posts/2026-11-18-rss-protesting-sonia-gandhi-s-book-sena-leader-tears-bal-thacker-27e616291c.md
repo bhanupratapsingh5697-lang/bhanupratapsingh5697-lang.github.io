@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Protesting Sonia Gandhi's Book, Sena Leader Tears Bal Thackeray's Photo, Triggers Row - NDTV"
+date: 2026-11-18 15:51:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizwFBVV95cUxOa3puMWp2MFJDbFlnZUx1bGlFQVhsYWt6U0dRVXRmTGlockMxWV9ZaDBZVk1BTFRzbDFZRWphVE53UVRZaHlMYXJwd2pIWGRsNGpQRnFoNXdPRFBEZW5FQjQ1Q1dkZmpjVTFtV29TVUF0djBjSHpVNzJLd3JobVFwQWZlRE1CbUhWdmVvbFF2WExiTHNQUmpDVEJmV1dwdXZJbTBsekFyWVBOUGpmTjl4dDZpclJjTUpyVGdCWDhqZ2F3bHNGeDNzV2pNbWNIMzDSAdcBQVVfeXFMT3R1b3NqR01TdWlOZGtxdXVyUXljUHF1aFNwTjVVNEpyb3YtYnI4Yk84R0VSRmtmTnpiOWoxbHdyWThISE41QUMwajQzWGM1YktSUFp0bU1zME5YbzU2TEZYcGN0TnB1cnhaUlpNb0tKbTV0ZzlCQ0NRcmYwVlFkSWgwaDZkTE96eDlvYjRfYXN1VVRQeUZQcHpGRndac2xSS1pMelFJenRHeVpYSGgyVzlYQVlHT0F3X0xtNnhKQnJBN0d5enU0d2xrOS0zaklXMkxZZy00anc?oc=5"
+---
+
+Protesting Sonia Gandhi's Book, Sena Leader Tears Bal Thackeray's Photo, Triggers Row NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizwFBVV95cUxOa3puMWp2MFJDbFlnZUx1bGlFQVhsYWt6U0dRVXRmTGlockMxWV9ZaDBZVk1BTFRzbDFZRWphVE53UVRZaHlMYXJwd2pIWGRsNGpQRnFoNXdPRFBEZW5FQjQ1Q1dkZmpjVTFtV29TVUF0djBjSHpVNzJLd3JobVFwQWZlRE1CbUhWdmVvbFF2WExiTHNQUmpDVEJmV1dwdXZJbTBsekFyWVBOUGpmTjl4dDZpclJjTUpyVGdCWDhqZ2F3bHNGeDNzV2pNbWNIMzDSAdcBQVVfeXFMT3R1b3NqR01TdWlOZGtxdXVyUXljUHF1aFNwTjVVNEpyb3YtYnI4Yk84R0VSRmtmTnpiOWoxbHdyWThISE41QUMwajQzWGM1YktSUFp0bU1zME5YbzU2TEZYcGN0TnB1cnhaUlpNb0tKbTV0ZzlCQ0NRcmYwVlFkSWgwaDZkTE96eDlvYjRfYXN1VVRQeUZQcHpGRndac2xSS1pMelFJenRHeVpYSGgyVzlYQVlHT0F3X0xtNnhKQnJBN0d5enU0d2xrOS0zaklXMkxZZy00anc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

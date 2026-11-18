@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Testing times: On India’s two-Test series against New Zealand - The Hindu"
+date: 2026-11-19 01:11:32 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxOOGc4Z1JVT3kwZnRhOUxERTZQcmIxNFVLNWo5cXp2UldLaU0tTHMzWXQzbW9mZmFNbUdHeXU3OUZpT1YwZWR3VEVhOUdRUGFGR0wtN2ExUkZFQ29ESnZlWlZCc2FHWVE3V0tJUDFENG9oaUJreFVWV01XMHlFRmJwcE1OdUhPT3YwTTEzTTVfYmZraGJyTlptNkpvbk84aW0tVmhwaWk3amwtLUp1MU5wYWM3enNlMGdlQ0xNTklvRdIBxgFBVV95cUxOeTJhTWVWXzliZGstNzJFYW95clg0TWJXWVE4UUNHRHZNWFUzWmVVV0pockg0bXBOeDdLUDRYX3ZqZi1Wd1cxbTVkQ3VwOFlnekNIZjg2Y1dLeUlTM2FLa251RS1MdmJEWHRVOG5uT3JodmRPVVg1alBFd21KVndjb090ckZwWXVmenA0QTFwNFVBUmVYLXZnblpoWVNBcXhZWC1ucl8zT0o4WXVmTHJ5bjAxUkRoakdtazJLZzYwVWpSVkp5U1E?oc=5"
+---
+
+Testing times: On India’s two-Test series against New Zealand The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxOOGc4Z1JVT3kwZnRhOUxERTZQcmIxNFVLNWo5cXp2UldLaU0tTHMzWXQzbW9mZmFNbUdHeXU3OUZpT1YwZWR3VEVhOUdRUGFGR0wtN2ExUkZFQ29ESnZlWlZCc2FHWVE3V0tJUDFENG9oaUJreFVWV01XMHlFRmJwcE1OdUhPT3YwTTEzTTVfYmZraGJyTlptNkpvbk84aW0tVmhwaWk3amwtLUp1MU5wYWM3enNlMGdlQ0xNTklvRdIBxgFBVV95cUxOeTJhTWVWXzliZGstNzJFYW95clg0TWJXWVE4UUNHRHZNWFUzWmVVV0pockg0bXBOeDdLUDRYX3ZqZi1Wd1cxbTVkQ3VwOFlnekNIZjg2Y1dLeUlTM2FLa251RS1MdmJEWHRVOG5uT3JodmRPVVg1alBFd21KVndjb090ckZwWXVmenA0QTFwNFVBUmVYLXZnblpoWVNBcXhZWC1ucl8zT0o4WXVmTHJ5bjAxUkRoakdtazJLZzYwVWpSVkp5U1E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India’s CSR spending leaves gaps in health, water security, innovation: Report - The Hindu"
+date: 2026-11-19 01:06:40 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxPZ0EwaUFmQzFBRGtDZ2hJNzd0U19BRFBlNGJwVnJQclFzenlOeW50TzFCRDFJbXZNLVZCVVpWZXF1X3FaN3h3cGpTOWxyTWI5aE1ERURMMUlkUkl0d2hLOWtveU44Q2tyWl9seXVHeXZBSlpsU0ZSU2NhRjJRdE5xUWFkUG9UTFRBM1l6NXhtYXZnSTE5UDJlQjlLakR6Rktmb0M5RnkxSWpER1M5OHcteElnY3FwSHJwUGVNRjRXRXI4aG1aRDBjd1NQMWR5eVF5VUkyUE5HNUZfQ2_SAeIBQVVfeXFMT2lfVFR4UlZYVjZ3cUF6cG9DX2thSHRORjFFN0JyOGlhSHYxdDhMS3FCeXJzWFZXRHNGQmdZSGlHenFvTHdEWXNzVmpTUVo1Wjc0VXN4YUlZT0dDdFdja2p6d3MzZnFjazVqWmVuSVhVU0RJdlBpZkhiN1ZuR1ZjclB6YU5BblhfTEFuU1RreTZRVlpiN0hqRTU3VmRKU1VqeklJX2M1TmpOVkRXd0pyNl95OFgwSWw1WUhyT2Y0bUZtRkdNQWhjZFlSS2dLRkQwNGU2eUdVaTBCelAtSzlPU3Y5UQ?oc=5"
+---
+
+India’s CSR spending leaves gaps in health, water security, innovation: Report The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxPZ0EwaUFmQzFBRGtDZ2hJNzd0U19BRFBlNGJwVnJQclFzenlOeW50TzFCRDFJbXZNLVZCVVpWZXF1X3FaN3h3cGpTOWxyTWI5aE1ERURMMUlkUkl0d2hLOWtveU44Q2tyWl9seXVHeXZBSlpsU0ZSU2NhRjJRdE5xUWFkUG9UTFRBM1l6NXhtYXZnSTE5UDJlQjlLakR6Rktmb0M5RnkxSWpER1M5OHcteElnY3FwSHJwUGVNRjRXRXI4aG1aRDBjd1NQMWR5eVF5VUkyUE5HNUZfQ2_SAeIBQVVfeXFMT2lfVFR4UlZYVjZ3cUF6cG9DX2thSHRORjFFN0JyOGlhSHYxdDhMS3FCeXJzWFZXRHNGQmdZSGlHenFvTHdEWXNzVmpTUVo1Wjc0VXN4YUlZT0dDdFdja2p6d3MzZnFjazVqWmVuSVhVU0RJdlBpZkhiN1ZuR1ZjclB6YU5BblhfTEFuU1RreTZRVlpiN0hqRTU3VmRKU1VqeklJX2M1TmpOVkRXd0pyNl95OFgwSWw1WUhyT2Y0bUZtRkdNQWhjZFlSS2dLRkQwNGU2eUdVaTBCelAtSzlPU3Y5UQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

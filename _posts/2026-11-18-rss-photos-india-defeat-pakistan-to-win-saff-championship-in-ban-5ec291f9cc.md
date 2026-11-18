@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Photos: India defeat Pakistan to win SAFF Championship in Bangladesh - Al Jazeera"
+date: 2026-11-18 13:32:32 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxOaXNIWm1rbDZKTjYzTWdzdnZmUDJqdmotRks0TmhIR1BxNnZSUXdURzk5LTdiTUcxbjhLQlp0WG5YU1VCYUpXWjNrRGMxaWVsS2JIVDM5ZFF0N05RTHItM0J4Y1Z1UW5WVEI4b3JYRjlKUVNCTENzaGRVMDVDX0lEb001V01JV0xxVHNTVEQ5TEtVM0NDbkFuaGxDS3NkZjNOT0FTejU3R1pxSDZFWlBBc09n0gG3AUFVX3lxTE1NMEdLbkltb2JFQWNxcGhOM3kyWUUwNkItWk8ySFlDUElMZ3lIdXF4TDJFLVhFSmdYY0tuM01DRTJlRlJkb0lPc2c1Und2azV0RGhnc05zNVJJTUMwQjVWaU8xaE43U2hVRFlzeC1jMXR6STY4YW9KMTdGQktIWTVJZkhGX2NiQ1NlSnoxcWludDZMMUhTQTE1NG52OXFEb2tja21EcDFmOGp6a0pTdElwMVNsd2tfcw?oc=5"
+---
+
+Photos: India defeat Pakistan to win SAFF Championship in Bangladesh Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxOaXNIWm1rbDZKTjYzTWdzdnZmUDJqdmotRks0TmhIR1BxNnZSUXdURzk5LTdiTUcxbjhLQlp0WG5YU1VCYUpXWjNrRGMxaWVsS2JIVDM5ZFF0N05RTHItM0J4Y1Z1UW5WVEI4b3JYRjlKUVNCTENzaGRVMDVDX0lEb001V01JV0xxVHNTVEQ5TEtVM0NDbkFuaGxDS3NkZjNOT0FTejU3R1pxSDZFWlBBc09n0gG3AUFVX3lxTE1NMEdLbkltb2JFQWNxcGhOM3kyWUUwNkItWk8ySFlDUElMZ3lIdXF4TDJFLVhFSmdYY0tuM01DRTJlRlJkb0lPc2c1Und2azV0RGhnc05zNVJJTUMwQjVWaU8xaE43U2hVRFlzeC1jMXR6STY4YW9KMTdGQktIWTVJZkhGX2NiQ1NlSnoxcWludDZMMUhTQTE1NG52OXFEb2tja21EcDFmOGp6a0pTdElwMVNsd2tfcw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

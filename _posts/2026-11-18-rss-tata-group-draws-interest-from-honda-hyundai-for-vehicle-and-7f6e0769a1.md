@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Tata Group draws interest from Honda, Hyundai for vehicle and technology sharing - Autocar India"
+date: 2026-11-18 14:05:43 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxNdE8xRVd5bnRFay1yY21ib2RwZTVxbDV5UVpVSHNIS2w2bG9UTmJPS0JkQ0tfQlZCTmUzTDZSb1J2bEd6SXJqby1sOW44YS13MkF4Nmt2VWUzS25XRjZtWTZMdVlnSlhrR1hFcFFKNnpmZGpjYWVPVzBZcjBRTUFsZlJuVUhwV1J1NG5NbjZ3UW1DcTBIbzFtY1dnNl85NnlyWXl2QlRfQUJKTU53S2EtZWdZM2RjOVhPb1lqOXB4TkRaQdIBxwFBVV95cUxPQXpTYVFzZk5FcTJVT19SWm1JNkJ1M3ZpamREckVGN1JSTHE4M3J0WW1zVVZfSzVTckVUdGRqSGNVOTJwU0NQMDAtVTNSTnlRMER6Ykx2ZDVsZ0c2V29BcWVnUS1GUkpiZm5ZOTJOdTdNakhKYzRkVEVWVDg0aFJPbTU1WTZleHdTMl84bG5UWWtjbmhQVzF3TUdnUEpzOFNmaGVHMVZqSkZrb2N4ZUFfN05kUU9rNUNxelYxaE9wbGxjYl9uRjQ0?oc=5"
+---
+
+Tata Group draws interest from Honda, Hyundai for vehicle and technology sharing Autocar India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNdE8xRVd5bnRFay1yY21ib2RwZTVxbDV5UVpVSHNIS2w2bG9UTmJPS0JkQ0tfQlZCTmUzTDZSb1J2bEd6SXJqby1sOW44YS13MkF4Nmt2VWUzS25XRjZtWTZMdVlnSlhrR1hFcFFKNnpmZGpjYWVPVzBZcjBRTUFsZlJuVUhwV1J1NG5NbjZ3UW1DcTBIbzFtY1dnNl85NnlyWXl2QlRfQUJKTU53S2EtZWdZM2RjOVhPb1lqOXB4TkRaQdIBxwFBVV95cUxPQXpTYVFzZk5FcTJVT19SWm1JNkJ1M3ZpamREckVGN1JSTHE4M3J0WW1zVVZfSzVTckVUdGRqSGNVOTJwU0NQMDAtVTNSTnlRMER6Ykx2ZDVsZ0c2V29BcWVnUS1GUkpiZm5ZOTJOdTdNakhKYzRkVEVWVDg0aFJPbTU1WTZleHdTMl84bG5UWWtjbmhQVzF3TUdnUEpzOFNmaGVHMVZqSkZrb2N4ZUFfN05kUU9rNUNxelYxaE9wbGxjYl9uRjQ0?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

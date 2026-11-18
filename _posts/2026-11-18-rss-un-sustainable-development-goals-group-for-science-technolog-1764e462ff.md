@@ -1,0 +1,17 @@
+---
+layout: post
+title: "UN Sustainable Development Goals group for science, technology rejigged - The Hindu"
+date: 2026-11-18 23:15:46 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxOWE1KeXFnVDM5UjBON08zZ0wzZTdoT0NSLUo4d2RSejUyNnpDN21rTkhCbHFXX3dtQjJqVS03YTg1T0ZBZ1dSd1ZpNDAtbENhLWVDd05fZ1NJbTB1Q1FER29fOEFCLW03eDBDSFZSM09pY0gwUXpiTVBwNFJMbFVvU1J3bVhsQjVMaTRmcWdfaVpQdUFsMmRpLVVvYnVJWk5VNWlkUjFTN2hOZXZpdXJIY0tHWktDU2prdnRJQ2toa2pwM1Iza25Eci0xZ0nSAdMBQVVfeXFMTlZHODIxaktjekJ3VS1mUlFhUW5tVkhucWphdmRwZXZGV0JvbG9JcVo1TFREX2pGa2h4V0JBOWNBR2VtMkMwZ3ZJeEx5Yjg2Mm03dTMyc25EN0QtcE5Gd0JOQW01S1RNcUZhWTh5Tk9lZFRNeWtHUzRzaUFHWVFlTW11a1JUbVhsQmJlWl9PMkJWQ01DUjMyZXJ6RmVXZVlxRUxqOEhfNnktcmlGaGJwZEdZZ1UzOWJLd3ZGTlNYODR0SFJuRnRBZUszNUc5UERVaTB4RQ?oc=5"
+---
+
+UN Sustainable Development Goals group for science, technology rejigged The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxOWE1KeXFnVDM5UjBON08zZ0wzZTdoT0NSLUo4d2RSejUyNnpDN21rTkhCbHFXX3dtQjJqVS03YTg1T0ZBZ1dSd1ZpNDAtbENhLWVDd05fZ1NJbTB1Q1FER29fOEFCLW03eDBDSFZSM09pY0gwUXpiTVBwNFJMbFVvU1J3bVhsQjVMaTRmcWdfaVpQdUFsMmRpLVVvYnVJWk5VNWlkUjFTN2hOZXZpdXJIY0tHWktDU2prdnRJQ2toa2pwM1Iza25Eci0xZ0nSAdMBQVVfeXFMTlZHODIxaktjekJ3VS1mUlFhUW5tVkhucWphdmRwZXZGV0JvbG9JcVo1TFREX2pGa2h4V0JBOWNBR2VtMkMwZ3ZJeEx5Yjg2Mm03dTMyc25EN0QtcE5Gd0JOQW01S1RNcUZhWTh5Tk9lZFRNeWtHUzRzaUFHWVFlTW11a1JUbVhsQmJlWl9PMkJWQ01DUjMyZXJ6RmVXZVlxRUxqOEhfNnktcmlGaGJwZEdZZ1UzOWJLd3ZGTlNYODR0SFJuRnRBZUszNUc5UERVaTB4RQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

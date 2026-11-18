@@ -1,0 +1,17 @@
+---
+layout: post
+title: "From Kashmir to SAFF glory: Suhail Bhat's remarkable rise to MVP - Rediff"
+date: 2026-11-18 22:51:07 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxNNWJ2MUkyclRZR1ZxNUhTcWlEX2pIUmRKTEMxRG9nN29UX05FMVZodnRqT0lNWlpIX2JLaDVPbzNoVDJKaWNNU0dlU0pBVEVqMkpZWENaSUV3ajRtN3NwaVEtc1hSd1BLRXFNQS1lREFZZklkTFVpb2U2ZHRxTlhlaUtyQnBrYXNQX05sREtQcV82ZmZyVjNLcE41R1lXMEpDNXNwdDJoRjZHZjF1b0c2Vm9R0gG0AUFVX3lxTFBPc2Qwanlna2JHcFNxUTV3dnNLMk9HekhfSVViSDVqZnRCams5OGZIU2pOTDNvQXlTZmFGbV9VVS1pam1RQkp0R2w0WWFHRGMyNnJmVk1UYlhnRDNNdlBTajQxQWM3TjFpZmc5RDQ2dl83VUVxT0Jpd1BiQmx6WDJZVm9udnQ3cDZ6OS1aYWg1dTdZOXVmUXJOXzVTRDNYcDl5dDB2VnQ2akxRMUx3RVF1cnM2Rg?oc=5"
+---
+
+From Kashmir to SAFF glory: Suhail Bhat's remarkable rise to MVP Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxNNWJ2MUkyclRZR1ZxNUhTcWlEX2pIUmRKTEMxRG9nN29UX05FMVZodnRqT0lNWlpIX2JLaDVPbzNoVDJKaWNNU0dlU0pBVEVqMkpZWENaSUV3ajRtN3NwaVEtc1hSd1BLRXFNQS1lREFZZklkTFVpb2U2ZHRxTlhlaUtyQnBrYXNQX05sREtQcV82ZmZyVjNLcE41R1lXMEpDNXNwdDJoRjZHZjF1b0c2Vm9R0gG0AUFVX3lxTFBPc2Qwanlna2JHcFNxUTV3dnNLMk9HekhfSVViSDVqZnRCams5OGZIU2pOTDNvQXlTZmFGbV9VVS1pam1RQkp0R2w0WWFHRGMyNnJmVk1UYlhnRDNNdlBTajQxQWM3TjFpZmc5RDQ2dl83VUVxT0Jpd1BiQmx6WDJZVm9udnQ3cDZ6OS1aYWg1dTdZOXVmUXJOXzVTRDNYcDl5dDB2VnQ2akxRMUx3RVF1cnM2Rg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

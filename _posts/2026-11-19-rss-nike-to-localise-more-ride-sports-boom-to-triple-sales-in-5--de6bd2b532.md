@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Nike to localise more, ride sports boom to triple sales in 5 years - The Economic Times"
+date: 2026-11-19 01:06:26 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxOb2VRUlU1Z1VsRDl1RWlqTm1uSzhISko5V0s5ZEZLYV9IQlAxZGRhckxmdXg2RUlZTFIwNlcwVHlsNjY0UmZTUHdrZktGMlZPSEhkNW42dU5VSFlqa29ERWdMbWFWdmZXeGVnOHRPR1FzT016M2FCYkN4RVMycVZiSEQ0eVhxd1VpVzhsbDZVSFItd0YzSkhJalFVWDM1UUJ5TFFWMFFUY1ZncjZzWHh2VDFUcUpBejRwVXMzWjhBUm9ISGVPNTZYd2pn0gHPAUFVX3lxTFB0YXNmR1praXJQWkVrOU5ZNTRobFZHX1hyY2x5UXgxT3hHNndMMXBsTE9ldy1EVkh3VWd3M2xjUGlJYlh5a0QwYzJ6aEN1VEZkdFJyT2hTUWNyVTZGN0V6RE9zMXU2Z1A1QU1Cd29WdllFblB5M1gxMlJDcl9LWE5xQ0NDU0l5ckhzbkM1dDJqRUU4MnEwa2dpeGxqbGlZMlBOV2pnX3FFRkZuZnJUdjlpRE9RY0JDUkRHc3cyT0liX1pwVmN5ZWVGVlNwbWNuTQ?oc=5"
+---
+
+Nike to localise more, ride sports boom to triple sales in 5 years The Economic Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxOb2VRUlU1Z1VsRDl1RWlqTm1uSzhISko5V0s5ZEZLYV9IQlAxZGRhckxmdXg2RUlZTFIwNlcwVHlsNjY0UmZTUHdrZktGMlZPSEhkNW42dU5VSFlqa29ERWdMbWFWdmZXeGVnOHRPR1FzT016M2FCYkN4RVMycVZiSEQ0eVhxd1VpVzhsbDZVSFItd0YzSkhJalFVWDM1UUJ5TFFWMFFUY1ZncjZzWHh2VDFUcUpBejRwVXMzWjhBUm9ISGVPNTZYd2pn0gHPAUFVX3lxTFB0YXNmR1praXJQWkVrOU5ZNTRobFZHX1hyY2x5UXgxT3hHNndMMXBsTE9ldy1EVkh3VWd3M2xjUGlJYlh5a0QwYzJ6aEN1VEZkdFJyT2hTUWNyVTZGN0V6RE9zMXU2Z1A1QU1Cd29WdllFblB5M1gxMlJDcl9LWE5xQ0NDU0l5ckhzbkM1dDJqRUU4MnEwa2dpeGxqbGlZMlBOV2pnX3FFRkZuZnJUdjlpRE9RY0JDUkRHc3cyT0liX1pwVmN5ZWVGVlNwbWNuTQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

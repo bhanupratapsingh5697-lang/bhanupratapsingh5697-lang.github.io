@@ -1,0 +1,17 @@
+---
+layout: post
+title: "IPL 2027: Rajasthan Royals retains 19 players, releases nine | Full list - The Hindu"
+date: 2026-11-18 16:48:28 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRW9vTmRKbjB3TWRrZElOREJIZUg4c1NXUk9IcXNGQ29lQU5Za2lpbzFEWUFvVWtYcGYyVnlEU3ZlXzFucUcwSlZENk1vYjNOVUNjNHlsNmhlckJDenM4WlNWU0hPbjhzVVpET29uSzR5N2huS09HeUVvUm8zck5XcjZKZFBDeVJnemZscjVENXZQeVVkT2VueGkzRFUxUnFIdllPR0pTaktMdmFjNTlrMkpSZG4xdHZUX0Z2WXFEVXbSAccBQVVfeXFMUE9MZ0xZZ2ROWGNzdTltZW9NT1hvdnpxSFRqLWM4NGtfTE5MekJ4bG1TUjBQb29nNjNSbVBNRVpqalNST2ZxNklVVzJtelJwWE0zdUc4U25UTFVIN1h1bXdqMVVzRVBRZjNsQTFqTTVkYTdJU3FTY2NuOVlzYlA5RmVVMFdRQi1hc1RyNzNyQ2JvLTNlcUpmRTZDMVM3RXNqcV9mbHhYeHNjRVJRY01wVTZGT2MwcFBvU3BFcl9mdTd4RFEzaUVTaw?oc=5"
+---
+
+IPL 2027: Rajasthan Royals retains 19 players, releases nine | Full list The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRW9vTmRKbjB3TWRrZElOREJIZUg4c1NXUk9IcXNGQ29lQU5Za2lpbzFEWUFvVWtYcGYyVnlEU3ZlXzFucUcwSlZENk1vYjNOVUNjNHlsNmhlckJDenM4WlNWU0hPbjhzVVpET29uSzR5N2huS09HeUVvUm8zck5XcjZKZFBDeVJnemZscjVENXZQeVVkT2VueGkzRFUxUnFIdllPR0pTaktMdmFjNTlrMkpSZG4xdHZUX0Z2WXFEVXbSAccBQVVfeXFMUE9MZ0xZZ2ROWGNzdTltZW9NT1hvdnpxSFRqLWM4NGtfTE5MekJ4bG1TUjBQb29nNjNSbVBNRVpqalNST2ZxNklVVzJtelJwWE0zdUc4U25UTFVIN1h1bXdqMVVzRVBRZjNsQTFqTTVkYTdJU3FTY2NuOVlzYlA5RmVVMFdRQi1hc1RyNzNyQ2JvLTNlcUpmRTZDMVM3RXNqcV9mbHhYeHNjRVJRY01wVTZGT2MwcFBvU3BFcl9mdTd4RFEzaUVTaw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

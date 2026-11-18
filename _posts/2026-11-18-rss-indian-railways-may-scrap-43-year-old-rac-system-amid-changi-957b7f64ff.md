@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indian Railways may scrap 43-year-old RAC system amid changing technology - Rediff"
+date: 2026-11-18 17:13:05 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxPR2s5dS1LM3VXZFoyOVJucm0wY05YZFgzN0ZmNTRqODk3OUJQNG13V1hsOTdJcEppeWVVTkxjLV9POG1EajlNZjc2eTVzUGdzMzZreGVMV2dEN1VpOUU4UHRVbXl6RlAxWm9EUFdWa1ZLQjdvWjZPRFVvRWtrZW1uWDJPNm9RQk5SUFMxVGYxc0RjV3dCWHlFeU1PNEczMDdFMFdzSkV6ckpMUlhwUXNTc1RrWjlKS2FqNkNreElR0gHAAUFVX3lxTE5qemVOd0w1dHk0ekhpTmlqMUtrUk0xbGNUQ1N0dnhVdXBFVGRaaWsteE5FLVUwQVJfN2tfMVUyWU9IMDNHcUhjbW9XNmg2SG9lTXlGN2RjdFZqbVlINU1vRTdnanM3Q1dUa0ZXcEk4RlFNUzN6YjBEZmc2akpZVWFwRW1ZRFpvVTZmUGN0WnNqUFRDQ0FYZ1JrdmNSTWxHeGpwcXQ5RFowbDZmTFZHUTAzZkZiRTk0WUMycFFWN1ZUZA?oc=5"
+---
+
+Indian Railways may scrap 43-year-old RAC system amid changing technology Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxPR2s5dS1LM3VXZFoyOVJucm0wY05YZFgzN0ZmNTRqODk3OUJQNG13V1hsOTdJcEppeWVVTkxjLV9POG1EajlNZjc2eTVzUGdzMzZreGVMV2dEN1VpOUU4UHRVbXl6RlAxWm9EUFdWa1ZLQjdvWjZPRFVvRWtrZW1uWDJPNm9RQk5SUFMxVGYxc0RjV3dCWHlFeU1PNEczMDdFMFdzSkV6ckpMUlhwUXNTc1RrWjlKS2FqNkNreElR0gHAAUFVX3lxTE5qemVOd0w1dHk0ekhpTmlqMUtrUk0xbGNUQ1N0dnhVdXBFVGRaaWsteE5FLVUwQVJfN2tfMVUyWU9IMDNHcUhjbW9XNmg2SG9lTXlGN2RjdFZqbVlINU1vRTdnanM3Q1dUa0ZXcEk4RlFNUzN6YjBEZmc2akpZVWFwRW1ZRFpvVTZmUGN0WnNqUFRDQ0FYZ1JrdmNSTWxHeGpwcXQ5RFowbDZmTFZHUTAzZkZiRTk0WUMycFFWN1ZUZA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
