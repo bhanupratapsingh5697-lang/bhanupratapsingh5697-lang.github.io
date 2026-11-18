@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Exclusive: Tata Group Draws Global Automakers’ Interest in Vehicles, Engineering and Technology - Autocar Professional"
+date: 2026-11-18 09:49:47 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxOUVRCTjZqR2wyb0duQWthQjFqRGpXUm55WURCUFRrQlhUV2FOMFB1MENwOU5fNDRGdzRpSFpYN3BlNG00Rk0tVmZ2Y3NaZVN0NzdzeEZiVkswVk94ZjBwS1djRVJRZjE2YVB5TUwyb3NlcENhdktGVEc4aWJPdklmVGdYUXVTN0dqR0lWRHNWNHlpeVd4dWU4SVZMT3lpczlUV3g2SWdxY2o1cXdRSnEyM0RlVmlpcHF2OU9NelZOLU0zazhfVVJiYkJn0gHSAUFVX3lxTFBsQXAzdlZUcGdyZE0wN3RabWJDWm9IdDh5SmQ0V3JubWZxNEdzd0FaUVBQS2VrR2I3a0FyYi1CVThaNmM2ZHdKVnh0VjNlOEZIUTM3Q3pnZnJ2bm9sUXVxSXFjUk55S0h6VGItVXVDZnZkaVJObmdxS3hiQ2N0R0FEeE9OU2F2UjE4WWNTWDFoSnk0bzFvbzFKSU9odmhRbUk2MFN2U3N2WWtSMnR0YmVkcExPYS1qOHMzVVRzRUVRdHdYOW5mNDBFaDVMbk1kQU4xdw?oc=5"
+---
+
+Exclusive: Tata Group Draws Global Automakers’ Interest in Vehicles, Engineering and Technology Autocar Professional
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxOUVRCTjZqR2wyb0duQWthQjFqRGpXUm55WURCUFRrQlhUV2FOMFB1MENwOU5fNDRGdzRpSFpYN3BlNG00Rk0tVmZ2Y3NaZVN0NzdzeEZiVkswVk94ZjBwS1djRVJRZjE2YVB5TUwyb3NlcENhdktGVEc4aWJPdklmVGdYUXVTN0dqR0lWRHNWNHlpeVd4dWU4SVZMT3lpczlUV3g2SWdxY2o1cXdRSnEyM0RlVmlpcHF2OU9NelZOLU0zazhfVVJiYkJn0gHSAUFVX3lxTFBsQXAzdlZUcGdyZE0wN3RabWJDWm9IdDh5SmQ0V3JubWZxNEdzd0FaUVBQS2VrR2I3a0FyYi1CVThaNmM2ZHdKVnh0VjNlOEZIUTM3Q3pnZnJ2bm9sUXVxSXFjUk55S0h6VGItVXVDZnZkaVJObmdxS3hiQ2N0R0FEeE9OU2F2UjE4WWNTWDFoSnk0bzFvbzFKSU9odmhRbUk2MFN2U3N2WWtSMnR0YmVkcExPYS1qOHMzVVRzRUVRdHdYOW5mNDBFaDVMbk1kQU4xdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

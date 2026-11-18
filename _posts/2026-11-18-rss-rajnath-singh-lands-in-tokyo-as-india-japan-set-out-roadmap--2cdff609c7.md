@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajnath Singh lands in Tokyo as India, Japan set out roadmap for defence and tech ties | India News - Hindustan Times"
+date: 2026-11-18 12:18:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4gFBVV95cUxQWTJRSUJOcVRuWl9SQzBZZG1CUElVX1lJejFDYnV2QVAzUzdBVVNYanBIc3dyVkxRZ3dkSHZheVlJb2dla3M2QjB5MERfMVhCeFVDR1hNOGZJS2R1NjJZUklob28ya1Vnekg1anMtVHN6R1VuRnR0bXdBMGFORzE4S0s3ellJZ0s5Wm1fR1ppNUpqeld1dno5WlNtYV9oTWtPdVpvTWVXLUlaS1lWdmMzaG15YkpzbVZTZm9INUFVNVN5OTNZQVFIMTRPVW5NZ2RjRlJxbF85cVd6U0tjSW1xbjJn0gHnAUFVX3lxTE96NGZTanloVDBVd2E2T2h1VjBaemlXQzFaSlNXNXZRRjRJbXNhNGEyVWJXZmZLd2FGeXFnbkluRnhPaDNTT21ZcnZqTi1hdTZCNDVsMzQ2SkZNeG5ZeVJEVkhHTDRvTDRLMFZqWUw3LU5rT1ZRVEc4MXJJODdPNGtOdklwLXJldU9TekxveE5kM3dTTDlGVV9kcnM0VEZyRGJ5Tjc4SjU2SzY2VTVOeEl3LXJOODVIdk55NnliVWNOQkNSME5UOFctek9uU2tQOUh4YXdxWHQ5UnRZSWpFOFlBODZlbW1LZw?oc=5"
+---
+
+Rajnath Singh lands in Tokyo as India, Japan set out roadmap for defence and tech ties | India News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4gFBVV95cUxQWTJRSUJOcVRuWl9SQzBZZG1CUElVX1lJejFDYnV2QVAzUzdBVVNYanBIc3dyVkxRZ3dkSHZheVlJb2dla3M2QjB5MERfMVhCeFVDR1hNOGZJS2R1NjJZUklob28ya1Vnekg1anMtVHN6R1VuRnR0bXdBMGFORzE4S0s3ellJZ0s5Wm1fR1ppNUpqeld1dno5WlNtYV9oTWtPdVpvTWVXLUlaS1lWdmMzaG15YkpzbVZTZm9INUFVNVN5OTNZQVFIMTRPVW5NZ2RjRlJxbF85cVd6U0tjSW1xbjJn0gHnAUFVX3lxTE96NGZTanloVDBVd2E2T2h1VjBaemlXQzFaSlNXNXZRRjRJbXNhNGEyVWJXZmZLd2FGeXFnbkluRnhPaDNTT21ZcnZqTi1hdTZCNDVsMzQ2SkZNeG5ZeVJEVkhHTDRvTDRLMFZqWUw3LU5rT1ZRVEc4MXJJODdPNGtOdklwLXJldU9TekxveE5kM3dTTDlGVV9kcnM0VEZyRGJ5Tjc4SjU2SzY2VTVOeEl3LXJOODVIdk55NnliVWNOQkNSME5UOFctek9uU2tQOUh4YXdxWHQ5UnRZSWpFOFlBODZlbW1LZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

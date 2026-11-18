@@ -1,0 +1,17 @@
+---
+layout: post
+title: "How Shubman Gill is preparing for New Zealand challenge - The Times of India"
+date: 2026-11-18 11:52:10 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxQVUF3NzhBd1doT0c0UXRqVjhwamc5TG9BaktOMzIxWGpjcE9yTElCbUZrbV9RSS1mcHFQaXpnUDl2WGxZRl9tdWFpMFAxYXZMSl9MU3NGUlpCQ2hoV3B0eHpMN2ZlZmxhM3JDNjlic1MzVlJQekdFeXlWNGU5RlNMendLdEhmUDFIcERMX3NPU1p0dmFkVHZhYTQxUnFDc0RGTmpIOXVYN3Zwb1ItUjFxNHpKQ2I2R1pfblBOa016ZnRPa2FtN2VFRW5uSld1TU1mUTlJ0gHYAUFVX3lxTE1jVWtYdWhYVDJSdWl6U3NsYWZldElFbmpQS053SDROODZYM3E4SmxDcGVjankycEdEaWR5N2d3dGxrMmZQUzJUVXdWcm1BRGpxX1p3WEFRcjRmQThRcTRSUWJieXpWd3NwUThWRGYyMDNzNDJweHFFdGFRclhFY0draWZXUDR0ZVdKSzFfODF3b0dvUnpOMEJBaEZkYm0zRzJQZUE4ZlY2M1FWUlp2NGloWVBxM1BUUy05NzVuNEdFUEcxUjhHdXZLekNfM1B3T2w4b2R4X0hDNw?oc=5"
+---
+
+How Shubman Gill is preparing for New Zealand challenge The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQVUF3NzhBd1doT0c0UXRqVjhwamc5TG9BaktOMzIxWGpjcE9yTElCbUZrbV9RSS1mcHFQaXpnUDl2WGxZRl9tdWFpMFAxYXZMSl9MU3NGUlpCQ2hoV3B0eHpMN2ZlZmxhM3JDNjlic1MzVlJQekdFeXlWNGU5RlNMendLdEhmUDFIcERMX3NPU1p0dmFkVHZhYTQxUnFDc0RGTmpIOXVYN3Zwb1ItUjFxNHpKQ2I2R1pfblBOa016ZnRPa2FtN2VFRW5uSld1TU1mUTlJ0gHYAUFVX3lxTE1jVWtYdWhYVDJSdWl6U3NsYWZldElFbmpQS053SDROODZYM3E4SmxDcGVjankycEdEaWR5N2d3dGxrMmZQUzJUVXdWcm1BRGpxX1p3WEFRcjRmQThRcTRSUWJieXpWd3NwUThWRGYyMDNzNDJweHFFdGFRclhFY0draWZXUDR0ZVdKSzFfODF3b0dvUnpOMEJBaEZkYm0zRzJQZUE4ZlY2M1FWUlp2NGloWVBxM1BUUy05NzVuNEdFUEcxUjhHdXZLekNfM1B3T2w4b2R4X0hDNw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

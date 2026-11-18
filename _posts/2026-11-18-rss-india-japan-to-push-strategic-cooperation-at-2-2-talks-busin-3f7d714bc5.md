@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India, Japan to push strategic cooperation at 2+2 talks - BusinessLine"
+date: 2026-11-18 11:28:58 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxNR09jMEx1VldOWlBxV1FZV3F5TGdoUENjeVU0YllSeDdqY21OQ1RPcTRHYl90cjRKZjVESENXNHBIMmEyRWJxRTNGeHY2ZEhjNmVacmltQlo2NWl3dERTMTQ0RjdrQ05oRU84d20wY0t1WktIYmJXSVYzUzN1TUNndm9EYjJKcDNqSVF2aHRPZll1WlJDSkVENzNEWWRzUTdBZ0ZDemxSbjVpN1BZWTBnMGdxV3UtOHBKbGfSAcABQVVfeXFMTmZnWEM2bF8yMEV4bndQQ1FxWGhoNUVtN0VNS0c4NVFNNER0VmhmU0xlVXBFYU9PcjhYS3UxdW1IQnJpbXk4alZ5ODctTU5OTWNYUXh2ZTZUR1ZFQXlpSXF2bnY1TVZISkVhMzBZaHlVcU1ySVl1TDZRY1NON1NkTDU5Vm5uZjZyZlM0SExERU1ZVjZ6dmhtQU5NTnVVdnZnckREX1p1SU1zY3lxRFhpTXVyMktYU0NEUGx3U0hPaXBM?oc=5"
+---
+
+India, Japan to push strategic cooperation at 2+2 talks BusinessLine
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxNR09jMEx1VldOWlBxV1FZV3F5TGdoUENjeVU0YllSeDdqY21OQ1RPcTRHYl90cjRKZjVESENXNHBIMmEyRWJxRTNGeHY2ZEhjNmVacmltQlo2NWl3dERTMTQ0RjdrQ05oRU84d20wY0t1WktIYmJXSVYzUzN1TUNndm9EYjJKcDNqSVF2aHRPZll1WlJDSkVENzNEWWRzUTdBZ0ZDemxSbjVpN1BZWTBnMGdxV3UtOHBKbGfSAcABQVVfeXFMTmZnWEM2bF8yMEV4bndQQ1FxWGhoNUVtN0VNS0c4NVFNNER0VmhmU0xlVXBFYU9PcjhYS3UxdW1IQnJpbXk4alZ5ODctTU5OTWNYUXh2ZTZUR1ZFQXlpSXF2bnY1TVZISkVhMzBZaHlVcU1ySVl1TDZRY1NON1NkTDU5Vm5uZjZyZlM0SExERU1ZVjZ6dmhtQU5NTnVVdnZnckREX1p1SU1zY3lxRFhpTXVyMktYU0NEUGx3U0hPaXBM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

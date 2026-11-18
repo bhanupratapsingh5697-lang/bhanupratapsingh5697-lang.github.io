@@ -5,7 +5,7 @@ date: 2026-11-18 02:14:54 +0530
 category: "World"
 lang: "en"
 author: "Today News Desk (RSS summary)"
-image: "https://ichef.bbci.co.uk/ace/standard/240/cpsprodpb/26d1/live/31a610b0-e2b9-11f1-bee0-ef418afc697f.jpg"
+image: "https://ichef.bbci.co.uk/ace/standard/240/cpsprodpb/42be/live/81981920-e2db-11f1-950d-ffe0c8f51f90.png"
 source_name: "BBC World"
 source_url: "https://www.bbc.co.uk/news/articles/c6x284ez38vdo?at_medium=RSS&at_campaign=rss"
 ---

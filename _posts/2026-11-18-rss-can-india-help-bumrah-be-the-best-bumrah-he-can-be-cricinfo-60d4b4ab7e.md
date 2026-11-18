@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Can India help Bumrah be the best Bumrah he can be? - Cricinfo"
+date: 2026-11-18 11:58:13 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxOSkhKTTBSRERrV2xjWWhvemYzQVBvNG85YVhsZk5TR0xYTkxPODVIUjZLeWt1cnc1ZGEwZmZjUWxQUG52WXh6d3NucHIzRGFTY21aZTdKTzlpMFU0ZzZLWjQzeWRrLWhfZjFnMG9BRTZyYlQxc181RkVrNFlXaFdtZlBXMFgtYzVnTFNUTkhzZ2VfMVV6T0JSa29vdGQtYmtLU3JWSExka2U3ZkXSAbwBQVVfeXFMT2RWRjhuemFCUVdkbmVSOUp3aEw4TDlobXllbjE2QnhySGpaS2dGeXRhc2c0a042WG9jUWxiTDVXZzZuQm9zcDBHd1p2Y1hueElvS3I3SVhNX3lUeXExQW85cnJzY2k4YTI2RENfTGl4eVJIaVdMcWRmY0lyYVpzWHdyUURXS3R3bldERGxKcHZzcEN1Q21ZRGZreW44aEE1dmh2SnFTTWQtRzFJeDRzcG4wZzBmNndPZUZld0I?oc=5"
+---
+
+Can India help Bumrah be the best Bumrah he can be? Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOSkhKTTBSRERrV2xjWWhvemYzQVBvNG85YVhsZk5TR0xYTkxPODVIUjZLeWt1cnc1ZGEwZmZjUWxQUG52WXh6d3NucHIzRGFTY21aZTdKTzlpMFU0ZzZLWjQzeWRrLWhfZjFnMG9BRTZyYlQxc181RkVrNFlXaFdtZlBXMFgtYzVnTFNUTkhzZ2VfMVV6T0JSa29vdGQtYmtLU3JWSExka2U3ZkXSAbwBQVVfeXFMT2RWRjhuemFCUVdkbmVSOUp3aEw4TDlobXllbjE2QnhySGpaS2dGeXRhc2c0a042WG9jUWxiTDVXZzZuQm9zcDBHd1p2Y1hueElvS3I3SVhNX3lUeXExQW85cnJzY2k4YTI2RENfTGl4eVJIaVdMcWRmY0lyYVpzWHdyUURXS3R3bldERGxKcHZzcEN1Q21ZRGZreW44aEE1dmh2SnFTTWQtRzFJeDRzcG4wZzBmNndPZUZld0I?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

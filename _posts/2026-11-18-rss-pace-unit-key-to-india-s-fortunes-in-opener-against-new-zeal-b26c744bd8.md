@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Pace unit key to India's fortunes in opener against New Zealand at Wellington - Telegraph India"
+date: 2026-11-18 11:16:09 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxQMkhPWGZxTGhfV1VwM1Q3VU90WVNDZjQ2YXVIM0lNZ3lSRVVWR1hxT3luQlJmUkc3VlVCVkRydS15blFwMXZhaWlBYTM1ZzVIQlY3aUZKQVpCem9DeFMzTGNNVC15SFBaMkhxZkp4OHZKSlRQajhTZ1hQWXd2bUpjQzdQcUJsQWZxZFozQWJqYk5sWUVQTmg3QXFDckhpV2hMV3I2TVM1Y19VdU9rdzJyNVFDZy14bjctWUtXRHF5clFnMXBBYUJTaHhyRmZSdFNzSmFvQ1ZB0gHbAUFVX3lxTE9FbjVRTGk3RVlRT0NHbXBLY3RNZ2RvTjJnM2Q5VGlUanAxakJacF9xTVBUQTduTWlhVU12bU5nNHdYZXN4aVU4QmNfM0FQMzZlQkR2Um9NQkxTMFc1Szl6bDFxV01VRURtZ2F4bHhfN0NHNnZvemdWVGhZZnJXUkh5cjQ3Z3Jvbk1SZnp4WDYtS1lMLW16NVRGcEwxS0FKTXpqVzZ5cEdkaklGRkRRZXZFY2toc0RWR2VTbmJfa3JBUUUxZTZHZmJYVlg3Z1R3OUtDMkpsYUUwZVVQSQ?oc=5"
+---
+
+Pace unit key to India's fortunes in opener against New Zealand at Wellington Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxQMkhPWGZxTGhfV1VwM1Q3VU90WVNDZjQ2YXVIM0lNZ3lSRVVWR1hxT3luQlJmUkc3VlVCVkRydS15blFwMXZhaWlBYTM1ZzVIQlY3aUZKQVpCem9DeFMzTGNNVC15SFBaMkhxZkp4OHZKSlRQajhTZ1hQWXd2bUpjQzdQcUJsQWZxZFozQWJqYk5sWUVQTmg3QXFDckhpV2hMV3I2TVM1Y19VdU9rdzJyNVFDZy14bjctWUtXRHF5clFnMXBBYUJTaHhyRmZSdFNzSmFvQ1ZB0gHbAUFVX3lxTE9FbjVRTGk3RVlRT0NHbXBLY3RNZ2RvTjJnM2Q5VGlUanAxakJacF9xTVBUQTduTWlhVU12bU5nNHdYZXN4aVU4QmNfM0FQMzZlQkR2Um9NQkxTMFc1Szl6bDFxV01VRURtZ2F4bHhfN0NHNnZvemdWVGhZZnJXUkh5cjQ3Z3Jvbk1SZnp4WDYtS1lMLW16NVRGcEwxS0FKTXpqVzZ5cEdkaklGRkRRZXZFY2toc0RWR2VTbmJfa3JBUUUxZTZHZmJYVlg3Z1R3OUtDMkpsYUUwZVVQSQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

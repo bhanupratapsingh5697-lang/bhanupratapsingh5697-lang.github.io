@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Orange Lion Sports -20 TUP, an Original Tournament Brand, Makes Overseas Debut in Phuket - TheWire.in"
+date: 2026-11-18 12:12:33 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxOLW5nYmpfME1mRy03SGsyUjZTaTlQQ0FtaENVZkhKT2tNRDZkQ0xGdjR3cTN0MG1HWlYtQ0tjbERvMG9TU2c5cFhVWktnOU45cDJrV3F1NGtwX0VyTHdodXRxS0twNDhYblJPeE4za2prdV8wN0RNaHZqNFVFS1R0Q0d6VG5vMkFkWEhnRWpsTnlwSDkyd2p0N01PUURaNUFyOEpHWERfcjN6Szk1eDdUUndKcklVanpJZ2preFZmTGtZQdIBxwFBVV95cUxOc0N0ejBtd2JxRFRfbmFZYjhpU1lHTWxsME5VVzNJaE4yaW1vWlpGYmU2UHNuZXJzM3NvejJEc3J3aXhrV3ZMT1czVHBmTlozbU1fVTc2SUVRMHFtUjNIVGYxbndCdjM2SFlrYXhjMng1aGdmYUZDRzJFVExRXzQyelp6ZEhJRC1oMVVIV2VWdmY1VGJFbkpFdnJQa2FFYXp1TUx4cmQ1UzZNSnBDcmZXUWEyeUU3cFdTQ19RSE1KVUlyMGN4TXRn?oc=5"
+---
+
+Orange Lion Sports -20 TUP, an Original Tournament Brand, Makes Overseas Debut in Phuket TheWire.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxOLW5nYmpfME1mRy03SGsyUjZTaTlQQ0FtaENVZkhKT2tNRDZkQ0xGdjR3cTN0MG1HWlYtQ0tjbERvMG9TU2c5cFhVWktnOU45cDJrV3F1NGtwX0VyTHdodXRxS0twNDhYblJPeE4za2prdV8wN0RNaHZqNFVFS1R0Q0d6VG5vMkFkWEhnRWpsTnlwSDkyd2p0N01PUURaNUFyOEpHWERfcjN6Szk1eDdUUndKcklVanpJZ2preFZmTGtZQdIBxwFBVV95cUxOc0N0ejBtd2JxRFRfbmFZYjhpU1lHTWxsME5VVzNJaE4yaW1vWlpGYmU2UHNuZXJzM3NvejJEc3J3aXhrV3ZMT1czVHBmTlozbU1fVTc2SUVRMHFtUjNIVGYxbndCdjM2SFlrYXhjMng1aGdmYUZDRzJFVExRXzQyelp6ZEhJRC1oMVVIV2VWdmY1VGJFbkpFdnJQa2FFYXp1TUx4cmQ1UzZNSnBDcmZXUWEyeUU3cFdTQ19RSE1KVUlyMGN4TXRn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

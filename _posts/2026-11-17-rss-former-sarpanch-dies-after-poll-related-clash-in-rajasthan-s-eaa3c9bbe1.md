@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Former sarpanch dies after poll-related clash in Rajasthan’s Jhunjhunu; villagers block road - ThePrint"
+date: 2026-11-17 15:19:45 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxNdDczMjRJYkJzdGlZcXQwMHJqU2Q0X3g4b05WM1JEaThMU0lHQ0lERWRTN0ZqTFVZTnFfUFV2NmVkQ0I0MUpYejlwbHFabndnZ01XbUc4ekdld3U5eWhqUUxaM1dWMnBPa3ZrWW16elZoZVJONE1uN05BSzBhOTBPLTZvanRUNDNOWmZUd3lycnZYV1NWYmtDWDVndVgtVzd2UWRPa3FZdDh4YlRuQjV2Um14S0hQVVJMOXExZUt1Wl9kZ2_SAcgBQVVfeXFMT0YzTllHSlN0YmNBS1pDc0VLV3VuYVJLQjRWeEYxTDdWR0s2aEphRXF5MlkwUHNxLUl3dEVPQWp6dThLWnMwV1VrejhKWXAyUDFzTm1iSXkxU24wM3pSM1Y5M251SEdnX3REb0pXQ0tfTFVtSzVIY2lmSENZTXVUQVBaYmpQTU0tY1k4RWZpeTFHcGJqeXdGLXdXcXBNWVR3a1JqMjhvSlUwUmtHMF85ZkNYaUN6ZDdiRkhqUE1LS2x5NGFvMmpuN08?oc=5"
+---
+
+Former sarpanch dies after poll-related clash in Rajasthan’s Jhunjhunu; villagers block road ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxNdDczMjRJYkJzdGlZcXQwMHJqU2Q0X3g4b05WM1JEaThMU0lHQ0lERWRTN0ZqTFVZTnFfUFV2NmVkQ0I0MUpYejlwbHFabndnZ01XbUc4ekdld3U5eWhqUUxaM1dWMnBPa3ZrWW16elZoZVJONE1uN05BSzBhOTBPLTZvanRUNDNOWmZUd3lycnZYV1NWYmtDWDVndVgtVzd2UWRPa3FZdDh4YlRuQjV2Um14S0hQVVJMOXExZUt1Wl9kZ2_SAcgBQVVfeXFMT0YzTllHSlN0YmNBS1pDc0VLV3VuYVJLQjRWeEYxTDdWR0s2aEphRXF5MlkwUHNxLUl3dEVPQWp6dThLWnMwV1VrejhKWXAyUDFzTm1iSXkxU24wM3pSM1Y5M251SEdnX3REb0pXQ0tfTFVtSzVIY2lmSENZTXVUQVBaYmpQTU0tY1k4RWZpeTFHcGJqeXdGLXdXcXBNWVR3a1JqMjhvSlUwUmtHMF85ZkNYaUN6ZDdiRkhqUE1LS2x5NGFvMmpuN08?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

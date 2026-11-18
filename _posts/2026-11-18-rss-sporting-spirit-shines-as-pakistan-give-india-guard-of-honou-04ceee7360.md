@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sporting spirit shines as Pakistan give India guard of honour after SAFF final - India Today"
+date: 2026-11-18 08:06:54 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxQSm0yLWtaWjZSTzhPU0MwVGtQQmhKY3NrcE5MUkplVzM4aTlvSDZvM2JwMDdOWlZIbjQ3dFZIcXZ1VnVxZVR2QVh4ZTRzcmgxcVJFR0FuYkhPRFB1Q0Ffc0xmb0o3b3J0bEs4ZFoyRjdOS29wWTRTWWJSckhXM2RwMVI5NndnUGtuVnV4NHRYTVREMkgyUVBSZXFMdXVLVG0tMEF6bDRRZTdQUmQyX295Y2ZDYjlVYUJScnctV0VoVmE5S20zcHfSAcsBQVVfeXFMTUpnMjRCU29yTmtSd2VxM1FCQXMzUE9GXzA2bk15QjlQR2FaSTlaaDBvSXhGeTZVSWZVOHVEUTE4cUNRRGRBSURaZS1BT3JNWHFNanVlWkdDY0FGQk9DOUR3ZFBQWmc3MmZ2S180cDZiT2g0UG0tMFRUdHNxSm8tVWpkYjBrLUF4cEtxSkRNUVR5SGx5VGtXY2ZDdUtEUUt4MjczUVcxZTJQSDViZjQtUVVYdUJjSVlYYjdYbzV3WHZEaHhIOVhRZnpNam8?oc=5"
+---
+
+Sporting spirit shines as Pakistan give India guard of honour after SAFF final India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxQSm0yLWtaWjZSTzhPU0MwVGtQQmhKY3NrcE5MUkplVzM4aTlvSDZvM2JwMDdOWlZIbjQ3dFZIcXZ1VnVxZVR2QVh4ZTRzcmgxcVJFR0FuYkhPRFB1Q0Ffc0xmb0o3b3J0bEs4ZFoyRjdOS29wWTRTWWJSckhXM2RwMVI5NndnUGtuVnV4NHRYTVREMkgyUVBSZXFMdXVLVG0tMEF6bDRRZTdQUmQyX295Y2ZDYjlVYUJScnctV0VoVmE5S20zcHfSAcsBQVVfeXFMTUpnMjRCU29yTmtSd2VxM1FCQXMzUE9GXzA2bk15QjlQR2FaSTlaaDBvSXhGeTZVSWZVOHVEUTE4cUNRRGRBSURaZS1BT3JNWHFNanVlWkdDY0FGQk9DOUR3ZFBQWmc3MmZ2S180cDZiT2g0UG0tMFRUdHNxSm8tVWpkYjBrLUF4cEtxSkRNUVR5SGx5VGtXY2ZDdUtEUUt4MjczUVcxZTJQSDViZjQtUVVYdUJjSVlYYjdYbzV3WHZEaHhIOVhRZnpNam8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

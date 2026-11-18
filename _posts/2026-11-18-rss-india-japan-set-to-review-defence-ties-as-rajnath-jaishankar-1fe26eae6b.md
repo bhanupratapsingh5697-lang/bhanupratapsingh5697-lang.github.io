@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India, Japan set to review defence ties as Rajnath, Jaishankar arrive in Tokyo - ET Government"
+date: 2026-11-18 12:32:33 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4AFBVV95cUxPcG9VNExuU3pWSFQzcm94UEw2dVJHWUd2Q3NkZDFnRlJWUVZFcWpHNE1YYTVLX19oaDNwTk9ld185bHVtMU8wNHFEZzF2djdrZFN5UEtSM1JoVWFtQUk0TFFrWDVMMk5Fb1RDRk9KYjJZQ1dsYnJWRHNNNjkxZVZtcHNwYXhlWnVfZ0dzcmx0X0ZIRFFLY0JjUklPbU1aNmJUcm5Wb2FjeFFXT1NaVGFWdTh3SUZKY3plZnI0Qk00TzVoTDNCUk1HaTFDTkt3RFlwTXM0cVF6VTVDRlBfNThtZdIB5AFBVV95cUxObjFFbmlhN0sweXpmRksyNEoyZmNyaWFQaUIxZXhaWkNkX05zVXpwSWFxa09tbVB6M3V6LTJJa2hOU21ES241N0dSNHBLUmpHM2cydFhzTmZEOWdJSjBjM1JFVnAyVXlBRGhIcUNwOHlmTDdtMTg5WDE3Vy0tRGF0ZjBnVU9Db3dzU0l5ZGVFcjdLRjZIMVp6MzZtS19qRDBwa1pQcjhINTEtNmxkV0RJQ2lNODdva3ZCVTZIcWVYRHdiYmxLeDNnVDE4Yk01SWFNLUxrSE1VYmFoWmVGdlFNUzRuTjg?oc=5"
+---
+
+India, Japan set to review defence ties as Rajnath, Jaishankar arrive in Tokyo ET Government
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4AFBVV95cUxPcG9VNExuU3pWSFQzcm94UEw2dVJHWUd2Q3NkZDFnRlJWUVZFcWpHNE1YYTVLX19oaDNwTk9ld185bHVtMU8wNHFEZzF2djdrZFN5UEtSM1JoVWFtQUk0TFFrWDVMMk5Fb1RDRk9KYjJZQ1dsYnJWRHNNNjkxZVZtcHNwYXhlWnVfZ0dzcmx0X0ZIRFFLY0JjUklPbU1aNmJUcm5Wb2FjeFFXT1NaVGFWdTh3SUZKY3plZnI0Qk00TzVoTDNCUk1HaTFDTkt3RFlwTXM0cVF6VTVDRlBfNThtZdIB5AFBVV95cUxObjFFbmlhN0sweXpmRksyNEoyZmNyaWFQaUIxZXhaWkNkX05zVXpwSWFxa09tbVB6M3V6LTJJa2hOU21ES241N0dSNHBLUmpHM2cydFhzTmZEOWdJSjBjM1JFVnAyVXlBRGhIcUNwOHlmTDdtMTg5WDE3Vy0tRGF0ZjBnVU9Db3dzU0l5ZGVFcjdLRjZIMVp6MzZtS19qRDBwa1pQcjhINTEtNmxkV0RJQ2lNODdva3ZCVTZIcWVYRHdiYmxLeDNnVDE4Yk01SWFNLUxrSE1VYmFoWmVGdlFNUzRuTjg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
