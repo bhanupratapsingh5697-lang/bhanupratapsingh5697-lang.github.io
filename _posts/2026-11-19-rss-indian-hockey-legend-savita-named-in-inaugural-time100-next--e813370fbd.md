@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indian hockey legend Savita named in inaugural TIME100 Next: India list - Rediff"
+date: 2026-11-19 11:43:14 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxOMmtLQVFSTy1kcUNubHNTOFoxZUNyQThLUlpMQ3pYR2pjUWlHY1RrTHBfUGJGX0ZnWkZ0aEJJTWQyS1dJaTdoQ19hd3VzNFhDRXJEMUtiUmdkbDRWeV9QSTYwNXpLZzBVRWVQV3dIY28wU0U5bFBwSFNvdkRUMWl6REF6THpOUkRCU3h2NG1vSVFaOHl3MEFDNlFzYTdlOUpuOWlNeVU4MTU4amVwZWQyNUFYY0N0elk2M0xIS9IBvwFBVV95cUxNM2pBcThmNG9NdHdMaERIWXR0Nks0a04xcDZwY2tDWDI4cTIxOEZtUmZ2UDZTXzJlN3NyRW1tdmMwZ3FuZGgzOFE3UkJXejNMVkNiV0ZBd0FxbHdMbjJ6eDBGeXhnY2ktV2dFNkJjQlVjSWNwSmlKMGJsNm1ySHg5VlhsQzlSbHpjaGE5ZDQ4YVdFQTlHNDNpUF9zWGI0azY0SS1ER3k4T0lpbm1jOC0xWnM1Ym9sbDBhNkNaOWpfVQ?oc=5"
+---
+
+Indian hockey legend Savita named in inaugural TIME100 Next: India list Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxOMmtLQVFSTy1kcUNubHNTOFoxZUNyQThLUlpMQ3pYR2pjUWlHY1RrTHBfUGJGX0ZnWkZ0aEJJTWQyS1dJaTdoQ19hd3VzNFhDRXJEMUtiUmdkbDRWeV9QSTYwNXpLZzBVRWVQV3dIY28wU0U5bFBwSFNvdkRUMWl6REF6THpOUkRCU3h2NG1vSVFaOHl3MEFDNlFzYTdlOUpuOWlNeVU4MTU4amVwZWQyNUFYY0N0elk2M0xIS9IBvwFBVV95cUxNM2pBcThmNG9NdHdMaERIWXR0Nks0a04xcDZwY2tDWDI4cTIxOEZtUmZ2UDZTXzJlN3NyRW1tdmMwZ3FuZGgzOFE3UkJXejNMVkNiV0ZBd0FxbHdMbjJ6eDBGeXhnY2ktV2dFNkJjQlVjSWNwSmlKMGJsNm1ySHg5VlhsQzlSbHpjaGE5ZDQ4YVdFQTlHNDNpUF9zWGI0azY0SS1ER3k4T0lpbm1jOC0xWnM1Ym9sbDBhNkNaOWpfVQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

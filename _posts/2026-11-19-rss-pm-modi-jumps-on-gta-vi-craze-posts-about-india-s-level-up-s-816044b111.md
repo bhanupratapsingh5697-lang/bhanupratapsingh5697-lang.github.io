@@ -1,0 +1,17 @@
+---
+layout: post
+title: "PM Modi jumps on GTA VI craze, posts about India’s ‘level up’ since GTA V - The Hindu"
+date: 2026-11-19 11:25:41 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxNRW5vVnJFdDZaaTB2RE5OSndyS05VVHl4UjZOUEY4dHRQYllDN1JsNW5xV1k5UVlNeVRQVDRpY0NhdS14Z2UyY1JIQ0hHNTJ6MjRmRnVJSGtTcTZxMU9RZXAtR2Zqc3ZGeUhIWkVHVU13RjJUb0laX1pHSVZFbnJ0N1E1OVpuaUl2SnktN3diMDBoR1R3aTFvcjFHY2hYZUpXMjhFT0l0UklaUHNLcVN1LXhVamkycnRBekZBQlp6Vks0MVlPbk1n0gHOAUFVX3lxTE5ZTTdhSUtselNaSEpncEU5MFo5Y2VHa0xJVHo0SjY2STFLQzFVVGxjVUtYczlLV3RLbmJjSWJVblRCclQ4eHoxR3dnWmVxY0RkMDByanZYVl83SDYyOUZZM3hfeEtjR1RVZkVjaVNsWXZFU1VHbThZNjdZVVJaTmloMjh2V0R6UTIydkpWRE0tVVZ4MFFXQTFiUVVYWWQwYWYtOVlQOUZpd2pSd3g5VzhObTNoNHVYNlJ4YW1aSUh0ZXFtUFZUcmFXRFlYd01R?oc=5"
+---
+
+PM Modi jumps on GTA VI craze, posts about India’s ‘level up’ since GTA V The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxNRW5vVnJFdDZaaTB2RE5OSndyS05VVHl4UjZOUEY4dHRQYllDN1JsNW5xV1k5UVlNeVRQVDRpY0NhdS14Z2UyY1JIQ0hHNTJ6MjRmRnVJSGtTcTZxMU9RZXAtR2Zqc3ZGeUhIWkVHVU13RjJUb0laX1pHSVZFbnJ0N1E1OVpuaUl2SnktN3diMDBoR1R3aTFvcjFHY2hYZUpXMjhFT0l0UklaUHNLcVN1LXhVamkycnRBekZBQlp6Vks0MVlPbk1n0gHOAUFVX3lxTE5ZTTdhSUtselNaSEpncEU5MFo5Y2VHa0xJVHo0SjY2STFLQzFVVGxjVUtYczlLV3RLbmJjSWJVblRCclQ4eHoxR3dnWmVxY0RkMDByanZYVl83SDYyOUZZM3hfeEtjR1RVZkVjaVNsWXZFU1VHbThZNjdZVVJaTmloMjh2V0R6UTIydkpWRE0tVVZ4MFFXQTFiUVVYWWQwYWYtOVlQOUZpd2pSd3g5VzhObTNoNHVYNlJ4YW1aSUh0ZXFtUFZUcmFXRFlYd01R?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

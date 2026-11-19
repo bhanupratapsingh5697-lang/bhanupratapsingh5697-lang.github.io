@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Kerala Welcomes Asian Games Silver Medallist Vidarsha K Vinod To State Service - Rediff"
+date: 2026-11-19 11:01:03 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMipgFBVV95cUxPMFNJN3BqaURTTm52QUw3ZWUtUVVidHhSMXd0aG5sSW9WcXNqNjJxdHBoWGt5cHdUUzNrUGdrcllYYnhZZ09MenJTNG5QSk9VeUlteWZLU2FqRzg5TVVaQlRWZHNnT3dhbVAxOHF4TGVLR25zSDN0Sm5XMUcwMUNWcVFoNlhjWmo2MmVFN3d6MjNUR0RTM1F4SXZlaGJ3d1dvU3UyQlJB0gGoAUFVX3lxTFBRR3BIcndwbzdMclAxb0JRajM4cGJsbm1vTjJTVmlaRGRWVUZULTZxd1hYLVpwYTlkSUZVT1VNWWRsWXZ6VUpNOEhBaW5wUVYxX1RWMVVzZHR5aDljelJ3TWI0QmpjanZySTd0WGk5azBGeW9PN1RPaUY5TVkyYTZnZDVkM3h5MU1QZTFkSEtic1cyUnBxS1JWVlZiZlRRc1VTVGpQdXpCVA?oc=5"
+---
+
+Kerala Welcomes Asian Games Silver Medallist Vidarsha K Vinod To State Service Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipgFBVV95cUxPMFNJN3BqaURTTm52QUw3ZWUtUVVidHhSMXd0aG5sSW9WcXNqNjJxdHBoWGt5cHdUUzNrUGdrcllYYnhZZ09MenJTNG5QSk9VeUlteWZLU2FqRzg5TVVaQlRWZHNnT3dhbVAxOHF4TGVLR25zSDN0Sm5XMUcwMUNWcVFoNlhjWmo2MmVFN3d6MjNUR0RTM1F4SXZlaGJ3d1dvU3UyQlJB0gGoAUFVX3lxTFBRR3BIcndwbzdMclAxb0JRajM4cGJsbm1vTjJTVmlaRGRWVUZULTZxd1hYLVpwYTlkSUZVT1VNWWRsWXZ6VUpNOEhBaW5wUVYxX1RWMVVzZHR5aDljelJ3TWI0QmpjanZySTd0WGk5azBGeW9PN1RPaUY5TVkyYTZnZDVkM3h5MU1QZTFkSEtic1cyUnBxS1JWVlZiZlRRc1VTVGpQdXpCVA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
