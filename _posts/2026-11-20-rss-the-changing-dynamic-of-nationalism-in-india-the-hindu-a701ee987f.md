@@ -1,0 +1,17 @@
+---
+layout: post
+title: "The changing dynamic of nationalism in India - The Hindu"
+date: 2026-11-20 00:51:32 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMipAFBVV95cUxQTDhqT1RmYjBIWTVIdy1ZZXg0Z1dCanRkcWpOUXZXTmVmX0h2bi1rVnpCakJWLU1RMk83anFodncwNTRQdUVZbG1zY0w2WHVyeUpTN3BHeEppSHJ0eVhtWlVyWnZrZGhHdGU0OU9zSmNENWFSTXJNQVVtZjd5ekgtWHRCWFE1X0ZsRmE4NmhfQ3F3bE1JTzJHR2s5ZTRCRS1GTWJJTdIBqwFBVV95cUxPcTYzUGlTSEJIdDhteHc3Nk5VTXFrMTU3cjhzcDVKckxkSEo1bEJwMFlpbmxIc0pRSE9yM1gtalJtOEhOWVo1SWg0dlY3djJCVUEtN2tPNEp5cDRIU2w1NmhUZ19ZMWFiMEdWcHNMeVVmY01LbmdpWHlOQkZRZFNBRXZYSzlRanBLdEE5SlpkZmZSS2hKSGNmS0dJTFFxclBnOS1ETVNfdUJUNVk?oc=5"
+---
+
+The changing dynamic of nationalism in India The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTDhqT1RmYjBIWTVIdy1ZZXg0Z1dCanRkcWpOUXZXTmVmX0h2bi1rVnpCakJWLU1RMk83anFodncwNTRQdUVZbG1zY0w2WHVyeUpTN3BHeEppSHJ0eVhtWlVyWnZrZGhHdGU0OU9zSmNENWFSTXJNQVVtZjd5ekgtWHRCWFE1X0ZsRmE4NmhfQ3F3bE1JTzJHR2s5ZTRCRS1GTWJJTdIBqwFBVV95cUxPcTYzUGlTSEJIdDhteHc3Nk5VTXFrMTU3cjhzcDVKckxkSEo1bEJwMFlpbmxIc0pRSE9yM1gtalJtOEhOWVo1SWg0dlY3djJCVUEtN2tPNEp5cDRIU2w1NmhUZ19ZMWFiMEdWcHNMeVVmY01LbmdpWHlOQkZRZFNBRXZYSzlRanBLdEE5SlpkZmZSS2hKSGNmS0dJTFFxclBnOS1ETVNfdUJUNVk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

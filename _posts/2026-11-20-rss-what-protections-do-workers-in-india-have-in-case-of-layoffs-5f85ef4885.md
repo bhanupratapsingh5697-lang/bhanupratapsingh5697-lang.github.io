@@ -1,0 +1,17 @@
+---
+layout: post
+title: "What protections do workers in India have in case of layoffs? - The Hindu"
+date: 2026-11-20 01:18:37 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiuwFBVV95cUxQRThVOVA4SU91ZXFGUFNtbjI0bTY4OHBjeXpIdzNpa1JSUlBxY19mVzFRdS1rSGFtalFYbmdGemRyQ2ptZEZSak1aTm9iQnJuMFBybEdqajhMRkJfbDh2ay1YWGxuMTYyZ25CM3Zzd05GUEVzRmN0aFFLTzZhUmsxU3NiMWRZM2hzcUExdHFYa0M5ZkpaaHRxV29ZMHFfdUh2SjhoR0pjVnp0RDVBVUtLM3lvbWFJanVuY1k40gHCAUFVX3lxTE5yUkZEeFFqa2RmR3R3V1R2UjVuaDh5Mkc2ekRTbjQ0aGFNSUxrMmJmdW02eEpXWmN0WkhyN0dWd3c4cDU0U1IyMVdVR2t6VGpsVzJkSW9md08waWFxZktxc3lNTlJCN3dPSEhXc0x2Vnl2Y2Y0ekJjY3NHbmZuVXBPQWdBOHRWeThDdW9DREV6Y2xPOEkyR09XeEY1NUhqeF9jcWFKUWdDS1RUMHhZMG1BSTVmODN0Q0VaM1U2a3E5Z0Rn?oc=5"
+---
+
+What protections do workers in India have in case of layoffs? The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuwFBVV95cUxQRThVOVA4SU91ZXFGUFNtbjI0bTY4OHBjeXpIdzNpa1JSUlBxY19mVzFRdS1rSGFtalFYbmdGemRyQ2ptZEZSak1aTm9iQnJuMFBybEdqajhMRkJfbDh2ay1YWGxuMTYyZ25CM3Zzd05GUEVzRmN0aFFLTzZhUmsxU3NiMWRZM2hzcUExdHFYa0M5ZkpaaHRxV29ZMHFfdUh2SjhoR0pjVnp0RDVBVUtLM3lvbWFJanVuY1k40gHCAUFVX3lxTE5yUkZEeFFqa2RmR3R3V1R2UjVuaDh5Mkc2ekRTbjQ0aGFNSUxrMmJmdW02eEpXWmN0WkhyN0dWd3c4cDU0U1IyMVdVR2t6VGpsVzJkSW9md08waWFxZktxc3lNTlJCN3dPSEhXc0x2Vnl2Y2Y0ekJjY3NHbmZuVXBPQWdBOHRWeThDdW9DREV6Y2xPOEkyR09XeEY1NUhqeF9jcWFKUWdDS1RUMHhZMG1BSTVmODN0Q0VaM1U2a3E5Z0Rn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

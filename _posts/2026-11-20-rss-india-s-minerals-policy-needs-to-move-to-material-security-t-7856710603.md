@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India’s minerals policy needs to move to material security - The Hindu"
+date: 2026-11-20 01:30:20 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxOLUdKOUdzYzIydENicW0xemRlRDM4Y3BoMk1vS09LZ21pTTNkSGNFeDFlTzNrTnBwM2xHX0FQMFlSUXdhRU4ybjNVS3FDcGZuWEc1VlJjU2lHNmF3cFF0MlZlWVp3dUJyZWtqWlFuRHhLOHIzdHI3OGRDWmhmSGlWaXhCZUs2cW8zcDhGS3l6blRmZWlaS1VvcGotd3BQcmFZdTVwVjdiTWozTmJkQ0J3M0JUX0ZDZFXSAb4BQVVfeXFMTlZtOG5GS3hqWWRwc2FDb2lfelIxS2ZlVWN5VHRxa05NcGMtd2E5U0hqWkQ0bDVXcXVfMGF2YXU5a0l3UWloQ013TzBBOHZ2YnJhYTItVm9MakpmTnRQRmVCVk1POXp5a2twd2RURnJRVW1Kb3FBemV2T0xmV1NVM2JnU1ZBT2xKZFY5T3RlTTljTDZjV1lfYnBsemg5NWh4Tl82QzNqdHpLS2dVeHQyWU1yUEwyTVNHWm5xdXVBdw?oc=5"
+---
+
+India’s minerals policy needs to move to material security The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxOLUdKOUdzYzIydENicW0xemRlRDM4Y3BoMk1vS09LZ21pTTNkSGNFeDFlTzNrTnBwM2xHX0FQMFlSUXdhRU4ybjNVS3FDcGZuWEc1VlJjU2lHNmF3cFF0MlZlWVp3dUJyZWtqWlFuRHhLOHIzdHI3OGRDWmhmSGlWaXhCZUs2cW8zcDhGS3l6blRmZWlaS1VvcGotd3BQcmFZdTVwVjdiTWozTmJkQ0J3M0JUX0ZDZFXSAb4BQVVfeXFMTlZtOG5GS3hqWWRwc2FDb2lfelIxS2ZlVWN5VHRxa05NcGMtd2E5U0hqWkQ0bDVXcXVfMGF2YXU5a0l3UWloQ013TzBBOHZ2YnJhYTItVm9MakpmTnRQRmVCVk1POXp5a2twd2RURnJRVW1Kb3FBemV2T0xmV1NVM2JnU1ZBT2xKZFY5T3RlTTljTDZjV1lfYnBsemg5NWh4Tl82QzNqdHpLS2dVeHQyWU1yUEwyTVNHWm5xdXVBdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Siraj issue simmers, but India on level terms after first day - Cricinfo"
+date: 2026-11-19 15:52:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirAFBVV95cUxNX3l2NXlyejZyQTA5NFBjZnY4S0hkcl9ZdzRpWFZBNXVSd1RVX0t0Z3NZZlAtdEdEeGJMVFA3ZFhOUjlQTmd6TkhaUG1POTd3MlpDNjlCN1JFN0RDSzViX2pJY2tkWW44V0U5NjJrVXFoSTV0WWQ1OXpRUVlFbVg3YXktNVdWWkZwcjdKRTMtOHFWS1I4Qnp1X1pBX1VTdEZMT3NMbFJWN2htMDBf0gG-AUFVX3lxTE92V0V1X25LWVY1cG5hNkMxQWdmWHQ5TnA0elBFOVloV05xM3RDSmM1QklsY1hhaTZ5RXRVSjdfSE5SZHJWaWZXQVQ2blRVVmhmOGFFZjFuN3dzS29qM0hoLTlMNDVqclhnT0NzMG1hQWRfOXFDOVhhTS14Q1hGQlV6cE9HMEhuNDd6Q1RrN1k5cHd6ekY5Yk53MlBLZXhoTTRxTHNYWTZlOVFDa05VTTVoN0NOaXhuYkRmWlMwTUE?oc=5"
+---
+
+Siraj issue simmers, but India on level terms after first day Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirAFBVV95cUxNX3l2NXlyejZyQTA5NFBjZnY4S0hkcl9ZdzRpWFZBNXVSd1RVX0t0Z3NZZlAtdEdEeGJMVFA3ZFhOUjlQTmd6TkhaUG1POTd3MlpDNjlCN1JFN0RDSzViX2pJY2tkWW44V0U5NjJrVXFoSTV0WWQ1OXpRUVlFbVg3YXktNVdWWkZwcjdKRTMtOHFWS1I4Qnp1X1pBX1VTdEZMT3NMbFJWN2htMDBf0gG-AUFVX3lxTE92V0V1X25LWVY1cG5hNkMxQWdmWHQ5TnA0elBFOVloV05xM3RDSmM1QklsY1hhaTZ5RXRVSjdfSE5SZHJWaWZXQVQ2blRVVmhmOGFFZjFuN3dzS29qM0hoLTlMNDVqclhnT0NzMG1hQWRfOXFDOVhhTS14Q1hGQlV6cE9HMEhuNDd6Q1RrN1k5cHd6ekY5Yk53MlBLZXhoTTRxTHNYWTZlOVFDa05VTTVoN0NOaXhuYkRmWlMwTUE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

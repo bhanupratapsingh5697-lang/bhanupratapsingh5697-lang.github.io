@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan HC refuses to stay probe into villa purchases involving IAS officer - National Herald"
+date: 2026-11-19 15:36:25 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxOeHFhOVYzYWFOelYwNXhKSnZYTGtNVTBxZUl2dThxRUk2LS1OdGxOQy11cTNOVnZwcEFIdVRpRFBuRkptN0p1ZHJHeV93TEJzTU5KcWFKN1dNcDBNRDVrVzFacS1leTQzalVseXRvZlVLMUJZMFB3bWo1Y1E3bFd5UGE0S3hPaWxZNmtXWGN1M1hoNmtURTJKd1RiMHk2MURkSmdEM254TTVNUnpleGJBRVVXVWctaE5LVW12bk1ka3B3S041ak9vRVJR0gHXAUFVX3lxTE93a1lRQkRWbjFLbzA1eV9zUFQ3QTA2d3kwOFJXSUY5akh0bncyT2g2VTNWc1dmZ1dUYnhTOFUzR3JOelVYUHBWUU5RVFVlMDRuT1hEM18tenBOUV9DU284RENYak01UFZXOTBYZ0xpQVpZS29JdHNxQ1p6Zjg0WHNPcExSdFdlVmJXNFpPRFdHLXNsV3REOVZITjU3RHcyYUd6TjU5bVhMdWxzWDliSFBOcHFwNE5vdm9FVGt4LWtwOFFfQ0Q5MmtLbmZhUHFwQXZpa2F6empz?oc=5"
+---
+
+Rajasthan HC refuses to stay probe into villa purchases involving IAS officer National Herald
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxOeHFhOVYzYWFOelYwNXhKSnZYTGtNVTBxZUl2dThxRUk2LS1OdGxOQy11cTNOVnZwcEFIdVRpRFBuRkptN0p1ZHJHeV93TEJzTU5KcWFKN1dNcDBNRDVrVzFacS1leTQzalVseXRvZlVLMUJZMFB3bWo1Y1E3bFd5UGE0S3hPaWxZNmtXWGN1M1hoNmtURTJKd1RiMHk2MURkSmdEM254TTVNUnpleGJBRVVXVWctaE5LVW12bk1ka3B3S041ak9vRVJR0gHXAUFVX3lxTE93a1lRQkRWbjFLbzA1eV9zUFQ3QTA2d3kwOFJXSUY5akh0bncyT2g2VTNWc1dmZ1dUYnhTOFUzR3JOelVYUHBWUU5RVFVlMDRuT1hEM18tenBOUV9DU284RENYak01UFZXOTBYZ0xpQVpZS29JdHNxQ1p6Zjg0WHNPcExSdFdlVmJXNFpPRFdHLXNsV3REOVZITjU3RHcyYUd6TjU5bVhMdWxzWDliSFBOcHFwNE5vdm9FVGt4LWtwOFFfQ0Q5MmtLbmZhUHFwQXZpa2F6empz?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

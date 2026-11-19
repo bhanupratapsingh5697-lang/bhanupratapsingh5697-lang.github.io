@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Many imperatives: On India’s Asia diplomacy - The Hindu"
+date: 2026-11-19 01:15:44 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMipwFBVV95cUxOSW5oVWEyNUQxZlFhNVNuZ2pzRFZ5a2lNeFNhNDRUNkVOLW5JTHR1TjZMUU9CR1JCaUpsY0dmTkNGUWY5OV94T1dQZWNVdFlPTG1jUmR1RzB5dTBCUUw1ZjQxbDhBUFFzb0xENG5rUmxXQjBZanVmcjlWQklMQ0JoeEJNMDlSd3lxNVdtVTJmQ2M1UkhCcU80N2ZfdzRPbUNIYjFFMm1uONIBrgFBVV95cUxQNlFSazlnNDduTlFhdmZGZDJqQ3NBWC01SWdtMktBOHVnNFJPUi1HRERzWE1RRUEzZVNSZmlNM203WmdUdzdBVUdxRTdBVUtxOFJhYjR0MjRaNF8yVHNvNGhORGI3TEpmeDF6eFU3bFRXbVliOFpaWXRpQ1hoem03WXFqbVBIWXUxTU1BYU0zTnlUeDB5MjFIVkp4MkJiaS0wMDIwakNUR2JYWGNLZVE?oc=5"
+---
+
+Many imperatives: On India’s Asia diplomacy The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipwFBVV95cUxOSW5oVWEyNUQxZlFhNVNuZ2pzRFZ5a2lNeFNhNDRUNkVOLW5JTHR1TjZMUU9CR1JCaUpsY0dmTkNGUWY5OV94T1dQZWNVdFlPTG1jUmR1RzB5dTBCUUw1ZjQxbDhBUFFzb0xENG5rUmxXQjBZanVmcjlWQklMQ0JoeEJNMDlSd3lxNVdtVTJmQ2M1UkhCcU80N2ZfdzRPbUNIYjFFMm1uONIBrgFBVV95cUxQNlFSazlnNDduTlFhdmZGZDJqQ3NBWC01SWdtMktBOHVnNFJPUi1HRERzWE1RRUEzZVNSZmlNM203WmdUdzdBVUdxRTdBVUtxOFJhYjR0MjRaNF8yVHNvNGhORGI3TEpmeDF6eFU3bFRXbVliOFpaWXRpQ1hoem03WXFqbVBIWXUxTU1BYU0zTnlUeDB5MjFIVkp4MkJiaS0wMDIwakNUR2JYWGNLZVE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Encourage savings, India doesn’t have ‘khao, piyo, mauj karo’ culture: PM Modi - The Times of India"
+date: 2026-11-18 23:40:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi5wFBVV95cUxOMnhUV2JKNHJrYmpyU28zdkJPcXdCWDRrMlliSXRMQXpwbHM0YVFJTHVGNkxtVVAzNjV6WkRrVDBsdXpHNGZUdGFjaXc0WmEyTFhOVVhNeUZEWmJGWUJ5dk4xQkM4OHRQdnVCR2syLWhLVFc4SW94U241Y2Y1aThIb1duVWZBNW9acW1yZFZrajViT01VUk1EYWVwMnpxVTBneEZOMFdoS1FCYmpDZllBNVcwVExQQk1hdmV6d0hWLVlJUV85LVppdWNsQ2RsdUxXYXM1elJpSDd3dTVQYy05RzItYXA1azjSAewBQVVfeXFMT1hMZVhiZE5jTGswaHhCNEp4OHI4dGxneHhQaDJaalNIWFk3SDZtMlI1dnZoSnFwVWhLVklPSnlLRG4zYUZVS1FNTWpNc3NQT3NyTVRINE55RjNuR1VWMUtkdXpFQldGNGhPWFFpWTM2UDROeUgxc2liMndDQm9lbVZkanNwZ1owbi05WlpTQnROZmdOSUR0WkV0WUpwS0FaWTR2U0xDZU0zQ0dNcVFRb2RabVh0Nmxqc0o3dzNoUnFfVzd2dWFhaHNWNUxiVkt0OFprSERQaF9Qcmp5UlFGNkxwOGR5WDlVYUJOSU0?oc=5"
+---
+
+Encourage savings, India doesn’t have ‘khao, piyo, mauj karo’ culture: PM Modi The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5wFBVV95cUxOMnhUV2JKNHJrYmpyU28zdkJPcXdCWDRrMlliSXRMQXpwbHM0YVFJTHVGNkxtVVAzNjV6WkRrVDBsdXpHNGZUdGFjaXc0WmEyTFhOVVhNeUZEWmJGWUJ5dk4xQkM4OHRQdnVCR2syLWhLVFc4SW94U241Y2Y1aThIb1duVWZBNW9acW1yZFZrajViT01VUk1EYWVwMnpxVTBneEZOMFdoS1FCYmpDZllBNVcwVExQQk1hdmV6d0hWLVlJUV85LVppdWNsQ2RsdUxXYXM1elJpSDd3dTVQYy05RzItYXA1azjSAewBQVVfeXFMT1hMZVhiZE5jTGswaHhCNEp4OHI4dGxneHhQaDJaalNIWFk3SDZtMlI1dnZoSnFwVWhLVklPSnlLRG4zYUZVS1FNTWpNc3NQT3NyTVRINE55RjNuR1VWMUtkdXpFQldGNGhPWFFpWTM2UDROeUgxc2liMndDQm9lbVZkanNwZ1owbi05WlpTQnROZmdOSUR0WkV0WUpwS0FaWTR2U0xDZU0zQ0dNcVFRb2RabVh0Nmxqc0o3dzNoUnFfVzd2dWFhaHNWNUxiVkt0OFprSERQaF9Qcmp5UlFGNkxwOGR5WDlVYUJOSU0?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "RAMP INKS ITS BIGGEST SPORTS PARTNERSHIP YET WITH THE ORGANIZATION BEHIND THE LOS ANGELES RAMS, DENVER NUGGETS AND COLORADO AVALANCHE - PR Newswire"
+date: 2026-11-19 21:30:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMilwJBVV95cUxPUzE3Q2F2TlBWRVZuRlBNVVNZeTVEUWJXVEVwRmg4SGlkb2tCTEc4U2NRczBXRGN2TmNfRVRrbDBVMTVvWU5mXzloOThWM3VLWnN4OEVQVDJHTXpFZDZubEMwbkZRV1JKWEVPdC1uQkVleGJ5ejhwMWtfTktMRC1vQVZJdzlRWUlIYjJubVFOYkJQenk3d2ZXaFdvNjI2VUc1MlpJRHdVNW9IWGVCbDJtamZSU0JzLUZuNVRyd3VnUjAxYklzbG1ody1PN1dXSGhIRDJOUTBIWWlKQzZlYXdMZVBHbmVmWU1JYVpDZi1KSzgxV0R1aHQxcXNLclFZb3l1UGU2VldndFJPSjZlbnNZRkxJSnNkTFk?oc=5"
+---
+
+RAMP INKS ITS BIGGEST SPORTS PARTNERSHIP YET WITH THE ORGANIZATION BEHIND THE LOS ANGELES RAMS, DENVER NUGGETS AND COLORADO AVALANCHE PR Newswire
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMilwJBVV95cUxPUzE3Q2F2TlBWRVZuRlBNVVNZeTVEUWJXVEVwRmg4SGlkb2tCTEc4U2NRczBXRGN2TmNfRVRrbDBVMTVvWU5mXzloOThWM3VLWnN4OEVQVDJHTXpFZDZubEMwbkZRV1JKWEVPdC1uQkVleGJ5ejhwMWtfTktMRC1vQVZJdzlRWUlIYjJubVFOYkJQenk3d2ZXaFdvNjI2VUc1MlpJRHdVNW9IWGVCbDJtamZSU0JzLUZuNVRyd3VnUjAxYklzbG1ody1PN1dXSGhIRDJOUTBIWWlKQzZlYXdMZVBHbmVmWU1JYVpDZi1KSzgxV0R1aHQxcXNLclFZb3l1UGU2VldndFJPSjZlbnNZRkxJSnNkTFk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

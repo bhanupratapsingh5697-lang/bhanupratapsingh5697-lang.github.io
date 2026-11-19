@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Karnataka to open India’s first government Sports Technology CoE - The Hindu"
+date: 2026-11-19 21:10:25 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxNYUd3dXhUdG5jRGs4cEx1SzJEZVdKQW8yU3BiWElwRVpub0YtVThFcW1tZkltUHFpY3JwVTl6RjQtWHBsNFhNVkxiNzM1T2EwRURtU0xkaEs4bzNrTldHRUctZ3Vrc1BsN0gzU1QwM3J1UDBGTHNaMjJ2ci00MjRnUU9JbmViS3ZxODRuT0pDZ1pnVkFBTWFtbDBveWJyZ2VyUEZTbGcySGw0elNISXVLTkNKN1lYUnFBbHNDcW9oZS1sa1ByWjBmZmRfdU7SAdMBQVVfeXFMTjAzeldpbk1ScVFhS3Q4NHdvUllJSW1rdjlvUnRxN1NZLWExTmRBemVaNXFkLW9BVzJqc0h6VUx6TVZSRFUwUE43b09iY3JBMk90ZjF3UTdydFRpSjNJLV9IaUVEcVhsMHo1YzlPTXBsMlFodnFSZ2Y1bm1hMVhmalZ1SEtwUnJqSzQtZk9pS01FTDQ4Tjk5bG1oOTVGY09YcDViTnAzNGRRN2U4UUpha21HSnZOczlBQ1NxajFncTJqLXpXdG1FeXM3NTJjMC03NnpYOA?oc=5"
+---
+
+Karnataka to open India’s first government Sports Technology CoE The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxNYUd3dXhUdG5jRGs4cEx1SzJEZVdKQW8yU3BiWElwRVpub0YtVThFcW1tZkltUHFpY3JwVTl6RjQtWHBsNFhNVkxiNzM1T2EwRURtU0xkaEs4bzNrTldHRUctZ3Vrc1BsN0gzU1QwM3J1UDBGTHNaMjJ2ci00MjRnUU9JbmViS3ZxODRuT0pDZ1pnVkFBTWFtbDBveWJyZ2VyUEZTbGcySGw0elNISXVLTkNKN1lYUnFBbHNDcW9oZS1sa1ByWjBmZmRfdU7SAdMBQVVfeXFMTjAzeldpbk1ScVFhS3Q4NHdvUllJSW1rdjlvUnRxN1NZLWExTmRBemVaNXFkLW9BVzJqc0h6VUx6TVZSRFUwUE43b09iY3JBMk90ZjF3UTdydFRpSjNJLV9IaUVEcVhsMHo1YzlPTXBsMlFodnFSZ2Y1bm1hMVhmalZ1SEtwUnJqSzQtZk9pS01FTDQ4Tjk5bG1oOTVGY09YcDViTnAzNGRRN2U4UUpha21HSnZOczlBQ1NxajFncTJqLXpXdG1FeXM3NTJjMC03NnpYOA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

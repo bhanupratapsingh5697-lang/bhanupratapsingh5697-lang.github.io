@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Allahabad HC declares participation of 6 candidates in UP Police sports quota trials illegal - ThePrint"
+date: 2026-11-19 21:15:24 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxNSzl5NVFkZ19PT2VqVHA0SUt0TVppWi1WM0ZlVVJ0QXlXb05SdEVwSUpTM3RhV2xRM1Y3SjVGV2ZlYnkwVWhwaFI2SWYwSklUYWh0akFnbGp4cG9KWDFKWWZ6RE9jTFdoQ3Z4aS1XS0ZhbnVObi1wT01GX0xuSVNHTXp4bXMxTTNEeHhobFluMmlBQXJTWVhCcW10Yy01WXhfejd5ajJJdHF0Rm1uNnBMN2lkbWc3cllGWG5GYVZWLU1Kc1Yxd0HSAcsBQVVfeXFMTkF1YTNDaEdHbFdQQXFvWmdBX0lubklQODd2WUJTV0FqLWxORE5PMlFmR2JNNmdqTkpwSmZ5ODBVUXdHamZEMVZkMGhMb2R2LUtuNmtJSzJOQnpkRTZKRWxya25mYVVZY0ZRRExiWFFHT2ZqNTN5cFhEVlNMVGkyZXdtWS05R2czcmJIWmMyQnVsSDFjaml4ZV9lX2V2dnpuVVJYVno4Skx0a2tQNEJBRnN3WEVmOWg5TUcwWWtZbjctMnJtXzdXSzZxdjA?oc=5"
+---
+
+Allahabad HC declares participation of 6 candidates in UP Police sports quota trials illegal ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxNSzl5NVFkZ19PT2VqVHA0SUt0TVppWi1WM0ZlVVJ0QXlXb05SdEVwSUpTM3RhV2xRM1Y3SjVGV2ZlYnkwVWhwaFI2SWYwSklUYWh0akFnbGp4cG9KWDFKWWZ6RE9jTFdoQ3Z4aS1XS0ZhbnVObi1wT01GX0xuSVNHTXp4bXMxTTNEeHhobFluMmlBQXJTWVhCcW10Yy01WXhfejd5ajJJdHF0Rm1uNnBMN2lkbWc3cllGWG5GYVZWLU1Kc1Yxd0HSAcsBQVVfeXFMTkF1YTNDaEdHbFdQQXFvWmdBX0lubklQODd2WUJTV0FqLWxORE5PMlFmR2JNNmdqTkpwSmZ5ODBVUXdHamZEMVZkMGhMb2R2LUtuNmtJSzJOQnpkRTZKRWxya25mYVVZY0ZRRExiWFFHT2ZqNTN5cFhEVlNMVGkyZXdtWS05R2czcmJIWmMyQnVsSDFjaml4ZV9lX2V2dnpuVVJYVno4Skx0a2tQNEJBRnN3WEVmOWg5TUcwWWtZbjctMnJtXzdXSzZxdjA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
