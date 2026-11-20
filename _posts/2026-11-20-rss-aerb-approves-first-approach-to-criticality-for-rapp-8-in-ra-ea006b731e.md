@@ -1,0 +1,17 @@
+---
+layout: post
+title: "AERB approves first approach to criticality for RAPP-8 in Rajasthan - The Times of India"
+date: 2026-11-20 02:08:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVFUyeEN3Wk1Ndk1peWdneElRRklYNFE0eUQ1VzZvdnRPR0dxZWNGSzlOMnM0bkxfMTg3VnpqT29zR0FPTmg5bDU0VFMyczl2YmhHdFU0NEtoUTNBY2RuVUkzWVRySUJJM19GRjdpTmtmekI2UVdMTF9FazNjdks2Ynh3Z1czX0NaTzkxMUJJUWFpanVEbG5wWUlDX0lHVERPTUZpeGlKeUpHcXZQNXpjdlNTQVQtSVhjOWhnZDFmOS1HemIzcmswOWpUQ19rVlpU0gHWAUFVX3lxTE1mZ3NKM1lWUVJaTmpyU245T2pDdnc3enItQk9rc0czRWpnTkowQVk5OTM0dEUxb2Mxdy1ZaG93MnYxVFRPUk9xLThneFQwRzd3V1J4ZDdqZDY4YVdhbmVaNWJaQmlxUEwxeC02ckI0MmFPMWdWYXBFT19NZzlNaGc5dzJGTzZnOHozN19yNy1pN0JyeEJlcGl5RmdxNWI1aXFUZWN3U0M5RXp5ODU2V2c0UkFhNGpIRktzbFZkVEE3Nk5iRTJQRi1uTDVaSGVkRjNDWW4zTFE?oc=5"
+---
+
+AERB approves first approach to criticality for RAPP-8 in Rajasthan The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxNVFUyeEN3Wk1Ndk1peWdneElRRklYNFE0eUQ1VzZvdnRPR0dxZWNGSzlOMnM0bkxfMTg3VnpqT29zR0FPTmg5bDU0VFMyczl2YmhHdFU0NEtoUTNBY2RuVUkzWVRySUJJM19GRjdpTmtmekI2UVdMTF9FazNjdks2Ynh3Z1czX0NaTzkxMUJJUWFpanVEbG5wWUlDX0lHVERPTUZpeGlKeUpHcXZQNXpjdlNTQVQtSVhjOWhnZDFmOS1HemIzcmswOWpUQ19rVlpU0gHWAUFVX3lxTE1mZ3NKM1lWUVJaTmpyU245T2pDdnc3enItQk9rc0czRWpnTkowQVk5OTM0dEUxb2Mxdy1ZaG93MnYxVFRPUk9xLThneFQwRzd3V1J4ZDdqZDY4YVdhbmVaNWJaQmlxUEwxeC02ckI0MmFPMWdWYXBFT19NZzlNaGc5dzJGTzZnOHozN19yNy1pN0JyeEJlcGl5RmdxNWI1aXFUZWN3U0M5RXp5ODU2V2c0UkFhNGpIRktzbFZkVEE3Nk5iRTJQRi1uTDVaSGVkRjNDWW4zTFE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

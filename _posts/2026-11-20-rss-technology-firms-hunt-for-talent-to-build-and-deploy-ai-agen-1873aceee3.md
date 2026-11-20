@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Technology firms hunt for talent to build and deploy AI agents - The New Indian Express"
+date: 2026-11-20 08:39:02 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxQZnBrdzhVTmotYlBjLVg0MnAwekUyZnBVVUhpcmRuajhnNkZKOFhPbURVdDl1b2t1X1NyMVNaUnhYeDFYSmUxbWhsSndJbnpIZG5CUldqWnpRWmZEXzZLSkNsUm1SQ3hTVFE5ejh6ekdlOHlDenRIT3M0VmVPanY0ZVpMSEd2RmhrSDh0Tzh4MDhlNWVTS0RzbkVoUEtLUE9UNXdHcXdPQk5oYS1pZk9UM1E5RHFxZUnSAcQBQVVfeXFMUEpZeFU4T1NNR2NXSWVhNHpjeHlLel8wdHRjMkdQVk80ZzNkNHhZdjdrRnJYUjZIc3FmbkVuamtXbGMwa3IzSFFQc2tUdWs4cVZKd3hLQThWSU8tZ2kwUkd4NU5hakR0d2UwUVVGTTVucXdaV2NRU0s2UGQySGxfY2M4VGM1a2UzbGRFcDBTb0FRcmVoVkV3X3JiT1Y5TlVHRHAyd0s0Q0J0TEVjVk5lNDQxRmY1SVZxR0c0NFB0YmZNd2NDdQ?oc=5"
+---
+
+Technology firms hunt for talent to build and deploy AI agents The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxQZnBrdzhVTmotYlBjLVg0MnAwekUyZnBVVUhpcmRuajhnNkZKOFhPbURVdDl1b2t1X1NyMVNaUnhYeDFYSmUxbWhsSndJbnpIZG5CUldqWnpRWmZEXzZLSkNsUm1SQ3hTVFE5ejh6ekdlOHlDenRIT3M0VmVPanY0ZVpMSEd2RmhrSDh0Tzh4MDhlNWVTS0RzbkVoUEtLUE9UNXdHcXdPQk5oYS1pZk9UM1E5RHFxZUnSAcQBQVVfeXFMUEpZeFU4T1NNR2NXSWVhNHpjeHlLel8wdHRjMkdQVk80ZzNkNHhZdjdrRnJYUjZIc3FmbkVuamtXbGMwa3IzSFFQc2tUdWs4cVZKd3hLQThWSU8tZ2kwUkd4NU5hakR0d2UwUVVGTTVucXdaV2NRU0s2UGQySGxfY2M4VGM1a2UzbGRFcDBTb0FRcmVoVkV3X3JiT1Y5TlVHRHAyd0s0Q0J0TEVjVk5lNDQxRmY1SVZxR0c0NFB0YmZNd2NDdQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

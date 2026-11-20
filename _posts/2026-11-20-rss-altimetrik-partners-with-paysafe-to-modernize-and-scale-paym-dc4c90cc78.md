@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Altimetrik Partners With Paysafe to Modernize and Scale Payments Technology - TheWire.in"
+date: 2026-11-20 11:11:49 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxOcDNBUnFKVjdod0lvbUNUdGFaSmNBX3E2Nm9aZWNlMWhoQ2RMU2xsZWFfY3YyS2hDY1V6NENHb3BsQlM5MWhVQThCSm96TDRxalZTbGNJRHpjQ3VncG45TDlvb3F2Y0hxcVR2TVRBSTFBN2RsMVJDNHNPeWlrOVpOUkZFSTZPWEM5WFVSRWNMSUpNOVp2MFlkclVZVHFRRjdOalliTmx5WXJNYm84Vjg1WXFQdU7SAboBQVVfeXFMT3VfRTQya2FrazQwWkZ5ZE1FbFUtVmlJRVZiTF9MVnFMMkF5Rk0wREhJRXBhZEZTellwbl9OdjZXanpOUHFRb1AwT0xSUTdSVlhKV3hjRmhRMlRPcExEbmpIcnZWQTFjN0V3TjJ2VTJNSVpybzhCd2c1WnNxNWtEbEYybTUzT1J6SkVjRmR2Sng1TzdNU2t3RTFWYjVtT3FhZGJvRlpDUDVsalAxb24xOEtZU0NZWEsyRFdn?oc=5"
+---
+
+Altimetrik Partners With Paysafe to Modernize and Scale Payments Technology TheWire.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxOcDNBUnFKVjdod0lvbUNUdGFaSmNBX3E2Nm9aZWNlMWhoQ2RMU2xsZWFfY3YyS2hDY1V6NENHb3BsQlM5MWhVQThCSm96TDRxalZTbGNJRHpjQ3VncG45TDlvb3F2Y0hxcVR2TVRBSTFBN2RsMVJDNHNPeWlrOVpOUkZFSTZPWEM5WFVSRWNMSUpNOVp2MFlkclVZVHFRRjdOalliTmx5WXJNYm84Vjg1WXFQdU7SAboBQVVfeXFMT3VfRTQya2FrazQwWkZ5ZE1FbFUtVmlJRVZiTF9MVnFMMkF5Rk0wREhJRXBhZEZTellwbl9OdjZXanpOUHFRb1AwT0xSUTdSVlhKV3hjRmhRMlRPcExEbmpIcnZWQTFjN0V3TjJ2VTJNSVpybzhCd2c1WnNxNWtEbEYybTUzT1J6SkVjRmR2Sng1TzdNU2t3RTFWYjVtT3FhZGJvRlpDUDVsalAxb24xOEtZU0NZWEsyRFdn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

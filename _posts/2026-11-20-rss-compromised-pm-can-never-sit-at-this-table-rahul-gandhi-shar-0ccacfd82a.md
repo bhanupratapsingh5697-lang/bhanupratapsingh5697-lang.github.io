@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Compromised PM can never sit at this table': Rahul Gandhi shares 'G3' leaders' picture, targets Modi - The Times of India"
+date: 2026-11-20 08:47:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi9AFBVV95cUxOdmRNSmhER1dsNXRuWEdyS05JbUJPMHZaRF9UNmZVNUhDRVRjY2xDLVpDTU1zWFdIUzhjZDNIakY5Tk5DVDRWano2M20wVWpXR004WnBaSEpNYUR0SllSanROdWI1bFd6YXplZlF3azFscEZLLXN0RDlpTlVRRklCNUtHWkw0UEVYN2pSc1dpQ1VXSlh4d2VCZEVoWlY5YTVRT2cwLTdhYkJWc1hRLVkxU2dwZjZ2V01mYURNdG9qWUVWWDRPOEtuX0FveTZaVmxUMDJDSEtqTVE5bFZ5b09fV1BnS1lfOTRCcFFNQzlGX2NkUWFQ0gH6AUFVX3lxTFBzaWJRVURpVlg3ZmtidlBJdUlVWmJQTWFsVnVwMk5YeVBjTWpoWTJ4RFRRSU9uMUFtOU5HUksxNHU5R3dISTV1RDkzYWpYN0xZZDRHV0c0LXBRWUpyLW1aWVhqU1JxU3ZVUDJsbWhlZFh3WHBOR2lPS1d1S2xkSXpLb3pQdmo1Y2RCaVpxMDFMeG5KT0lLc1cyNFR3RTBFUEVTZVkyVllGYXJHSDgyMDZ5cnNpSU04Y3hLUGtPc1MtT3dMRDZrVFRlMDVsaWRlMWs3Zk9kZjBNUGxTdkZwSnhQY3ZDUHBPMVR6bHh6TVk1RmhkcWozQkdPNmc?oc=5"
+---
+
+'Compromised PM can never sit at this table': Rahul Gandhi shares 'G3' leaders' picture, targets Modi The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi9AFBVV95cUxOdmRNSmhER1dsNXRuWEdyS05JbUJPMHZaRF9UNmZVNUhDRVRjY2xDLVpDTU1zWFdIUzhjZDNIakY5Tk5DVDRWano2M20wVWpXR004WnBaSEpNYUR0SllSanROdWI1bFd6YXplZlF3azFscEZLLXN0RDlpTlVRRklCNUtHWkw0UEVYN2pSc1dpQ1VXSlh4d2VCZEVoWlY5YTVRT2cwLTdhYkJWc1hRLVkxU2dwZjZ2V01mYURNdG9qWUVWWDRPOEtuX0FveTZaVmxUMDJDSEtqTVE5bFZ5b09fV1BnS1lfOTRCcFFNQzlGX2NkUWFQ0gH6AUFVX3lxTFBzaWJRVURpVlg3ZmtidlBJdUlVWmJQTWFsVnVwMk5YeVBjTWpoWTJ4RFRRSU9uMUFtOU5HUksxNHU5R3dISTV1RDkzYWpYN0xZZDRHV0c0LXBRWUpyLW1aWVhqU1JxU3ZVUDJsbWhlZFh3WHBOR2lPS1d1S2xkSXpLb3pQdmo1Y2RCaVpxMDFMeG5KT0lLc1cyNFR3RTBFUEVTZVkyVllGYXJHSDgyMDZ5cnNpSU04Y3hLUGtPc1MtT3dMRDZrVFRlMDVsaWRlMWs3Zk9kZjBNUGxTdkZwSnhQY3ZDUHBPMVR6bHh6TVk1RmhkcWozQkdPNmc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

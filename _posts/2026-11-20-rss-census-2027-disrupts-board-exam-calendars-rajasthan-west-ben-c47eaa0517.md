@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Census 2027 disrupts Board Exam Calendars: Rajasthan, West Bengal defer exams; Karnataka retains schedule - EdexLive"
+date: 2026-11-20 11:03:43 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxNRzN1MDFmc0pwM2dpTVFfSjYxR0MwUjl2bEZiZDVrLWh3UnJRY2VhaE9ubElRQ1g5blJPbk90REFXRDRZNjFFTy1lazhleEh4N2NnQ1FvUjRQMUduekwyUkxsTUtWNTQ3LWQyU2tsd3g4N2RyajFBOW5nbkhCaDRpRGgyQVNMMkl5U3BuYkluYkhDajVEbjJ4UUtEOWQtTnkxY0JzU2ZBdGFINE1IWGJRWGFzQlgxTWdyZloxME1TNlpPbmpIcThlN2FidjBDQdIB2wFBVV95cUxPb3hPWHhESWZjdFNraEEycXRicGlRdTVBcjBOVS1kd1I5b185QV9oYnNmbDJQNV9LZVc0OENUZXZUQVNpMVR4YUN4STBxZzVDSVRRUG5hVUg2Nnl1YzJvVm0tR2d0eXhKMWZ1T0tmQkg4QnZLRzcweTBWaGdaSHZhSm9STVk2dXZ2MzdoenlONnBjb1BJSktRY0NsdFBoelVOcWt6WVBnelJENDdGelVLQW1ydEp3VTNCTWVtTVRFT2FrR3JfQ2tnQnJnRVFqV1RnSWlHWFRCQkpacEE?oc=5"
+---
+
+Census 2027 disrupts Board Exam Calendars: Rajasthan, West Bengal defer exams; Karnataka retains schedule EdexLive
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxNRzN1MDFmc0pwM2dpTVFfSjYxR0MwUjl2bEZiZDVrLWh3UnJRY2VhaE9ubElRQ1g5blJPbk90REFXRDRZNjFFTy1lazhleEh4N2NnQ1FvUjRQMUduekwyUkxsTUtWNTQ3LWQyU2tsd3g4N2RyajFBOW5nbkhCaDRpRGgyQVNMMkl5U3BuYkluYkhDajVEbjJ4UUtEOWQtTnkxY0JzU2ZBdGFINE1IWGJRWGFzQlgxTWdyZloxME1TNlpPbmpIcThlN2FidjBDQdIB2wFBVV95cUxPb3hPWHhESWZjdFNraEEycXRicGlRdTVBcjBOVS1kd1I5b185QV9oYnNmbDJQNV9LZVc0OENUZXZUQVNpMVR4YUN4STBxZzVDSVRRUG5hVUg2Nnl1YzJvVm0tR2d0eXhKMWZ1T0tmQkg4QnZLRzcweTBWaGdaSHZhSm9STVk2dXZ2MzdoenlONnBjb1BJSktRY0NsdFBoelVOcWt6WVBnelJENDdGelVLQW1ydEp3VTNCTWVtTVRFT2FrR3JfQ2tnQnJnRVFqV1RnSWlHWFRCQkpacEE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

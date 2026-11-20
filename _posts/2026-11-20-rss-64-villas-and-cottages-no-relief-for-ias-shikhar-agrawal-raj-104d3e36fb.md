@@ -1,0 +1,17 @@
+---
+layout: post
+title: "64 villas and cottages: No relief for IAS Shikhar Agrawal, Rajasthan HC refuses to stop ACB probe - Moneycontrol.com"
+date: 2026-11-20 12:02:31 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi5gFBVV95cUxOYllhVXpSOEloMjluWGZpVGZ6Z1U2UUNMVmJCT0p2S1pKcGhTM3c3UzlvLUp5Vmwwa3dvNjdRdWF2T1ZYanBJcy0tcDZzYlJhZzByUVZwcVI4cWcyTF9pRklWMUJXY3k5cWZDbTBKaGdRNHZKVGNual9zZ0xOZnVnYm1sb3VSZ0lHQW1CeUVjRWFpcEx6bFpxbjRHSjNaMUFvbS05MkYxRHVyQVcxN2FrR2dkck1TRjZCb0ZzeVhDai1HYnRzN185UjBleWJoYWNiRXJndUFuUmpGdkNMeHRaRjFRQ2piUdIB6wFBVV95cUxPUGFQWFZyTUJDYy13U0RUZHdKT3ZKWEYtNGtzeWZnTUNIRHFIc1RMcGVyVWJrUXk5MEd3SkNiSzNaQUFMVjh4bnlva09zN0JYQnR4Z212VFlmV1RWNXFobXl1VllGVTNMR19xSmF5amNHX2F6RkJ3c0RyZFY2aEQwQlg4a1ljZEJPTEZRWlp1MFZnLWxBemtneUNYbi1saXBpZmZXMi1rdDVORHY5a3Z3NmlOdWpZMV9DbHNJWjVrUUk3dl9ubGRUR3ZJZFpEZE5mN1V6QnZkOHdHYjhNcHQxVkZCS3MyalhVWm5J?oc=5"
+---
+
+64 villas and cottages: No relief for IAS Shikhar Agrawal, Rajasthan HC refuses to stop ACB probe Moneycontrol.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5gFBVV95cUxOYllhVXpSOEloMjluWGZpVGZ6Z1U2UUNMVmJCT0p2S1pKcGhTM3c3UzlvLUp5Vmwwa3dvNjdRdWF2T1ZYanBJcy0tcDZzYlJhZzByUVZwcVI4cWcyTF9pRklWMUJXY3k5cWZDbTBKaGdRNHZKVGNual9zZ0xOZnVnYm1sb3VSZ0lHQW1CeUVjRWFpcEx6bFpxbjRHSjNaMUFvbS05MkYxRHVyQVcxN2FrR2dkck1TRjZCb0ZzeVhDai1HYnRzN185UjBleWJoYWNiRXJndUFuUmpGdkNMeHRaRjFRQ2piUdIB6wFBVV95cUxPUGFQWFZyTUJDYy13U0RUZHdKT3ZKWEYtNGtzeWZnTUNIRHFIc1RMcGVyVWJrUXk5MEd3SkNiSzNaQUFMVjh4bnlva09zN0JYQnR4Z212VFlmV1RWNXFobXl1VllGVTNMR19xSmF5amNHX2F6RkJ3c0RyZFY2aEQwQlg4a1ljZEJPTEZRWlp1MFZnLWxBemtneUNYbi1saXBpZmZXMi1rdDVORHY5a3Z3NmlOdWpZMV9DbHNJWjVrUUk3dl9ubGRUR3ZJZFpEZE5mN1V6QnZkOHdHYjhNcHQxVkZCS3MyalhVWm5J?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

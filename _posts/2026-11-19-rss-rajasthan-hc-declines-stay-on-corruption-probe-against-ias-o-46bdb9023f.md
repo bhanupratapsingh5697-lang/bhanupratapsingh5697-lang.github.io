@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan HC declines stay on corruption probe against IAS officer - The New Indian Express"
+date: 2026-11-19 18:00:26 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxPdUlrSEZEZDc5YXNjY2YxZHVxTUwzRWh2TllCNGo0eXp6OUhRaXNSQVVZWllfS29FMmZXZUtYcGpBdkFuWW1HYWVsSmxqaWpNSEJ5eW1nM05KNDlNNmVSc2FjZGx3eVQydXdIQnBEY2hpSm5fV3A5ZkF4R29qY0QzMTR5THNDamVWcnhGQmdjMUdrR2VUd0FoaFUwUkFXVHRfVmp6VUpLOHV3eXBnLUNLQlBOalkxSkRVWHBmUWlWNHJGM3d4V1lN0gHUAUFVX3lxTFBSZlRDY1d1cXh2WUdZYzZES09wNk1HM2xMZkVkZE9wOEFXbXFaSjhGdmtOUTVydHlXYTVLNU5tUEtoYk5TWEpUSjdQY25uRG9HdndyNkpCaWc5V25ETzY0bkZ6ajhpQjRjLU1Idm5kUkxSa01ibzUxYmh0UmEwYm5KZnpyT2diSXI1QzBaTmotWjJsVENsZzlzYlhVNzNla2thY191dUw2ZnhuazVxckkxNGNOZFNHckVFUVNrVGNubThrYThvTFpPNlVpNS1ZajhxdXBu?oc=5"
+---
+
+Rajasthan HC declines stay on corruption probe against IAS officer The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxPdUlrSEZEZDc5YXNjY2YxZHVxTUwzRWh2TllCNGo0eXp6OUhRaXNSQVVZWllfS29FMmZXZUtYcGpBdkFuWW1HYWVsSmxqaWpNSEJ5eW1nM05KNDlNNmVSc2FjZGx3eVQydXdIQnBEY2hpSm5fV3A5ZkF4R29qY0QzMTR5THNDamVWcnhGQmdjMUdrR2VUd0FoaFUwUkFXVHRfVmp6VUpLOHV3eXBnLUNLQlBOalkxSkRVWHBmUWlWNHJGM3d4V1lN0gHUAUFVX3lxTFBSZlRDY1d1cXh2WUdZYzZES09wNk1HM2xMZkVkZE9wOEFXbXFaSjhGdmtOUTVydHlXYTVLNU5tUEtoYk5TWEpUSjdQY25uRG9HdndyNkpCaWc5V25ETzY0bkZ6ajhpQjRjLU1Idm5kUkxSa01ibzUxYmh0UmEwYm5KZnpyT2diSXI1QzBaTmotWjJsVENsZzlzYlhVNzNla2thY191dUw2ZnhuazVxckkxNGNOZFNHckVFUVNrVGNubThrYThvTFpPNlVpNS1ZajhxdXBu?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

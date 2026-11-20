@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Pak Fan Boy': BJP slams Rahul Gandhi over remarks on India's foreign policy - The Hindu"
+date: 2026-11-20 10:47:12 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxQcUhUSFU5OFBodmNiSTN4YlBRVU9NUUFOWUJfdHdDY3RrRGdFSmxKZ3JDVEV5VldyQ2FpVVhBZ1R1S3NzN0gyczFSdFV4eVQ2WFo3RHNEdHk0RGMyMkRsaW5wN2hFamJZMUFVV2JtdHVMenJZVVRQcGM1THctR1Zub0xxb0Y4aDBJSWU1QkMyMjVncE9BZmNqUHNJLVpKSXNTNEt5MmtobGppcGpORzVTdUk5ZWVYY1ExR000QXoxRUZZbEQxMTl6eFZ3UdIB0gFBVV95cUxPNDRNNFJSY3l5VWo0TGRSTU44MlNTT0diakFmSzdEdHFpUGFPMDQzZm1TSUtLMkdxRVlMOGFsbE1XR05MRXhpNVdqWi1Dd0N3cFlWWkZaNkZhSmIzT2p5cVlJRE1kODFFSTVjbDRKU0EtWHlEcVd5bGJ4UXdiQlpMR2FMYUM4LS1TU2VUOHhqc0Y5V0xnYUh0enRVZjU4NEl2RHNoVjVGdGgxZXB2ZnFSVmxpNzB5dzZ0X3ZPZjNvclN5eGN6QVpkX1ZfQVp3VGZXWEE?oc=5"
+---
+
+'Pak Fan Boy': BJP slams Rahul Gandhi over remarks on India's foreign policy The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxQcUhUSFU5OFBodmNiSTN4YlBRVU9NUUFOWUJfdHdDY3RrRGdFSmxKZ3JDVEV5VldyQ2FpVVhBZ1R1S3NzN0gyczFSdFV4eVQ2WFo3RHNEdHk0RGMyMkRsaW5wN2hFamJZMUFVV2JtdHVMenJZVVRQcGM1THctR1Zub0xxb0Y4aDBJSWU1QkMyMjVncE9BZmNqUHNJLVpKSXNTNEt5MmtobGppcGpORzVTdUk5ZWVYY1ExR000QXoxRUZZbEQxMTl6eFZ3UdIB0gFBVV95cUxPNDRNNFJSY3l5VWo0TGRSTU44MlNTT0diakFmSzdEdHFpUGFPMDQzZm1TSUtLMkdxRVlMOGFsbE1XR05MRXhpNVdqWi1Dd0N3cFlWWkZaNkZhSmIzT2p5cVlJRE1kODFFSTVjbDRKU0EtWHlEcVd5bGJ4UXdiQlpMR2FMYUM4LS1TU2VUOHhqc0Y5V0xnYUh0enRVZjU4NEl2RHNoVjVGdGgxZXB2ZnFSVmxpNzB5dzZ0X3ZPZjNvclN5eGN6QVpkX1ZfQVp3VGZXWEE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

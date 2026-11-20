@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Massive Fire Breaks Out at Khatu Shyam Ji Eatery in Rajasthan; Four Gas Cylinders Explode - Republic World"
+date: 2026-11-20 08:51:37 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxOR3p5VzV0NXZqUGRhX0NOVFFSUkhORGZYb3NJVHpKUmZSczZnVDZsM0k2UnFTU3dGZlVJNjcxWWJ5N3l6UjFodThRcWRJT052Y2VUam5ybHNWcGtQVU9tYTRNN0xleFVTXzh3MjlmcGtTNzZBYWVkRW40dTRRaExHcDJPdm5nMTJVQVRiRzloX3psWTVjRU5pQmlYZG9NeVFRYmN6eXI2RkhmZHJzQXp1TTE1eWtOOVBkZXpHTXR0UVRiMnNrSkNsRjZvRUwxckdyaFdhcVRrRWdqZ9IB3wFBVV95cUxQRU9XQXdqdzl5b3A5NERabGJoQi1PWHBsaklfU1BBcVpwZ0lFTFJqVkFRN1lNbFJOcmI2dEd6ZjZlWWJPX2lMN1Q3Q25kUEtsQUZFalU0MkhWVlAycUZBaFU0QWxqMU8tWElVQ0NsSFFEZzFYVlVEQm1zVE05SlFGSHF5SC1BU0gwSlpWTHh0bm1nTzVwMG5jOVI4ZlUtSkFqc05wdUsyQzB4YlVRYkEtQ2Y4dXdwa1BOSXpLbk1abU9rakVxbVh1ZUwta21OLXlJX21UMHcwM0JZb1JMdWlz?oc=5"
+---
+
+Massive Fire Breaks Out at Khatu Shyam Ji Eatery in Rajasthan; Four Gas Cylinders Explode Republic World
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOR3p5VzV0NXZqUGRhX0NOVFFSUkhORGZYb3NJVHpKUmZSczZnVDZsM0k2UnFTU3dGZlVJNjcxWWJ5N3l6UjFodThRcWRJT052Y2VUam5ybHNWcGtQVU9tYTRNN0xleFVTXzh3MjlmcGtTNzZBYWVkRW40dTRRaExHcDJPdm5nMTJVQVRiRzloX3psWTVjRU5pQmlYZG9NeVFRYmN6eXI2RkhmZHJzQXp1TTE1eWtOOVBkZXpHTXR0UVRiMnNrSkNsRjZvRUwxckdyaFdhcVRrRWdqZ9IB3wFBVV95cUxQRU9XQXdqdzl5b3A5NERabGJoQi1PWHBsaklfU1BBcVpwZ0lFTFJqVkFRN1lNbFJOcmI2dEd6ZjZlWWJPX2lMN1Q3Q25kUEtsQUZFalU0MkhWVlAycUZBaFU0QWxqMU8tWElVQ0NsSFFEZzFYVlVEQm1zVE05SlFGSHF5SC1BU0gwSlpWTHh0bm1nTzVwMG5jOVI4ZlUtSkFqc05wdUsyQzB4YlVRYkEtQ2Y4dXdwa1BOSXpLbk1abU9rakVxbVh1ZUwta21OLXlJX21UMHcwM0JZb1JMdWlz?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

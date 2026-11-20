@@ -1,0 +1,17 @@
+---
+layout: post
+title: "\"Paid To Defame India\": BJP On Rahul Gandhi's \"Compromised PM\" Post - NDTV"
+date: 2026-11-20 11:19:37 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxOdU5HNVR2RlNEMnQ4UE13V2V5d2hadjdVMmxDOHdXOXpmZG80YXgtaDJkdlJsQmtxbDVtVk01QzBQb2M5QmZKTGtnNVRpbW5nbXhuWTYzejlrSUE0UGI1RWlOcmZxY3lrTVZFMGZrUGE0blFIZ1lMbXhMY1gtQlByQVZxM25kWjlSdUV5dUQ2c3JRbUh4Y0ZhZ3NPRjhvMkFha1QxUDdPek9NTlFpMm5hM0hfcHRuYTZpS0djQlBXUVRGMkhFcHRYT0ViSHjSAdQBQVVfeXFMTVpBbkRxS3dINnFZWWtfNm41d095MThjc2F4ck9WZkZTSVoycFVHQjg3cUtGZ2ZZdnJaNWh6b1psaEt1V1JTVk9ZcW9hMUNDU3ZUYkE2ZkJrZTZuWFR4aTdGZ2JwZ2ZNdTR4QkJxOTBXTlJKMTlmUFNmUWpVMW5BbEtpSnZ2OVoxa25SWG9CMmlZMjZYd0RfQldGTXJWQ1hSMVZvdXJqc3pYV2JkSncycEFvRmFKTzljOG5XbjFqZklhLTRrQ1pBS3NYWC02OXVKVmtLaDY?oc=5"
+---
+
+"Paid To Defame India": BJP On Rahul Gandhi's "Compromised PM" Post NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxOdU5HNVR2RlNEMnQ4UE13V2V5d2hadjdVMmxDOHdXOXpmZG80YXgtaDJkdlJsQmtxbDVtVk01QzBQb2M5QmZKTGtnNVRpbW5nbXhuWTYzejlrSUE0UGI1RWlOcmZxY3lrTVZFMGZrUGE0blFIZ1lMbXhMY1gtQlByQVZxM25kWjlSdUV5dUQ2c3JRbUh4Y0ZhZ3NPRjhvMkFha1QxUDdPek9NTlFpMm5hM0hfcHRuYTZpS0djQlBXUVRGMkhFcHRYT0ViSHjSAdQBQVVfeXFMTVpBbkRxS3dINnFZWWtfNm41d095MThjc2F4ck9WZkZTSVoycFVHQjg3cUtGZ2ZZdnJaNWh6b1psaEt1V1JTVk9ZcW9hMUNDU3ZUYkE2ZkJrZTZuWFR4aTdGZ2JwZ2ZNdTR4QkJxOTBXTlJKMTlmUFNmUWpVMW5BbEtpSnZ2OVoxa25SWG9CMmlZMjZYd0RfQldGTXJWQ1hSMVZvdXJqc3pYV2JkSncycEFvRmFKTzljOG5XbjFqZklhLTRrQ1pBS3NYWC02OXVKVmtLaDY?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

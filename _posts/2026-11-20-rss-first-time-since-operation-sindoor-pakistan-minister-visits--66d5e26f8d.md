@@ -1,0 +1,17 @@
+---
+layout: post
+title: "First time since Operation Sindoor, Pakistan minister visits India for SCO meeting - Scroll.in"
+date: 2026-11-20 10:48:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxOeXRVSzdCNTFxSFRUS0U4NzZwQ2F3b1dGaTJqMjRlaUVLVVZxX3ZJbzgyRW5aalp4a3k4cFdReE5paC1VSVNvR2s4WGxoa0hSTkNqbGpSRjlGZFJocHFZQmNQSEtYNEw0TGNJckRLYTZPMGIzNnNvUTFhWU9wbFRSbUFxUGpBZmE4WGFWam50SkhXU3dKTjJYQVhCdk5LODlCN0JLSkZqVW9oQWw4ZXU3aGxnTDHSAboBQVVfeXFMTjB0SmdXbzdQSmV0eXZRczdSTF9uMWkyNVBMSk5lazUtMEdUX1ZoMDdKVzg3RVNNdGZUN0c3bi05OTljRjJZTTdmSEh4QVN3clg5MUMxeUU4RGV5czgzSkJzelcyQkM0NjhtaTZmdE00LW1TSVk2SFNMZUhoODBwTjZTQ3o5V25CX25GWkpCM2RGSGlrMmJGQnYzZndmRm5ZbVdidU5jcHFVVDM5VHJ1SF82cmxqb1ZJRG5R?oc=5"
+---
+
+First time since Operation Sindoor, Pakistan minister visits India for SCO meeting Scroll.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxOeXRVSzdCNTFxSFRUS0U4NzZwQ2F3b1dGaTJqMjRlaUVLVVZxX3ZJbzgyRW5aalp4a3k4cFdReE5paC1VSVNvR2s4WGxoa0hSTkNqbGpSRjlGZFJocHFZQmNQSEtYNEw0TGNJckRLYTZPMGIzNnNvUTFhWU9wbFRSbUFxUGpBZmE4WGFWam50SkhXU3dKTjJYQVhCdk5LODlCN0JLSkZqVW9oQWw4ZXU3aGxnTDHSAboBQVVfeXFMTjB0SmdXbzdQSmV0eXZRczdSTF9uMWkyNVBMSk5lazUtMEdUX1ZoMDdKVzg3RVNNdGZUN0c3bi05OTljRjJZTTdmSEh4QVN3clg5MUMxeUU4RGV5czgzSkJzelcyQkM0NjhtaTZmdE00LW1TSVk2SFNMZUhoODBwTjZTQ3o5V25CX25GWkpCM2RGSGlrMmJGQnYzZndmRm5ZbVdidU5jcHFVVDM5VHJ1SF82cmxqb1ZJRG5R?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
