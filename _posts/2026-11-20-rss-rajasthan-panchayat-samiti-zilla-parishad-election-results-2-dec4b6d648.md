@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Panchayat Samiti, Zilla Parishad Election Results 2026 LIVE: Congress ahead in both tallies; wins 25 Zila Parishad seats - The Indian Express"
+date: 2026-11-20 21:58:47 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi4AFBVV95cUxPVVl4akt6NmpUcUVEa0Etdk1pV1Z6WlFkZUEtT0YxMnJPNVFiVWYtTVhsLU1HR2VnODItM0JSN1JsSDhUOUhucEFDQWhDZDZCb2tnUzgwTWUtQkFJcXZMd0I0TzhNampLd2VXdzFuMkd4czliWktKZmZNQVdsd3BBRER2LUVYWUtzSXRzZ0thNlpCeXpRNXZEV2hVd0EzQVpnLWJrTWdKb1VfemJnZlFPajR6aTNGMm5INEI2SmFRVmRtS3RRM2Z5Ty1fNG9ZNkRQQjBIUFBKN3BBalUwNXZSbtIB5wFBVV95cUxPWko5LTRQWWxTeU9hSVpsc3haRVRBWVAybndfVkN6MlFWelF2SWtlOGQ4d21OS1hQRF9UWVNFbXlrYkNtYTVzb24wSERSYmZ0ci1PeXFrd2hZRVFmLUJJSHVRSkJnVDVLNmJaak5QOUJhMEo5VHBEMjE4RFhySFBMcV96SjFtLTZWLTFNV3d0a2p4NGpxSU1taE1PemY0S2RsSG41R21TejQ2cDB5cU5Rck5ORFNhdzA0azRLdUV0NEI5UFdLZTVTZlQ0am9CdnY1TGtQeUt1a3RfbEh1UmN3WFN0N2V5UkE?oc=5"
+---
+
+Rajasthan Panchayat Samiti, Zilla Parishad Election Results 2026 LIVE: Congress ahead in both tallies; wins 25 Zila Parishad seats The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4AFBVV95cUxPVVl4akt6NmpUcUVEa0Etdk1pV1Z6WlFkZUEtT0YxMnJPNVFiVWYtTVhsLU1HR2VnODItM0JSN1JsSDhUOUhucEFDQWhDZDZCb2tnUzgwTWUtQkFJcXZMd0I0TzhNampLd2VXdzFuMkd4czliWktKZmZNQVdsd3BBRER2LUVYWUtzSXRzZ0thNlpCeXpRNXZEV2hVd0EzQVpnLWJrTWdKb1VfemJnZlFPajR6aTNGMm5INEI2SmFRVmRtS3RRM2Z5Ty1fNG9ZNkRQQjBIUFBKN3BBalUwNXZSbtIB5wFBVV95cUxPWko5LTRQWWxTeU9hSVpsc3haRVRBWVAybndfVkN6MlFWelF2SWtlOGQ4d21OS1hQRF9UWVNFbXlrYkNtYTVzb24wSERSYmZ0ci1PeXFrd2hZRVFmLUJJSHVRSkJnVDVLNmJaak5QOUJhMEo5VHBEMjE4RFhySFBMcV96SjFtLTZWLTFNV3d0a2p4NGpxSU1taE1PemY0S2RsSG41R21TejQ2cDB5cU5Rck5ORFNhdzA0azRLdUV0NEI5UFdLZTVTZlQ0am9CdnY1TGtQeUt1a3RfbEh1UmN3WFN0N2V5UkE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

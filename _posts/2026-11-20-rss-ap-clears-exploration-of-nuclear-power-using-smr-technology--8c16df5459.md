@@ -1,0 +1,17 @@
+---
+layout: post
+title: "AP Clears Exploration of Nuclear Power Using SMR Technology - Deccan Chronicle"
+date: 2026-11-20 23:44:34 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxPSm1GVHJ4bnJMX3VYZmJPY2xsNUJRQmFnbmZYS2c5WmJDbmw0UXRJV2YyN0hlZnpLQjlVT2hpcFNLQ0tvZ25KWER3a1dmT0tmTzBfdUs1Ukd4SW9oTlB1b1lnSVlWMVlXMngzdVAzZnpZZml4U3MwbGhWNlRpTm90NkU4LXVCbVQxSWE0WVdJamVHamk4TkQ3VFFjMlFfajdkeXVaSHpHd0hOUmZnMWE4YkQzakZJNERDYWl5dmxWXzVia1FnaGZ3NV9n0gHPAUFVX3lxTE5iYWhYbFdsM0pnZEJkazd2MDcwaHpkTmIzRjV4MlVHMVZwbFJFT2cwMHBKbF9md2pWeVhqSHBCNWN6Z0paSmpHZUxYNHdBOUdJanpad2JrOFRvMDgwTUlodU9rRUVZbEpKek9iSlFpWm82eGdWQUFBczdKNFFpOGF2Wm8yY3FWNFF4X0xqNFJJNVVPTTRYenN0V0RXYVVoSVFFUmV1Wlh4N0J0X2FFRFdsa2tPTUdYbnlfSkt2cTVxbUI2Z3ZYRE83LWkxQjFhcw?oc=5"
+---
+
+AP Clears Exploration of Nuclear Power Using SMR Technology Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxPSm1GVHJ4bnJMX3VYZmJPY2xsNUJRQmFnbmZYS2c5WmJDbmw0UXRJV2YyN0hlZnpLQjlVT2hpcFNLQ0tvZ25KWER3a1dmT0tmTzBfdUs1Ukd4SW9oTlB1b1lnSVlWMVlXMngzdVAzZnpZZml4U3MwbGhWNlRpTm90NkU4LXVCbVQxSWE0WVdJamVHamk4TkQ3VFFjMlFfajdkeXVaSHpHd0hOUmZnMWE4YkQzakZJNERDYWl5dmxWXzVia1FnaGZ3NV9n0gHPAUFVX3lxTE5iYWhYbFdsM0pnZEJkazd2MDcwaHpkTmIzRjV4MlVHMVZwbFJFT2cwMHBKbF9md2pWeVhqSHBCNWN6Z0paSmpHZUxYNHdBOUdJanpad2JrOFRvMDgwTUlodU9rRUVZbEpKek9iSlFpWm82eGdWQUFBczdKNFFpOGF2Wm8yY3FWNFF4X0xqNFJJNVVPTTRYenN0V0RXYVVoSVFFUmV1Wlh4N0J0X2FFRFdsa2tPTUdYbnlfSkt2cTVxbUI2Z3ZYRE83LWkxQjFhcw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

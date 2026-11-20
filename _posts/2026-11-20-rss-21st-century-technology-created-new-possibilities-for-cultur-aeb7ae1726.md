@@ -1,0 +1,17 @@
+---
+layout: post
+title: "21st century technology created new possibilities for cultural connectivity: PM Modi - ThePrint"
+date: 2026-11-20 19:17:51 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxQblpMbVFrbVJ6OHg4ZGt1VDFJR3ZxV1U2OUJPc2tuX0hFTEhKelRfWGdMMms4NEZjVEp6R08xcERra1JmS1ZHZU9RRW1vQmVseEhaQWd5QXpkQWlwTVJEaGR0dGdTeWNIZ3hZb24xbFJFZUlCejZnQVVMR1BYSkpfNUJBSjB0VVN5alJLaDVKM2w3c0YzNUdHT0RVVTk0bHhfeVRfSzVtQVF6VWNVb2hFRUM1RXRiUzJUMmfSAb8BQVVfeXFMT3B6SHNiUlJSS1VnbURVdU9JSmNodDVFSWRUZGlJcUdDLWFOVVB3NmswUS1DV3FBMFdERjBrdE9tNXA2eS01dWU3ejNreUh6S2l6UG1vaWczcHBDR3JaeWt5eUFud0xTVWtaMzJVZEJOdHJkcmdpaXQzeTlIRXFxSFN1SmUwRkFXWkhqbGNQMV9TQ001U2dQSzcxY2FwNEZxRGNYWFc4Q2xWM3RMcDRBV1JscENEZGRfUUt3ZHZsQW8?oc=5"
+---
+
+21st century technology created new possibilities for cultural connectivity: PM Modi ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxQblpMbVFrbVJ6OHg4ZGt1VDFJR3ZxV1U2OUJPc2tuX0hFTEhKelRfWGdMMms4NEZjVEp6R08xcERra1JmS1ZHZU9RRW1vQmVseEhaQWd5QXpkQWlwTVJEaGR0dGdTeWNIZ3hZb24xbFJFZUlCejZnQVVMR1BYSkpfNUJBSjB0VVN5alJLaDVKM2w3c0YzNUdHT0RVVTk0bHhfeVRfSzVtQVF6VWNVb2hFRUM1RXRiUzJUMmfSAb8BQVVfeXFMT3B6SHNiUlJSS1VnbURVdU9JSmNodDVFSWRUZGlJcUdDLWFOVVB3NmswUS1DV3FBMFdERjBrdE9tNXA2eS01dWU3ejNreUh6S2l6UG1vaWczcHBDR3JaeWt5eUFud0xTVWtaMzJVZEJOdHJkcmdpaXQzeTlIRXFxSFN1SmUwRkFXWkhqbGNQMV9TQ001U2dQSzcxY2FwNEZxRGNYWFc4Q2xWM3RMcDRBV1JscENEZGRfUUt3ZHZsQW8?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

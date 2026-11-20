@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indian man sentenced to 19 years in US Sikh separatist assassination plot - Al Jazeera"
+date: 2026-11-21 01:12:49 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxNcDZsa204dkJVUGpsSmswZWJTMlJTVFl4VjJ1bFRvdjZJdzlJWnBIaUFlLTJVSjZZUFFPdXhFa29KUzhNdnZOMFdlSTV1bjBIclJjVTdpYzhKUkJBdzJDTm9kM1hlMzBlTEJ2TU93d25KSG1SZ2JpeDZhQnBNSkg2VmdnbXFJMjVfel9OUnV3U2p5SXRHVnB0ZVJ5N09WMi01TFE4d29TOVlZczRyTWlwTHB5TExuQdIBuwFBVV95cUxNOXZyN3JBTmJ6YkRXR0V0SEJXZVBiZEtudG1jcHJEM0I1MzRiUFVMV01OOE9ZemlvbWhFRk5VVXNTUGN5ckFJZHdhUldVZFJBMUdmVUg2ZllfSExRck9QcUM5UDR0ZGd3LU82TzZOWXQwVmhLT3BmZjFvZlVGUXNvT0lUbjd6bnl2Wld6aEFibTQ0Q1BiU01zRHI5cndLVTBBX3lvTmxqdjVTNDVCLUhnWkpNWlh4ajE5SEZn?oc=5"
+---
+
+Indian man sentenced to 19 years in US Sikh separatist assassination plot Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxNcDZsa204dkJVUGpsSmswZWJTMlJTVFl4VjJ1bFRvdjZJdzlJWnBIaUFlLTJVSjZZUFFPdXhFa29KUzhNdnZOMFdlSTV1bjBIclJjVTdpYzhKUkJBdzJDTm9kM1hlMzBlTEJ2TU93d25KSG1SZ2JpeDZhQnBNSkg2VmdnbXFJMjVfel9OUnV3U2p5SXRHVnB0ZVJ5N09WMi01TFE4d29TOVlZczRyTWlwTHB5TExuQdIBuwFBVV95cUxNOXZyN3JBTmJ6YkRXR0V0SEJXZVBiZEtudG1jcHJEM0I1MzRiUFVMV01OOE9ZemlvbWhFRk5VVXNTUGN5ckFJZHdhUldVZFJBMUdmVUg2ZllfSExRck9QcUM5UDR0ZGd3LU82TzZOWXQwVmhLT3BmZjFvZlVGUXNvT0lUbjd6bnl2Wld6aEFibTQ0Q1BiU01zRHI5cndLVTBBX3lvTmxqdjVTNDVCLUhnWkpNWlh4ajE5SEZn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

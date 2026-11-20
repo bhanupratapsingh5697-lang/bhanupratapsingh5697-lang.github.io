@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Warm clothes, gajak return to Rajasthan streets as temperatures drop | Hindustan Times - Hindustan Times"
+date: 2026-11-20 16:33:52 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxQRFltTEdCUFJ1cWtVYXZHOEFYeENSTHoyZGFBOHJRYzJ2UWdjc1FtUlc4MXFBMVVrblRNNWhmamI2eDkwdkh2RjAyZVRQVHo5RmxrV2FEWGxjZTRwUmQ0UTVPQ0xxZ1BOeGozVzdkUTllZTV5UjVtcF9qZEx2RnpOcXRyNnMzLVI2NlNZVEtsZ3JZQm94ZDFUMktWQkFrQ0pWX294SlpvcE5DbVV0NHNvMHBQaVoyZ0RObE5RLWRVYjlMOF9FX1JBWUIzVUNUWS1pZjh5VtIB2gFBVV95cUxOVmVCSkJjNU81dlRCdEZfTnZnS3BTMkJWeF9LZVRFS0lIT3BmcklVdWFqWXNtZUlkZ2pEci1ILW9ZaTJna3VIMTE0TVhMNXdPZnBZX25nejZyWnlUVVVKWU5uV0VoelBOSURtclRySklRWjVpQzZGeHNNOURPYjFFMGFCZDZwNHJ2M0ZPdU9DbTUtaHpjSnJJaERHaXR5bE55Q1RUNndTVld4VGQtRm5CSEdlNVJlRGVleUZ0OHd2WXdjamo5MllZR21hOUpmQ1NKQU1PWEpyX2Y1UQ?oc=5"
+---
+
+Warm clothes, gajak return to Rajasthan streets as temperatures drop | Hindustan Times Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQRFltTEdCUFJ1cWtVYXZHOEFYeENSTHoyZGFBOHJRYzJ2UWdjc1FtUlc4MXFBMVVrblRNNWhmamI2eDkwdkh2RjAyZVRQVHo5RmxrV2FEWGxjZTRwUmQ0UTVPQ0xxZ1BOeGozVzdkUTllZTV5UjVtcF9qZEx2RnpOcXRyNnMzLVI2NlNZVEtsZ3JZQm94ZDFUMktWQkFrQ0pWX294SlpvcE5DbVV0NHNvMHBQaVoyZ0RObE5RLWRVYjlMOF9FX1JBWUIzVUNUWS1pZjh5VtIB2gFBVV95cUxOVmVCSkJjNU81dlRCdEZfTnZnS3BTMkJWeF9LZVRFS0lIT3BmcklVdWFqWXNtZUlkZ2pEci1ILW9ZaTJna3VIMTE0TVhMNXdPZnBZX25nejZyWnlUVVVKWU5uV0VoelBOSURtclRySklRWjVpQzZGeHNNOURPYjFFMGFCZDZwNHJ2M0ZPdU9DbTUtaHpjSnJJaERHaXR5bE55Q1RUNndTVld4VGQtRm5CSEdlNVJlRGVleUZ0OHd2WXdjamo5MllZR21hOUpmQ1NKQU1PWEpyX2Y1UQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

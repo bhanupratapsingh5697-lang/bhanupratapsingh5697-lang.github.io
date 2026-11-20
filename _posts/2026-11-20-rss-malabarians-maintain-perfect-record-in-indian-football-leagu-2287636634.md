@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Malabarians Maintain Perfect Record In Indian Football League - Rediff"
+date: 2026-11-20 21:49:08 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiowFBVV95cUxPM1ZCNnk3MlVLd3dfb0ZNMTlFdVEwbFFYdnktdFE3MVlwS2JoUWEwU2ZEMDltUDhYbkVfbC1JSURaWi1EYTYxRFVQTUdkampRVjlsWTV6amtGdXNwMWE3Wm9FN3RNLUlJaUpyVUFWQTBUTERmNmVQZElBRDYzSF9yYlgyZGNlM0N0UU43WkVtTk5NSnFDd3VUT0p6aVlyT3RzTzA40gGmAUFVX3lxTE9ncWRIVmpJY21hUnVNZ0VBTlNOdERUWDVaTW0takNEY1BXQ05SLUQ1Q3JNZ0lBZVMzRGVSU1cteFloZk1OOEtRYUgzYzJ2VVE3dlhmd3hmd2tJU2dxWU9vTVc4M2tZYXhsRVBfRjB6R2hJZ3JNTzhXS0JjVUcwYWVlSnZPVzNua0RJZHR5dVUxbTRuS1VaS3VIRlpxT0ZnZ3VzWkFxVEE?oc=5"
+---
+
+Malabarians Maintain Perfect Record In Indian Football League Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiowFBVV95cUxPM1ZCNnk3MlVLd3dfb0ZNMTlFdVEwbFFYdnktdFE3MVlwS2JoUWEwU2ZEMDltUDhYbkVfbC1JSURaWi1EYTYxRFVQTUdkampRVjlsWTV6amtGdXNwMWE3Wm9FN3RNLUlJaUpyVUFWQTBUTERmNmVQZElBRDYzSF9yYlgyZGNlM0N0UU43WkVtTk5NSnFDd3VUT0p6aVlyT3RzTzA40gGmAUFVX3lxTE9ncWRIVmpJY21hUnVNZ0VBTlNOdERUWDVaTW0takNEY1BXQ05SLUQ1Q3JNZ0lBZVMzRGVSU1cteFloZk1OOEtRYUgzYzJ2VVE3dlhmd3hmd2tJU2dxWU9vTVc4M2tZYXhsRVBfRjB6R2hJZ3JNTzhXS0JjVUcwYWVlSnZPVzNua0RJZHR5dVUxbTRuS1VaS3VIRlpxT0ZnZ3VzWkFxVEE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

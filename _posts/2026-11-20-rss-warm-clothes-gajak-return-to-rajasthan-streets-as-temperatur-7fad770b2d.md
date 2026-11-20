@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Warm clothes, gajak return to Rajasthan streets as temperatures drop - ThePrint"
+date: 2026-11-20 16:21:06 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMipAFBVV95cUxOOFp5X2F4Y2hTNmFYQV9zWEl4bHN4cUw1YzBNcnFfVGpTOVNGSlBXaGdQZEc2YlRfRkJFdFNEZ1JYOF91dW4xaXZDRW1Hb2RYNDN1X0d5cy03VW1zczlFRm5GRmdwMUxGd211REJZNHM4SnFxbDh6eGdFV1FGYUx1UzZSOW5kbVFaRlA4Z19XRExPT0pzOWZxak5aNW8yb0dtZEZCVdIBqgFBVV95cUxPSlRzMjl5cjZHU2syR05qOXEtZVh0ckMtUWlzWEVseXZSUTVULUFtMEZpZW5CUi1odXQ0MHZxaVNpYlpuUUFabTk3QU9ROWZBOGphc0Zlc0VXdF9JcHdKazdvNXk0dkFDUW9TaDVkeXFZSzBSa1ZlQ0h1ak1SeTl1b1JwLXp1R0VnOGU2UlhZaEFFREVvVFBYSUdPVlRST0RGMnRGZC12U0pZdw?oc=5"
+---
+
+Warm clothes, gajak return to Rajasthan streets as temperatures drop ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipAFBVV95cUxOOFp5X2F4Y2hTNmFYQV9zWEl4bHN4cUw1YzBNcnFfVGpTOVNGSlBXaGdQZEc2YlRfRkJFdFNEZ1JYOF91dW4xaXZDRW1Hb2RYNDN1X0d5cy03VW1zczlFRm5GRmdwMUxGd211REJZNHM4SnFxbDh6eGdFV1FGYUx1UzZSOW5kbVFaRlA4Z19XRExPT0pzOWZxak5aNW8yb0dtZEZCVdIBqgFBVV95cUxPSlRzMjl5cjZHU2syR05qOXEtZVh0ckMtUWlzWEVseXZSUTVULUFtMEZpZW5CUi1odXQ0MHZxaVNpYlpuUUFabTk3QU9ROWZBOGphc0Zlc0VXdF9JcHdKazdvNXk0dkFDUW9TaDVkeXFZSzBSa1ZlQ0h1ak1SeTl1b1JwLXp1R0VnOGU2UlhZaEFFREVvVFBYSUdPVlRST0RGMnRGZC12U0pZdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

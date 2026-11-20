@@ -1,0 +1,17 @@
+---
+layout: post
+title: "After Shenzhen: how India can forge a fourth pole - The Hindu"
+date: 2026-11-21 01:01:16 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxPdXF5cG1LOEloSkVhaFhOeVBCVFM4NkxwZlhmVWwzQ1FkUlRMZWZqY19EMFhZQ2hPQzdvdGY1MlZ0Vl9wb2VSbWVMOTVrb3pLZEJjek5jcURnUkVHNnpOb3o5eVJiWWNxeE82N2MyeGtnZWtBSGhObTFUOUNBSmFEQnk4bUZ2dTZrNHhDZnhwSGg2V2d1MW9SRWZXdVJycjR4cmgxcnNEWUk0MlXSAbIBQVVfeXFMT0N5X1diN3J3bHJ2QTZxXzNXSlQxUWpUWjQ5X1Q3d1FqTmxSakNaQkI3aUNSOE9aUVE4ZW9EWDdyQTA5V1BNUTg4T1BBYU85b3BaZzZqakRNR2Zua256bDdma19sMVhNZWUtS3pORWY2d3RvV0EzVDZzRjBtNzRUYlZkb0tGTW9pRjlrUTdjUHUxSHROUHJlLWhTS3ROR0hRMVdWa2J5dmFLT3EyTnVLb2RiQQ?oc=5"
+---
+
+After Shenzhen: how India can forge a fourth pole The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPdXF5cG1LOEloSkVhaFhOeVBCVFM4NkxwZlhmVWwzQ1FkUlRMZWZqY19EMFhZQ2hPQzdvdGY1MlZ0Vl9wb2VSbWVMOTVrb3pLZEJjek5jcURnUkVHNnpOb3o5eVJiWWNxeE82N2MyeGtnZWtBSGhObTFUOUNBSmFEQnk4bUZ2dTZrNHhDZnhwSGg2V2d1MW9SRWZXdVJycjR4cmgxcnNEWUk0MlXSAbIBQVVfeXFMT0N5X1diN3J3bHJ2QTZxXzNXSlQxUWpUWjQ5X1Q3d1FqTmxSakNaQkI3aUNSOE9aUVE4ZW9EWDdyQTA5V1BNUTg4T1BBYU85b3BaZzZqakRNR2Zua256bDdma19sMVhNZWUtS3pORWY2d3RvV0EzVDZzRjBtNzRUYlZkb0tGTW9pRjlrUTdjUHUxSHROUHJlLWhTS3ROR0hRMVdWa2J5dmFLT3EyTnVLb2RiQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

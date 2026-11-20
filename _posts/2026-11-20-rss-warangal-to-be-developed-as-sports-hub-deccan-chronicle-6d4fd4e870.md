@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Warangal to Be Developed as Sports Hub - Deccan Chronicle"
+date: 2026-11-20 22:50:19 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMipwFBVV95cUxQcTNRMm5wdGptTkd0dXQ4d3cxSzRFb1NBR3VwN216MnpMaWszejFFU1dDZUNVNHFUTnViYzBsX09lNmxmaU5qbDBRSG1lelBKdkpCTkxRTEkwMHFhZzF0QndBblY2TVVQM1AySUVBbFdJb0xNYVhCNEZQYjh0RXNiSUdPWkcyX3pqUDhsYkRYWmZOM3Q3QU5YekJvX2VSbWFCbzVXUlFJTdIBrAFBVV95cUxPR0NQSGdLZWdEY1BIeVJ3X3djSlJuSWhJcHpaclJZdGxQZjE4M2hVZ2p6dV9lSklCRmRtUWN4TlVaZnhycHpuSVp5bGdONEgzWHZzMV84TXlHeUYwY000a1lSU3lUT1RqblNiWHAtUWhQYUt3SGhXSFZndGt0RnhhakYtNDNmM0N5SmpkZ2NUeVI2V0V1X0VBRW1qM21oTkt4ZEhLRmFQNzgyREQ2?oc=5"
+---
+
+Warangal to Be Developed as Sports Hub Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipwFBVV95cUxQcTNRMm5wdGptTkd0dXQ4d3cxSzRFb1NBR3VwN216MnpMaWszejFFU1dDZUNVNHFUTnViYzBsX09lNmxmaU5qbDBRSG1lelBKdkpCTkxRTEkwMHFhZzF0QndBblY2TVVQM1AySUVBbFdJb0xNYVhCNEZQYjh0RXNiSUdPWkcyX3pqUDhsYkRYWmZOM3Q3QU5YekJvX2VSbWFCbzVXUlFJTdIBrAFBVV95cUxPR0NQSGdLZWdEY1BIeVJ3X3djSlJuSWhJcHpaclJZdGxQZjE4M2hVZ2p6dV9lSklCRmRtUWN4TlVaZnhycHpuSVp5bGdONEgzWHZzMV84TXlHeUYwY000a1lSU3lUT1RqblNiWHAtUWhQYUt3SGhXSFZndGt0RnhhakYtNDNmM0N5SmpkZ2NUeVI2V0V1X0VBRW1qM21oTkt4ZEhLRmFQNzgyREQ2?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

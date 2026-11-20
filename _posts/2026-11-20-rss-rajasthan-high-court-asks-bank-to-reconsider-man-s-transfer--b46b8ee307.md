@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan High Court asks bank to reconsider man’s transfer over daughter’s disability - The Indian Express"
+date: 2026-11-20 17:00:48 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxQaV82cTV3bHpLeDlmc0R1YVBqdkZfWERVdkxicGlBYW9EQUF3Vnl2Z0h6Ry1XcmxGZWRmVnlFa2lVYlc0QWVua0Z2Q0ZsYlJ1REx0WFFNbGMyczB5LXJnLVRrV2RMZ0pWVXNGNmhaQ1Blc3V2TmhncC1RMEdlN2UtSFMwS3JMUFZGa3ozSUNKRVhnZlQ2dWJfN2V0cGJmNklqV19Nc2wwb0txMzNKNWVRZjdCa0lsRERZ0gG_AUFVX3lxTE50QUZDWHc4dTRUNDFndEpUazBHeGwwM2l3RkVzTmEzZHpFUnN6T28zU2ZldldSWnJXekdZZDVNS1U1WHBGaXBjUjlXT19qekJQWTRLZDBsSU52eE8xbm15WExfWUpaSnhwbHQtMG9HelJlWHY1V1Jsa3V5c3pCNjFsa3N2NS11Z0VTeWJsMmx3aEhZR2tWOGpmTmQyMGpteXplajhuc3BzM2hWXzZKX2VfNEFlZ3V2NEMtVXVNWjZ3?oc=5"
+---
+
+Rajasthan High Court asks bank to reconsider man’s transfer over daughter’s disability The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQaV82cTV3bHpLeDlmc0R1YVBqdkZfWERVdkxicGlBYW9EQUF3Vnl2Z0h6Ry1XcmxGZWRmVnlFa2lVYlc0QWVua0Z2Q0ZsYlJ1REx0WFFNbGMyczB5LXJnLVRrV2RMZ0pWVXNGNmhaQ1Blc3V2TmhncC1RMEdlN2UtSFMwS3JMUFZGa3ozSUNKRVhnZlQ2dWJfN2V0cGJmNklqV19Nc2wwb0txMzNKNWVRZjdCa0lsRERZ0gG_AUFVX3lxTE50QUZDWHc4dTRUNDFndEpUazBHeGwwM2l3RkVzTmEzZHpFUnN6T28zU2ZldldSWnJXekdZZDVNS1U1WHBGaXBjUjlXT19qekJQWTRLZDBsSU52eE8xbm15WExfWUpaSnhwbHQtMG9HelJlWHY1V1Jsa3V5c3pCNjFsa3N2NS11Z0VTeWJsMmx3aEhZR2tWOGpmTmQyMGpteXplajhuc3BzM2hWXzZKX2VfNEFlZ3V2NEMtVXVNWjZ3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
