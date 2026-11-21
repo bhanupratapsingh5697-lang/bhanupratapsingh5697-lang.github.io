@@ -1,0 +1,17 @@
+---
+layout: post
+title: "MD lab: NCB gets remand of two accused from MP, Rajasthan - The Times of India"
+date: 2026-11-21 07:24:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxNUVZuT01iNVpfSllKMnpoaXcxcW1Sd3RrdElVSUVDb1lxckRfNWxBS255REFRcndXSUhaVVc1bnJZV0I3WDc1SUNHZWt1ZVpkdnd6RVBZaTBBTmRQM0ttMEJwY2FzSUM4blotLVlZNEJRWV8tTXVPekREY3h2RXZzeUdwUU1oY3Nhc2tndFUwYVdEZkRnVWxWWWYxcVQ3aEc4bjI4R1loSzk3aWNaTlFuS1pYR2kyQ1BPeUJ3c1FvaDB4SW9PS2QyaDMxZEzSAdIBQVVfeXFMUHVJUVZ2bGZiTjBfMjhYd09MRmItekNsbmc3MW1BTGJ5WThDWG9rVHd5VnR5dl95cmFNWkNneGxCNE5QTHlQMEdaS2tUZWlITjJib3gyaElkZG9JYWVWdFNEbzQ1ZFJPOUFsUjNyOVFvNmxZMUpGQkpieTVucXVBUlZ0YTYzb2ZBbDVRTzAtcU5TQklzMUFWdGxwb0dwY2twcmRrN2tNTHh0UTM5bVhOQk45OTNpOVc3Vk5ncmgyem53M1pRUUtGUGRwaC1fOG1DSFZR?oc=5"
+---
+
+MD lab: NCB gets remand of two accused from MP, Rajasthan The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxNUVZuT01iNVpfSllKMnpoaXcxcW1Sd3RrdElVSUVDb1lxckRfNWxBS255REFRcndXSUhaVVc1bnJZV0I3WDc1SUNHZWt1ZVpkdnd6RVBZaTBBTmRQM0ttMEJwY2FzSUM4blotLVlZNEJRWV8tTXVPekREY3h2RXZzeUdwUU1oY3Nhc2tndFUwYVdEZkRnVWxWWWYxcVQ3aEc4bjI4R1loSzk3aWNaTlFuS1pYR2kyQ1BPeUJ3c1FvaDB4SW9PS2QyaDMxZEzSAdIBQVVfeXFMUHVJUVZ2bGZiTjBfMjhYd09MRmItekNsbmc3MW1BTGJ5WThDWG9rVHd5VnR5dl95cmFNWkNneGxCNE5QTHlQMEdaS2tUZWlITjJib3gyaElkZG9JYWVWdFNEbzQ1ZFJPOUFsUjNyOVFvNmxZMUpGQkpieTVucXVBUlZ0YTYzb2ZBbDVRTzAtcU5TQklzMUFWdGxwb0dwY2twcmRrN2tNTHh0UTM5bVhOQk45OTNpOVc3Vk5ncmgyem53M1pRUUtGUGRwaC1fOG1DSFZR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indian Football Faces 'Very Challenging Times', Says Praful Patel - Rediff"
+date: 2026-11-21 11:00:08 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxOYy1ZVXlLZU1pb1h1NnREMjBURjZwWl94RmdyZWEtbjRaZ3dxaWFGM0ZuTXdWT2ZBSEItTzNocVdyV1RobFB6bER6SE9aal85ZUVWNWdPM1lWNzZNUUtJRUI5U3lVRDEwNTUwSGxOaVcwaTJLVERnWTM0bFZOMl9YUnMwWlVfcDJUQWN6ZTl5eDdkb09KM19tNmFyNHpzLVZfdkp4ak1Gbm1UVjVwZmfSAbABQVVfeXFMTXZkQl9hSUlSa1YwMmM1aGR0U3lncXByQi1ZNkRRcVAtckpOTk9OOTdDY0cwQ2hwVXZVa0tTUm81T0dORVk2cXdNY2tWMHZNUEpVUmVQeUtuWFZQa3JkN0RoRGdOcFNZOEtPQkhBOTl4NFlSTDFUR3IwLXFhVFBFSWowX3NWUUk3R296dGdnZWdyZDVOeW1ZbFZYVlhZQjVVNzRvTzRPZmVwVjhkZVI1ZTM?oc=5"
+---
+
+Indian Football Faces 'Very Challenging Times', Says Praful Patel Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxOYy1ZVXlLZU1pb1h1NnREMjBURjZwWl94RmdyZWEtbjRaZ3dxaWFGM0ZuTXdWT2ZBSEItTzNocVdyV1RobFB6bER6SE9aal85ZUVWNWdPM1lWNzZNUUtJRUI5U3lVRDEwNTUwSGxOaVcwaTJLVERnWTM0bFZOMl9YUnMwWlVfcDJUQWN6ZTl5eDdkb09KM19tNmFyNHpzLVZfdkp4ak1Gbm1UVjVwZmfSAbABQVVfeXFMTXZkQl9hSUlSa1YwMmM1aGR0U3lncXByQi1ZNkRRcVAtckpOTk9OOTdDY0cwQ2hwVXZVa0tTUm81T0dORVk2cXdNY2tWMHZNUEpVUmVQeUtuWFZQa3JkN0RoRGdOcFNZOEtPQkhBOTl4NFlSTDFUR3IwLXFhVFBFSWowX3NWUUk3R296dGdnZWdyZDVOeW1ZbFZYVlhZQjVVNzRvTzRPZmVwVjhkZVI1ZTM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "As NMC cracks down on ragging, Rajasthan emerges as hotspot - The Hindu"
+date: 2026-11-20 18:55:41 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxPbUhLVHhZWXhYOGs0ZnRYWTM2dlZGTUw1MmRFTjRXcFMxVHFIeVh6RFRGbFl1c0ZYSmtLd2FXUklMcHFfSTF1NVRiaGh0T0phVklvaGwwLTFjeWZiUklKRFkzT3dvM1VOWnFPM2F5RTV5azUxMmp1RWxlWkxHcmJqaU4tNHJXb3lGRW05UjhxdVhlMjFVRHhmUk1GM2tFTTczZUQ1SkYtdjZTelUyMjRqdE1JOGViUVZJa3UxSzFIdTlTbkJlZUdn0gHOAUFVX3lxTFBhLUdtMkZ3WDA1TnFhZmtGeExZX19fZHdoTDZGTjI5RnROZ1EyWUx6YkJfNUgyMEQtU1NVN0Y2bmNJZjU0N2NKWmdIOXl1V1NTczdid3hmSjZ3LU54MnJaQjdrMU1IeUhzRjh1UjAweW11VFdpY1R6UjZVczE2dm4yZ24zVi0xRnN6OWxXSVFnNGlnQmExbEhDSV9ocHFSTDl2ZmY2Nkk3NjMxWjNrVnV3X0NUa2pCUjNiajNDU3FOdGRfaHc5TE5RNlJZLThB?oc=5"
+---
+
+As NMC cracks down on ragging, Rajasthan emerges as hotspot The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxPbUhLVHhZWXhYOGs0ZnRYWTM2dlZGTUw1MmRFTjRXcFMxVHFIeVh6RFRGbFl1c0ZYSmtLd2FXUklMcHFfSTF1NVRiaGh0T0phVklvaGwwLTFjeWZiUklKRFkzT3dvM1VOWnFPM2F5RTV5azUxMmp1RWxlWkxHcmJqaU4tNHJXb3lGRW05UjhxdVhlMjFVRHhmUk1GM2tFTTczZUQ1SkYtdjZTelUyMjRqdE1JOGViUVZJa3UxSzFIdTlTbkJlZUdn0gHOAUFVX3lxTFBhLUdtMkZ3WDA1TnFhZmtGeExZX19fZHdoTDZGTjI5RnROZ1EyWUx6YkJfNUgyMEQtU1NVN0Y2bmNJZjU0N2NKWmdIOXl1V1NTczdid3hmSjZ3LU54MnJaQjdrMU1IeUhzRjh1UjAweW11VFdpY1R6UjZVczE2dm4yZ24zVi0xRnN6OWxXSVFnNGlnQmExbEhDSV9ocHFSTDl2ZmY2Nkk3NjMxWjNrVnV3X0NUa2pCUjNiajNDU3FOdGRfaHc5TE5RNlJZLThB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

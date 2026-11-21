@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Messi visit probe: Keralam ex-sports minister named accused by SIT - The New Indian Express"
+date: 2026-11-21 10:58:55 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxNUUdHRFlPckYtYUc2RGhxYU9uVFBKUmdsal8zbEVpV0NzUGxJOWw2TXB4OENvUWpOVXNselgwNV8xTjJiX1pYOEU5bjVXazBrOGhKeGhpOEEtZWl0SzY3WDhhT09waFhfZU5Iam5LZDMwTVJUMEdMVEtJYi04TFk5OTQwZHpGa3N5SkhfbmtqaDVZWTA2LVIzcHowUTNLZUFZQ3NkZ2pON09vU05lMGJ6amhEbEdxdFFhaUdET3RnaG91Z9IBzwFBVV95cUxQYjFlZ1cyUXFxT3JzdmhybGhlRHcyd2JQdU41OHppLVV2Ry1mUWNPb05PcjVPUWc0ejFpaTR2aFFTNHJPck51d2V1Q0FKdXVIbEVsRVp5Z2I4Zk9YcVhRTkctbllXby0tcE9penItQ2tZMU5ZcnRyQWc5QXhtZFpxUU1hdS15RFM0ZkU0c2VVX01ZTEZVTnZmY0pPZzByZlpvTDNjb0ZJaUxCNjVrQTNhc1RUMXNJSWZJLWU2eGxFUERIMzZZeTVJNWtrcGtVMUU?oc=5"
+---
+
+Messi visit probe: Keralam ex-sports minister named accused by SIT The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxNUUdHRFlPckYtYUc2RGhxYU9uVFBKUmdsal8zbEVpV0NzUGxJOWw2TXB4OENvUWpOVXNselgwNV8xTjJiX1pYOEU5bjVXazBrOGhKeGhpOEEtZWl0SzY3WDhhT09waFhfZU5Iam5LZDMwTVJUMEdMVEtJYi04TFk5OTQwZHpGa3N5SkhfbmtqaDVZWTA2LVIzcHowUTNLZUFZQ3NkZ2pON09vU05lMGJ6amhEbEdxdFFhaUdET3RnaG91Z9IBzwFBVV95cUxQYjFlZ1cyUXFxT3JzdmhybGhlRHcyd2JQdU41OHppLVV2Ry1mUWNPb05PcjVPUWc0ejFpaTR2aFFTNHJPck51d2V1Q0FKdXVIbEVsRVp5Z2I4Zk9YcVhRTkctbllXby0tcE9penItQ2tZMU5ZcnRyQWc5QXhtZFpxUU1hdS15RFM0ZkU0c2VVX01ZTEZVTnZmY0pPZzByZlpvTDNjb0ZJaUxCNjVrQTNhc1RUMXNJSWZJLWU2eGxFUERIMzZZeTVJNWtrcGtVMUU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

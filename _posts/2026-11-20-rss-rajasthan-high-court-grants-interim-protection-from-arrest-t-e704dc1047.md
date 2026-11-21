@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan High Court Grants Interim Protection From Arrest To Asaram In FIR Over Delay In Surrendering... - Live Law"
+date: 2026-11-20 20:24:54 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi3AFBVV95cUxQemlaQy1KeU1qaVdrNVNIRnFwSWlqSjA0dllfME5sU0R3ZWpnX0pXMkJvUEhfWWZ6b2hQRUl0WDJhNHlTdGdTUmozWGExb0VVdHhFM1plNGtWc1A3c1dLQ1RaR2h1Ukp6RFRVZEVQTzZZYnllYk9xamhxcjNidXJqbVNoMXVhUXY2Zk5yM1NxM1ZEdkNtaVJNYVpYMTlaaXBseEhac2YwNDhEZ1NiWkhrU3dsVEpIdHZURy0wZXNUaGZ2Zm1kaDAtd2ZTRVJIanhtYWVoYlNTNDMyb1Iz0gHiAUFVX3lxTE5vTkZJTFlBaV9EbkYxVUJ0bXoxOVdwN1ctQVhvX1NDX0U3Z3NMSkFidTZSdDJiZkRFVllPS21IdV9iSGFqellOOXNqNjBXenNMcVBxRG5VTmc4SXMwRUsydktCUmVBLVcwUHUxOTdUZkhlS0RvUzVNZ1NJUU5HeHlxcndMbThFZWF4YVJYQmwxdGJYTWx5SkZUWVV5QVVkblY5NTdKMnU0LUx1YVRoMGtEeUFGdEttckNuRnBFcGhMZ2J1N1l3RnU4akxOSmxuRG53eWttMTFFLTFaTFhZLWd1ckE?oc=5"
+---
+
+Rajasthan High Court Grants Interim Protection From Arrest To Asaram In FIR Over Delay In Surrendering... Live Law
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3AFBVV95cUxQemlaQy1KeU1qaVdrNVNIRnFwSWlqSjA0dllfME5sU0R3ZWpnX0pXMkJvUEhfWWZ6b2hQRUl0WDJhNHlTdGdTUmozWGExb0VVdHhFM1plNGtWc1A3c1dLQ1RaR2h1Ukp6RFRVZEVQTzZZYnllYk9xamhxcjNidXJqbVNoMXVhUXY2Zk5yM1NxM1ZEdkNtaVJNYVpYMTlaaXBseEhac2YwNDhEZ1NiWkhrU3dsVEpIdHZURy0wZXNUaGZ2Zm1kaDAtd2ZTRVJIanhtYWVoYlNTNDMyb1Iz0gHiAUFVX3lxTE5vTkZJTFlBaV9EbkYxVUJ0bXoxOVdwN1ctQVhvX1NDX0U3Z3NMSkFidTZSdDJiZkRFVllPS21IdV9iSGFqellOOXNqNjBXenNMcVBxRG5VTmc4SXMwRUsydktCUmVBLVcwUHUxOTdUZkhlS0RvUzVNZ1NJUU5HeHlxcndMbThFZWF4YVJYQmwxdGJYTWx5SkZUWVV5QVVkblY5NTdKMnU0LUx1YVRoMGtEeUFGdEttckNuRnBFcGhMZ2J1N1l3RnU4akxOSmxuRG53eWttMTFFLTFaTFhZLWd1ckE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

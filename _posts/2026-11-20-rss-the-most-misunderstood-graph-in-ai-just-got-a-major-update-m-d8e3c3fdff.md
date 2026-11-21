@@ -1,0 +1,17 @@
+---
+layout: post
+title: "The most misunderstood graph in AI just got a major update - MIT Technology Review"
+date: 2026-11-20 23:45:15 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMisAFBVV95cUxPRGlwUWg2Q3pmV3VGdS0zMUdBTjc2WkJQU3BabW5rM1prQXpEOGU1UG1rWDVNNFU2WFdvX0ZNd3NkTzVJbGV0NDR0cVNzTEplZUhFcFRqS2pyNTBsUlpFazZzUVV2WkZOWnQ4UkFHYzZDcEVKcTRVM0FVUVNhdDRpT01iVVR1MDRGUFk4ME52OHVYSzhqRjdwcVpvZmpsdjZWYWwzOWdibF9MeDNtLVRmT9IBtgFBVV95cUxQdU1ReklWc2VoVnV0QU14SnpOempHZE55R3BfUE1TOGUzZWNBdEFvMHg1Z2h4WW5QYVBWQjhrdmc3UFR1WVJ1MXRlM0xWd0Ryb1YtSTd4QXBFbkxjSDFVbllHR2pyZkxHRV9xLUZjTW5mYlVlSXkzREZYR0pMNnl4dVphZi1TeGdqUkRZODlUOGN1Z2tXV2g1cHk0dnVPZVIyeEdnMTlGWmtKUXkwNHJkbVcxS0wzQQ?oc=5"
+---
+
+The most misunderstood graph in AI just got a major update MIT Technology Review
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisAFBVV95cUxPRGlwUWg2Q3pmV3VGdS0zMUdBTjc2WkJQU3BabW5rM1prQXpEOGU1UG1rWDVNNFU2WFdvX0ZNd3NkTzVJbGV0NDR0cVNzTEplZUhFcFRqS2pyNTBsUlpFazZzUVV2WkZOWnQ4UkFHYzZDcEVKcTRVM0FVUVNhdDRpT01iVVR1MDRGUFk4ME52OHVYSzhqRjdwcVpvZmpsdjZWYWwzOWdibF9MeDNtLVRmT9IBtgFBVV95cUxQdU1ReklWc2VoVnV0QU14SnpOempHZE55R3BfUE1TOGUzZWNBdEFvMHg1Z2h4WW5QYVBWQjhrdmc3UFR1WVJ1MXRlM0xWd0Ryb1YtSTd4QXBFbkxjSDFVbllHR2pyZkxHRV9xLUZjTW5mYlVlSXkzREZYR0pMNnl4dVphZi1TeGdqUkRZODlUOGN1Z2tXV2g1cHk0dnVPZVIyeEdnMTlGWmtKUXkwNHJkbVcxS0wzQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

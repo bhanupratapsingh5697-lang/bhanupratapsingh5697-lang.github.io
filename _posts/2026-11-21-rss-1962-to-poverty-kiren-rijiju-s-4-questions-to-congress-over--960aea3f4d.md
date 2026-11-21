@@ -1,0 +1,17 @@
+---
+layout: post
+title: "1962 To Poverty: Kiren Rijiju's 4 Questions To Congress Over Rahul Gandhi 'Compromised PM' Post - NDTV"
+date: 2026-11-21 08:38:45 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxNTk5tR21fcUlFaTllNU5lY3M2cXA4RUxKVWlvMmlUclhRbEdzaTMxQjFBLTZtOTh2S0cxcXlOZFFPV0JIRnFtdWtndENVZmdYeng1eDcwbWluRTJ4N0hoYkpucTJES0JGWWlfb1FwN2hOYlhNc2h4M3NFSHFzOGM4Ujh5R1hDTzBYOGY5TWZaUUJEc2J6aTlOVXdkaHVrR3drdWp2TmFuQVVHdF9TeG91Sl9OQ051MWxta3p0dGRXZVVOMmswckRVUGNMMmUwSmdlcUVlMGh30gHeAUFVX3lxTFA4dEF2V05QVjROaEJ4MXpOY2dFNTZvZEtHb2JsXzljMjBLUEs3OTItQTJ3M3pIemJWUExoRWNZRlVJcWo0WWFzREJHWGxMR0QtRUpDdHBJaE81emJyM2NkMzVXR1ZSX3F3Y0tnNWZFZHNESm5RV0Fkb0lJWmdKQmlTN29pUXRiNTZQWndGaFMxbkNDX1NwVGRfd1VSOGNzWEhYTzdEY2U0SVN2SmZ3RXhwQloyeExTaEVleVN4S1VIOHFxaHFhU2NjaGRsektJRzhYeWlqOW80N3pCcHFEdw?oc=5"
+---
+
+1962 To Poverty: Kiren Rijiju's 4 Questions To Congress Over Rahul Gandhi 'Compromised PM' Post NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNTk5tR21fcUlFaTllNU5lY3M2cXA4RUxKVWlvMmlUclhRbEdzaTMxQjFBLTZtOTh2S0cxcXlOZFFPV0JIRnFtdWtndENVZmdYeng1eDcwbWluRTJ4N0hoYkpucTJES0JGWWlfb1FwN2hOYlhNc2h4M3NFSHFzOGM4Ujh5R1hDTzBYOGY5TWZaUUJEc2J6aTlOVXdkaHVrR3drdWp2TmFuQVVHdF9TeG91Sl9OQ051MWxta3p0dGRXZVVOMmswckRVUGNMMmUwSmdlcUVlMGh30gHeAUFVX3lxTFA4dEF2V05QVjROaEJ4MXpOY2dFNTZvZEtHb2JsXzljMjBLUEs3OTItQTJ3M3pIemJWUExoRWNZRlVJcWo0WWFzREJHWGxMR0QtRUpDdHBJaE81emJyM2NkMzVXR1ZSX3F3Y0tnNWZFZHNESm5RV0Fkb0lJWmdKQmlTN29pUXRiNTZQWndGaFMxbkNDX1NwVGRfd1VSOGNzWEhYTzdEY2U0SVN2SmZ3RXhwQloyeExTaEVleVN4S1VIOHFxaHFhU2NjaGRsektJRzhYeWlqOW80N3pCcHFEdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

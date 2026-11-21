@@ -1,0 +1,17 @@
+---
+layout: post
+title: "RSSB CET 12th Level City Slip 2026 LIVE: Download Rajasthan CET Exam City Details at rssb.rajasthan.gov.in - Jagran Josh"
+date: 2026-11-21 12:31:43 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi5wFBVV95cUxPWXBBTzJGQlRSRGU0RHBVSzFMUVNuTW5mVG9wTlRlZEY4WXplUGctTnBMaFZxd3BoVmxZZGJfT1kxbWpqNm4teGFEZk5sSzBDbUozYXoxWThObFpaUHB3NW5oZFd6OUoxME45U3dETXdrVlhSVnpzMG95akNWYUlNVi1yVjVxRFNFaVlCRHdzYUNVVFpxTnRwZmJscmt5YjNOa3p2QXFTMHNaN0Q1X01aY1pmMU9Rd0VrQWZSSS1ydXpjLURhNVpUdThYbDlaRWRKemRFTWJBel9iSTh4eTBGMUVLTEV4UzDSAe4BQVVfeXFMTmdtaUpJMTNLb2JNYjJJdTltanZyOHR1NS1qbElqXzV3Yi12clNEb0x5S3hRdG40MVNGTUtxQVBOSlJZN1ZOMmlJYm4wZ2lSemdBNkVoVkhVdGM5Ymd4VkxURHByTlUwaXI3UUVtTWhtOWxLT0lSekMxRV93NkdDTGd4Q0NHQnZRZ0FLUnM4Q1pmRHRta3FqT2M5N2x0U0JadjlTZEV5Y1NERkNCSE9DOWNXV0l6S25MWHlwWUZRbkJZNmRMN1NZT0FqbUtHYWhHVzFGN3FqX25NQTFoOTRSQkw0YWhpbDlKN2k3am9HQQ?oc=5"
+---
+
+RSSB CET 12th Level City Slip 2026 LIVE: Download Rajasthan CET Exam City Details at rssb.rajasthan.gov.in Jagran Josh
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPWXBBTzJGQlRSRGU0RHBVSzFMUVNuTW5mVG9wTlRlZEY4WXplUGctTnBMaFZxd3BoVmxZZGJfT1kxbWpqNm4teGFEZk5sSzBDbUozYXoxWThObFpaUHB3NW5oZFd6OUoxME45U3dETXdrVlhSVnpzMG95akNWYUlNVi1yVjVxRFNFaVlCRHdzYUNVVFpxTnRwZmJscmt5YjNOa3p2QXFTMHNaN0Q1X01aY1pmMU9Rd0VrQWZSSS1ydXpjLURhNVpUdThYbDlaRWRKemRFTWJBel9iSTh4eTBGMUVLTEV4UzDSAe4BQVVfeXFMTmdtaUpJMTNLb2JNYjJJdTltanZyOHR1NS1qbElqXzV3Yi12clNEb0x5S3hRdG40MVNGTUtxQVBOSlJZN1ZOMmlJYm4wZ2lSemdBNkVoVkhVdGM5Ymd4VkxURHByTlUwaXI3UUVtTWhtOWxLT0lSekMxRV93NkdDTGd4Q0NHQnZRZ0FLUnM4Q1pmRHRta3FqT2M5N2x0U0JadjlTZEV5Y1NERkNCSE9DOWNXV0l6S25MWHlwWUZRbkJZNmRMN1NZT0FqbUtHYWhHVzFGN3FqX25NQTFoOTRSQkw0YWhpbDlKN2k3am9HQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

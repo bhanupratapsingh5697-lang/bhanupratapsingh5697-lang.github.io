@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Global T20 Stars Set to Light Up DP World ILT20 Season 5 LIVE on Unite8 Sports - Deccan Chronicle"
+date: 2026-11-21 11:30:27 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxOamR0ZWJ0S2dZYTVLWlVpRGJWSnFEbFFuenB6NF82dC1NMFd4azdUeGVvbm9tYU9aSUItTHU2b1VNa3hjcTRhRWhSR2JIN3Nscmx3WW40VmozSWNkOWlYdElFSHVmYU41TzV0VkZHQVZhX1lweUM1QXdVRTRyNUlYdUhkajJvSE40b3VtQm9PWmNoOGZaUFhfYVhsaDVzbjJNdzNXdHc2NUhLcEpod0hpcDRGRzRNbGJTQUhYR212amI2TDjSAcgBQVVfeXFMTmtqUnFRcjE3QW9FdjdCRGlaWFl0Z3RzMTN1cFBIT25wMHlUbXhYSHl3djdxMy1HWEFXaWh0VHNUYVJfb25GbEVnYWN0UHZKbWc0VEExa2l0M0NSMEpheDVJTXk3ck4yQW5GYmlURUpsMGVCN0JybU1FeTBnWFBiS3c2S05qaUVvcDVDa3lLbzQ2WW40WEZ2bENlV2ZHaGh2d0NrRngwN0p2SWdBczdZeWp5S1JQYmM2Wi1YNTZDQXFMeWtEQWZpMVQ?oc=5"
+---
+
+Global T20 Stars Set to Light Up DP World ILT20 Season 5 LIVE on Unite8 Sports Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOamR0ZWJ0S2dZYTVLWlVpRGJWSnFEbFFuenB6NF82dC1NMFd4azdUeGVvbm9tYU9aSUItTHU2b1VNa3hjcTRhRWhSR2JIN3Nscmx3WW40VmozSWNkOWlYdElFSHVmYU41TzV0VkZHQVZhX1lweUM1QXdVRTRyNUlYdUhkajJvSE40b3VtQm9PWmNoOGZaUFhfYVhsaDVzbjJNdzNXdHc2NUhLcEpod0hpcDRGRzRNbGJTQUhYR212amI2TDjSAcgBQVVfeXFMTmtqUnFRcjE3QW9FdjdCRGlaWFl0Z3RzMTN1cFBIT25wMHlUbXhYSHl3djdxMy1HWEFXaWh0VHNUYVJfb25GbEVnYWN0UHZKbWc0VEExa2l0M0NSMEpheDVJTXk3ck4yQW5GYmlURUpsMGVCN0JybU1FeTBnWFBiS3c2S05qaUVvcDVDa3lLbzQ2WW40WEZ2bENlV2ZHaGh2d0NrRngwN0p2SWdBczdZeWp5S1JQYmM2Wi1YNTZDQXFMeWtEQWZpMVQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
