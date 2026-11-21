@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Police arrest wanted drug trafficking accused from Jharkhand after two years - ThePrint"
+date: 2026-11-21 16:17:07 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxOdnI2X0NpNEQwcDZpVGFUVGtfdGJ5MmsxX2dIZzNtSmZfVGJWNkY0U3FBRERCUXViSmR2TUVZUFY5cEw3VU9IRlI1b2JsUkRMeVdfUzhVS1B1R1Q5NTNpSUFJX19wMVVSVmpScDV4aWZKV3l2S1pHNXR2NjJlWmt5YTBlX1cwYXN4eG9YaTcyYmZyQTcxOGs1RFQwVUFEVXkzOXl0WGFGa0x4NkU4eW1XT3FaRjVFTDhlZGx2bVhR0gHDAUFVX3lxTFBMZ3BmYUhwOWQ0N3VlYmhnODhpYnlhM19Uak51TDFWSnBha0RZSWk5eGpsUVg2MXFMS205Z1NpRnBaQVE3Qkh2RW00X01VZFZuc09lemFIdjNOWTl3aFJ4V0JWU01xc0NkOW5IVkpteFhSM3NUZlV1N25pQUxZbmVxd1RzSTVFZjBXQU54REEyLWpGOE1JUWVLZG5mYjlPVG1Kd01rS2o5MVBIM0lTSmdvbkhRaG9FM0JFS2tBWnpVM2JURQ?oc=5"
+---
+
+Rajasthan Police arrest wanted drug trafficking accused from Jharkhand after two years ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxOdnI2X0NpNEQwcDZpVGFUVGtfdGJ5MmsxX2dIZzNtSmZfVGJWNkY0U3FBRERCUXViSmR2TUVZUFY5cEw3VU9IRlI1b2JsUkRMeVdfUzhVS1B1R1Q5NTNpSUFJX19wMVVSVmpScDV4aWZKV3l2S1pHNXR2NjJlWmt5YTBlX1cwYXN4eG9YaTcyYmZyQTcxOGs1RFQwVUFEVXkzOXl0WGFGa0x4NkU4eW1XT3FaRjVFTDhlZGx2bVhR0gHDAUFVX3lxTFBMZ3BmYUhwOWQ0N3VlYmhnODhpYnlhM19Uak51TDFWSnBha0RZSWk5eGpsUVg2MXFMS205Z1NpRnBaQVE3Qkh2RW00X01VZFZuc09lemFIdjNOWTl3aFJ4V0JWU01xc0NkOW5IVkpteFhSM3NUZlV1N25pQUxZbmVxd1RzSTVFZjBXQU54REEyLWpGOE1JUWVLZG5mYjlPVG1Kd01rS2o5MVBIM0lTSmdvbkhRaG9FM0JFS2tBWnpVM2JURQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

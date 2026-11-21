@@ -1,0 +1,17 @@
+---
+layout: post
+title: "FC Goa snatch stoppage-time draw against Sporting Club Delhi | Football News - Hindustan Times"
+date: 2026-11-21 22:32:53 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixwFBVV95cUxQcVBfSE85Z1BmVUR2UmM2NWc0ZjNHTmJfdFBRZ1dLTUJVb2dlckczUVBrMjJwSVNMcWdhZjlxUWJoS29oNUNRY1J2MXp1YXBRN3VFMWl5enhqR3NzY2xnVlBMTk4zR1NVYnVIRExGYTdyQ0c0RXUyRXRwMTJ4c3h0WlVxZ3VTZzJudlNBeVdMQ2YyNXZscVJ0OW9IbWFKbXJYdTNlLUpNd3k3cndUUERTMDR0WlQ2bk1yWk1TYVVrck9tQ0xaWDU40gHMAUFVX3lxTE1FV1J1cm91VTJsQnlPMjZoSE1pWnpuVHFQSGpna1oxR3p4NnBENkRHc3A3bHlMT2JLb0dLSFVYTXQ2ejRpYVVKSjB0eTQ5VWNBQzUtbEd5WG9WWEJYT0VidEtUcGRZSXRUNkxxcUpicHZPaEk4THV5bGxrdGlqSUpYcXNnZmFmLUtiR3VvdGRDNWk4VWRrQ2JvOV9TWnA1THUyUDlRUHpHQVl0eFhvVWNfaElod21PTmtRek5zdm54eWQ1ckhYTW5WV0pLQw?oc=5"
+---
+
+FC Goa snatch stoppage-time draw against Sporting Club Delhi | Football News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixwFBVV95cUxQcVBfSE85Z1BmVUR2UmM2NWc0ZjNHTmJfdFBRZ1dLTUJVb2dlckczUVBrMjJwSVNMcWdhZjlxUWJoS29oNUNRY1J2MXp1YXBRN3VFMWl5enhqR3NzY2xnVlBMTk4zR1NVYnVIRExGYTdyQ0c0RXUyRXRwMTJ4c3h0WlVxZ3VTZzJudlNBeVdMQ2YyNXZscVJ0OW9IbWFKbXJYdTNlLUpNd3k3cndUUERTMDR0WlQ2bk1yWk1TYVVrck9tQ0xaWDU40gHMAUFVX3lxTE1FV1J1cm91VTJsQnlPMjZoSE1pWnpuVHFQSGpna1oxR3p4NnBENkRHc3A3bHlMT2JLb0dLSFVYTXQ2ejRpYVVKSjB0eTQ5VWNBQzUtbEd5WG9WWEJYT0VidEtUcGRZSXRUNkxxcUpicHZPaEk4THV5bGxrdGlqSUpYcXNnZmFmLUtiR3VvdGRDNWk4VWRrQ2JvOV9TWnA1THUyUDlRUHpHQVl0eFhvVWNfaElod21PTmtRek5zdm54eWQ1ckhYTW5WV0pLQw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

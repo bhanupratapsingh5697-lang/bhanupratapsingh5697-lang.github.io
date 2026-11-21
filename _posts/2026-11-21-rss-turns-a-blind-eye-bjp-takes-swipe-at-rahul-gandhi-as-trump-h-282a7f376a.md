@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Turns a blind eye': BJP takes swipe at Rahul Gandhi as Trump hails India's GDP growth - The Times of India"
+date: 2026-11-21 17:07:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi5wFBVV95cUxPbm9UdWZKX2dTNUxVSWJsalY1aFpVb1RFcF9TUnM4T3hYeGJMcDJzbmlGd0gxcVJCM0Z1RjcybTV5V2dWNjllU1p2Z01jcFBzdkgyWVdWREhlb2d6R1FFQTRvRlFfN1FMbXQwZHNSdjNDamozQVRKM0ZHb3h4enpiNXdKV01palBCMzNmWEVqZEFfUVVwQUYyZlVZT2Y1NlpNMEJUUGRxNlhvVUR0b3hkZUhhZENoUFllU0dQZ0N2TzBOcjBDU0JwQUxyYmJyZV9qaDNwNzI2T3lVeUtVb1NOU29VVVp2bFXSAewBQVVfeXFMTkZmeTRGSXBzTU92cE91dWRaTGx3ck9xZjVVYWlYd29MVXVUdzNEMDMwbUdjSVBjNUViYWFkM0tyWGpIYk1KTmkzZWZ0LTBMQVpvblhYVDlzTTdFTjBsRkhEd1BRaUZXTkN1azNISE1Hd2VTeDNMUlRZMDkxZUxWald2b3c3WmdwTzA1YmM3dDVLUzJsbUN6Yks2bjV0VG5XSVMwRmxzYlRmTDN6bGdzSEFCVjhoM2lXWkRDWU9YUlVsV3d3REZmbUdXVGJMa3hTYjZJVTlURGZ2djFDaExkTFNUVUZFdk9sRGtxblU?oc=5"
+---
+
+'Turns a blind eye': BJP takes swipe at Rahul Gandhi as Trump hails India's GDP growth The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5wFBVV95cUxPbm9UdWZKX2dTNUxVSWJsalY1aFpVb1RFcF9TUnM4T3hYeGJMcDJzbmlGd0gxcVJCM0Z1RjcybTV5V2dWNjllU1p2Z01jcFBzdkgyWVdWREhlb2d6R1FFQTRvRlFfN1FMbXQwZHNSdjNDamozQVRKM0ZHb3h4enpiNXdKV01palBCMzNmWEVqZEFfUVVwQUYyZlVZT2Y1NlpNMEJUUGRxNlhvVUR0b3hkZUhhZENoUFllU0dQZ0N2TzBOcjBDU0JwQUxyYmJyZV9qaDNwNzI2T3lVeUtVb1NOU29VVVp2bFXSAewBQVVfeXFMTkZmeTRGSXBzTU92cE91dWRaTGx3ck9xZjVVYWlYd29MVXVUdzNEMDMwbUdjSVBjNUViYWFkM0tyWGpIYk1KTmkzZWZ0LTBMQVpvblhYVDlzTTdFTjBsRkhEd1BRaUZXTkN1azNISE1Hd2VTeDNMUlRZMDkxZUxWald2b3c3WmdwTzA1YmM3dDVLUzJsbUN6Yks2bjV0VG5XSVMwRmxzYlRmTDN6bGdzSEFCVjhoM2lXWkRDWU9YUlVsV3d3REZmbUdXVGJMa3hTYjZJVTlURGZ2djFDaExkTFNUVUZFdk9sRGtxblU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

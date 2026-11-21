@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Delhi-born Nikhil Chaudhary becomes Australia’s match-winner | Sports News - Hindustan Times"
+date: 2026-11-21 21:27:31 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxNQ0p4RGUwcXMzSlBZTVBvcEU0Y2lPWmdTVzRpQ242TDVjenotWEJUQTU5UUxqUW80amp6Q0dQcDhidjhWQ0o2M1JLQmtJRTdhdUtzbXE3NXpQQnVBa0FvX2x2RmkxSTRrcEsxSy00VEJaWWZId2RUNVdRYm15NkxqcnpkRjZ2am5OdTFjZXBWRVZIWTI0cWNUTnVMUVpTRHAxVUpoR0lwdHFlZWNxY0lFQUVEVTg4aWdK0gG-AUFVX3lxTFA0TXEzd3daNzR5akZQVHdyTzVjQlduN0VoMUN3V1FxNm9YVHVMQ3hIdEJ0alFyOU1FRjNVM2QybGxrQXcxT0VDOTlUZFhhRlVmV2Fqc1o2YTBIZ3lPVEtyZXAycjJKVFZaMTV1UUpuOHFRY1M0R05Rd3JwNVZqNmZMbVhnUlpydTZlTWlNcnpfMFFHVlhOT1dKUVYxLVQ3cDl4ZndZajlDUGl4ZnVaSjJHdkxhbU1LVUZhajdjc1E?oc=5"
+---
+
+Delhi-born Nikhil Chaudhary becomes Australia’s match-winner | Sports News Hindustan Times
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxNQ0p4RGUwcXMzSlBZTVBvcEU0Y2lPWmdTVzRpQ242TDVjenotWEJUQTU5UUxqUW80amp6Q0dQcDhidjhWQ0o2M1JLQmtJRTdhdUtzbXE3NXpQQnVBa0FvX2x2RmkxSTRrcEsxSy00VEJaWWZId2RUNVdRYm15NkxqcnpkRjZ2am5OdTFjZXBWRVZIWTI0cWNUTnVMUVpTRHAxVUpoR0lwdHFlZWNxY0lFQUVEVTg4aWdK0gG-AUFVX3lxTFA0TXEzd3daNzR5akZQVHdyTzVjQlduN0VoMUN3V1FxNm9YVHVMQ3hIdEJ0alFyOU1FRjNVM2QybGxrQXcxT0VDOTlUZFhhRlVmV2Fqc1o2YTBIZ3lPVEtyZXAycjJKVFZaMTV1UUpuOHFRY1M0R05Rd3JwNVZqNmZMbVhnUlpydTZlTWlNcnpfMFFHVlhOT1dKUVYxLVQ3cDl4ZndZajlDUGl4ZnVaSjJHdkxhbU1LVUZhajdjc1E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Employee Caught Playing Cards On Computer During Vote Counting Duty (WATCH) - Asianet Newsable"
+date: 2026-11-21 19:33:22 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxQUEpkNzFUZFpXQ3lDSkg5YlhZdDBtOG1FbFZvNUpQdk1rWDJWclZrc3FrckoxakQ2Rnh2Zm9KbFRJaEFLRmd6Zi1hb253SHJDUHljUmZtM05iTW91Tk9rMzZtUE0xRlNtYm9XaFdTbnI2d3pWd1RkUjlFSVJDcFF1aXRCcnVvdmllNzN3a1lkNG5ZSWE5WnZKRGpRWlFxUmY1QkRzclhkYkZqcmFsZmlkN2NwU3RESmxLR3dGUTJBNjNlc25NNUdPc3M3NVBfanZy0gHWAUFVX3lxTE1ZWU9zdHV6MWpqQkFRUWlON19HdkhDOWRfeFQteVMzTTNHRlVjdWY0amdQbmRXMlpxaGotcXdhUG1EOFVwVU1kaEJLLWdLYWFBM2ZjRjEyVHNJSnNVZUFjeEllMzlyUWo2MnlpV3lHR0pHVEJpdFRNWHJiTVhhTFpYaHh3Z1JvNVZDOWYzWlJfMWlDZVc2aWlra2ZfTEVENW9mcG5vaWN4VW1VMkxIY1NvV1RvSlJXZklxRmpxU3lOZ1hvTXpNd2h6a2IwR2hUb2d3WFlLMXc?oc=5"
+---
+
+Rajasthan Employee Caught Playing Cards On Computer During Vote Counting Duty (WATCH) Asianet Newsable
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxQUEpkNzFUZFpXQ3lDSkg5YlhZdDBtOG1FbFZvNUpQdk1rWDJWclZrc3FrckoxakQ2Rnh2Zm9KbFRJaEFLRmd6Zi1hb253SHJDUHljUmZtM05iTW91Tk9rMzZtUE0xRlNtYm9XaFdTbnI2d3pWd1RkUjlFSVJDcFF1aXRCcnVvdmllNzN3a1lkNG5ZSWE5WnZKRGpRWlFxUmY1QkRzclhkYkZqcmFsZmlkN2NwU3RESmxLR3dGUTJBNjNlc25NNUdPc3M3NVBfanZy0gHWAUFVX3lxTE1ZWU9zdHV6MWpqQkFRUWlON19HdkhDOWRfeFQteVMzTTNHRlVjdWY0amdQbmRXMlpxaGotcXdhUG1EOFVwVU1kaEJLLWdLYWFBM2ZjRjEyVHNJSnNVZUFjeEllMzlyUWo2MnlpV3lHR0pHVEJpdFRNWHJiTVhhTFpYaHh3Z1JvNVZDOWYzWlJfMWlDZVc2aWlra2ZfTEVENW9mcG5vaWN4VW1VMkxIY1NvV1RvSlJXZklxRmpxU3lOZ1hvTXpNd2h6a2IwR2hUb2d3WFlLMXc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

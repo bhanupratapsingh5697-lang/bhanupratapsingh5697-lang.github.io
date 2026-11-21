@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Key takeaways from the Quad, ASEAN-India, and East Asia Summits in Manila | Explained - The Hindu"
+date: 2026-11-21 13:10:37 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi3AFBVV95cUxPNWxiRDREam5fUjhhZjktY3RMT3ZHbHNfdGZqbFoyRUR4YUlKUEhvUVpJVndUSHZrazlibUFBc1ZZZ2RSVDRXTHpZRTNBUWFFb2Z6WkYtNzV1V2FzMVltcm5nZmQ5MFZZVnJ3bHhaZEt4dG5tcEFxd0xmRUY1QlFidEg4ZEZxTGpzM193NDJEdmZJWWMtYlpaSlFMbExNR3VNMUVTZTBuV0dDRTh1M1c5dDFjNVpOV2o4T01CYk5jUnJIQl85SU1jZFM4YzBwSlBUQm1jU0s2S2FkQnNa0gHjAUFVX3lxTE5tTUVIX2VTdzcxc0RaTEsxU1kxVnQydHpBY0RKczhNWEJMd1pGOWdQMlNYdXp6dW1MREpUbzF6eE9VUk85NFNJc3AtUXdPR05vbldET01BTHlXVFYxS2hwc3c4a3Z2VUpNODNBWFV2VzVCbGU0TjF3RXExLWMwV1hnQTRtM1dqNUJaLWs4QXBTLXZ0bTRxX0doRHI0NWZWSHVLUzZkaHhpUUxEQmk0RW9jV2VRbTZvOGgycUVPMGctMmprNDBRV2oxU0VpMEZQZGowXzNfNmFTN0RZOWJ1NTZGTkdV?oc=5"
+---
+
+Key takeaways from the Quad, ASEAN-India, and East Asia Summits in Manila | Explained The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3AFBVV95cUxPNWxiRDREam5fUjhhZjktY3RMT3ZHbHNfdGZqbFoyRUR4YUlKUEhvUVpJVndUSHZrazlibUFBc1ZZZ2RSVDRXTHpZRTNBUWFFb2Z6WkYtNzV1V2FzMVltcm5nZmQ5MFZZVnJ3bHhaZEt4dG5tcEFxd0xmRUY1QlFidEg4ZEZxTGpzM193NDJEdmZJWWMtYlpaSlFMbExNR3VNMUVTZTBuV0dDRTh1M1c5dDFjNVpOV2o4T01CYk5jUnJIQl85SU1jZFM4YzBwSlBUQm1jU0s2S2FkQnNa0gHjAUFVX3lxTE5tTUVIX2VTdzcxc0RaTEsxU1kxVnQydHpBY0RKczhNWEJMd1pGOWdQMlNYdXp6dW1MREpUbzF6eE9VUk85NFNJc3AtUXdPR05vbldET01BTHlXVFYxS2hwc3c4a3Z2VUpNODNBWFV2VzVCbGU0TjF3RXExLWMwV1hnQTRtM1dqNUJaLWs4QXBTLXZ0bTRxX0doRHI0NWZWSHVLUzZkaHhpUUxEQmk0RW9jV2VRbTZvOGgycUVPMGctMmprNDBRV2oxU0VpMEZQZGowXzNfNmFTN0RZOWJ1NTZGTkdV?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Warner Music Group to develop Bengaluru as global technology hub - The Hindu"
+date: 2026-11-21 19:48:43 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxQbTFfV3BLNVhDQXR1R2oyNHMxNEdPLUJjYkhsd1hPTUZhSUE5OWpkbTQ1UmJOS21wZTdVWjdyUEJWMVZsOFRDaFNITE9vdUM1QzFaSUJfTVNpMUEzM1BoMTdpazZ5UHQwdTNyM05OblhvdTFZdXBWNlFjNnVfWUZRSUN2R1pIcWQ4eWxPUW9FSjktN05mZ0VGb3pJMWRFYVdMUUowQUg1RVUzMTB2ME1PcHZHMTBDMEhFZkt3UnFCV2pIYWlWMDRpU0tsU0o1Z9IB1AFBVV95cUxPekN1QlF6T0oyTzdxMWtiZEZ3X3c0VXAwQWVFaDBSMF9nUzFOQzRjR2Z5blRGb2ZEc3pHRWVOa1I5X0h3NG1aeUlwVVhIOEk1SlB5TFlPSmxhZ29OY2FjZGh0Wk9WT3J2TWZPMko4b250THVINjRlM25SR09XMnJsejA2S3pEV2NUZEU3YXVVTjZrMHNJX1V4bGFQSG1EdmFqMWItaUFfZ2hjTWVtZmZyRk5ubUE4Y2FBMUVrRnN4aDV3ZzlXeDdxVHBiU3Q0MUdBcHJMVA?oc=5"
+---
+
+Warner Music Group to develop Bengaluru as global technology hub The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxQbTFfV3BLNVhDQXR1R2oyNHMxNEdPLUJjYkhsd1hPTUZhSUE5OWpkbTQ1UmJOS21wZTdVWjdyUEJWMVZsOFRDaFNITE9vdUM1QzFaSUJfTVNpMUEzM1BoMTdpazZ5UHQwdTNyM05OblhvdTFZdXBWNlFjNnVfWUZRSUN2R1pIcWQ4eWxPUW9FSjktN05mZ0VGb3pJMWRFYVdMUUowQUg1RVUzMTB2ME1PcHZHMTBDMEhFZkt3UnFCV2pIYWlWMDRpU0tsU0o1Z9IB1AFBVV95cUxPekN1QlF6T0oyTzdxMWtiZEZ3X3c0VXAwQWVFaDBSMF9nUzFOQzRjR2Z5blRGb2ZEc3pHRWVOa1I5X0h3NG1aeUlwVVhIOEk1SlB5TFlPSmxhZ29OY2FjZGh0Wk9WT3J2TWZPMko4b250THVINjRlM25SR09XMnJsejA2S3pEV2NUZEU3YXVVTjZrMHNJX1V4bGFQSG1EdmFqMWItaUFfZ2hjTWVtZmZyRk5ubUE4Y2FBMUVrRnN4aDV3ZzlXeDdxVHBiU3Q0MUdBcHJMVA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

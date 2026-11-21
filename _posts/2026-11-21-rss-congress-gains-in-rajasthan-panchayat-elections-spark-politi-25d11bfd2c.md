@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Congress gains in Rajasthan panchayat elections spark political debate on governance - India Today - India Today"
+date: 2026-11-21 22:04:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxQa3lYNmU4bzBZTEpLMnpmYU5TSk56bWpMQnJCSTVYc2dreGRyd1hOQ3FKY1Q5emFjM3N1MTJ5cXFsTUljSGI3cXRJWlFBWnJqR3BpcTJLY21lbVRHMFFUTGFkbi1qQVBlWTdaMjJORlBTOEtuSC1UM3U3ZlBqQl81UU5uMkhvZExHWWxyWTlMYmJIaXhPUkRmeEhrX0plYzh4TWVfdWpCRm80ekpjY2NUNXlQZjlFVkQ4ZnN5X3VGZkpaaGJJNjVlT3VfbFXSAdIBQVVfeXFMUE9TaUZ5dC1JS1YzaFQ5aHF0aDg4R29XcEpqQWZRS2twTFFOZ0t0R3ZMRXBES2pwZkNEUlVFQ3VHM3RHeE1iUFRlSnJ1V2ZYZ2VSUy0tRUVqbmZOSEFTUFdEUEtzQ0NPQUJCeUdFbUptbENKbXpiRkpnamlLazQxOW1PZXpPOFh5QnFRNWN1TEtXN2JHVUpKSks1SS1HRmswaDJhaTMyaHJuU0FUSzRyTFZUVHBnU29oOWkwV3E1LVhqMTBpdEo1WmZNZEFNQ3BiWDVn?oc=5"
+---
+
+Congress gains in Rajasthan panchayat elections spark political debate on governance - India Today India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxQa3lYNmU4bzBZTEpLMnpmYU5TSk56bWpMQnJCSTVYc2dreGRyd1hOQ3FKY1Q5emFjM3N1MTJ5cXFsTUljSGI3cXRJWlFBWnJqR3BpcTJLY21lbVRHMFFUTGFkbi1qQVBlWTdaMjJORlBTOEtuSC1UM3U3ZlBqQl81UU5uMkhvZExHWWxyWTlMYmJIaXhPUkRmeEhrX0plYzh4TWVfdWpCRm80ekpjY2NUNXlQZjlFVkQ4ZnN5X3VGZkpaaGJJNjVlT3VfbFXSAdIBQVVfeXFMUE9TaUZ5dC1JS1YzaFQ5aHF0aDg4R29XcEpqQWZRS2twTFFOZ0t0R3ZMRXBES2pwZkNEUlVFQ3VHM3RHeE1iUFRlSnJ1V2ZYZ2VSUy0tRUVqbmZOSEFTUFdEUEtzQ0NPQUJCeUdFbUptbENKbXpiRkpnamlLazQxOW1PZXpPOFh5QnFRNWN1TEtXN2JHVUpKSks1SS1HRmswaDJhaTMyaHJuU0FUSzRyTFZUVHBnU29oOWkwV3E1LVhqMTBpdEo1WmZNZEFNQ3BiWDVn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

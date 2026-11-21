@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Congress youth wing takes protest against Meta to its India offices - Business Standard"
+date: 2026-11-21 20:33:14 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxOS1QxdUFYT2JsR19odnItVnV2YXNFWlR5U1phV2pLNkJnT3N4RlBLcG1fWFFTbmtBZ0lpVFpDaUtndWRZZjhKdTMyZTd4eTBTTjZOa09mbl9KbFB5clptZnFMaF9IcW51VDJvSzdwSTNKb3QtY0l2eGZtbmtsaGlWUHNZaGJEUFVMenUzblVSNkFSWXBMM0NXeEJldHFkdU9wdm5nLW5mRzVjOGtHMnFWMXdPRWJaeUIxUE5wQ2ptYmxfX3MwTU9BanFwanfSAdIBQVVfeXFMUFBqc191dzJmOXVLOHk3Q3oxcV9QNVlTd20tQUE3TlpKN3I0SDN5LWZRMjBxOUp4VnpjT3p5ZWRhckV2VDh0amFtNENnQjYyWGFWSHhfMXBGZUZBc1kzSGJsVGxNMHJRQTFjelN5VnVMRFZfa0ZpbVFqRHFzQXdKSmpXak42Nko0UVZRaHdPc19tSVF4azVHNV9rNmhfNXo1RTQtcS1aeW1oOUhaT2lfelpEN2NickQ4UjF2Q0JXM1lZczVjaFVfTy1PdlFjS3ZkeVp3?oc=5"
+---
+
+Congress youth wing takes protest against Meta to its India offices Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxOS1QxdUFYT2JsR19odnItVnV2YXNFWlR5U1phV2pLNkJnT3N4RlBLcG1fWFFTbmtBZ0lpVFpDaUtndWRZZjhKdTMyZTd4eTBTTjZOa09mbl9KbFB5clptZnFMaF9IcW51VDJvSzdwSTNKb3QtY0l2eGZtbmtsaGlWUHNZaGJEUFVMenUzblVSNkFSWXBMM0NXeEJldHFkdU9wdm5nLW5mRzVjOGtHMnFWMXdPRWJaeUIxUE5wQ2ptYmxfX3MwTU9BanFwanfSAdIBQVVfeXFMUFBqc191dzJmOXVLOHk3Q3oxcV9QNVlTd20tQUE3TlpKN3I0SDN5LWZRMjBxOUp4VnpjT3p5ZWRhckV2VDh0amFtNENnQjYyWGFWSHhfMXBGZUZBc1kzSGJsVGxNMHJRQTFjelN5VnVMRFZfa0ZpbVFqRHFzQXdKSmpXak42Nko0UVZRaHdPc19tSVF4azVHNV9rNmhfNXo1RTQtcS1aeW1oOUhaT2lfelpEN2NickQ4UjF2Q0JXM1lZczVjaFVfTy1PdlFjS3ZkeVp3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
