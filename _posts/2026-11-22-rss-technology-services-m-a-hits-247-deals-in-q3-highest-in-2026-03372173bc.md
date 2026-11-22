@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Technology services M&A hits 247 deals in Q3, highest in 2026: EY - BusinessLine"
+date: 2026-11-22 11:00:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxOOW1ndnBSYTdORTAybEd2aHJyNGhjOVZQT0czb3BERDhudlhEWXdIUUxPaDI3SVgzcF90VDA3Z2hnQ3k5cFhWSWdwa1gzVDRERDNlOW1FNUdYLXlBeXU0ajlSZUlQQUhjY3FQY0hwMW0zeU9tdmNsaGs5Tjd2dTlVa2ZNQmdBclNCNGZrdGxFeXRHeUp4VUxGbDhfN3lFbWRya0VyY2VTNkR3ZlhmeHB0WEFhMkV0X0taUkk0RDhYOTlUNVQ3djJYRtIBzwFBVV95cUxPM040WjlpTDRnM3BjV0k3TzhsVlZzdGdLMXlhUGFFU0xSWVFhRDVaQmlvWjVKVGd1QnFiVGE5bnFMUm1zQVhocDdVU1FBdlRmdlEycWkxZkd0Yzd6V0dIaWNqM1IwME1fYmRCSE1KQVJwYlplT01xSm01OTY1Tm16dFd2clBjSU9RRGEwaFpPWEdSS0pVNl9EZzZOTnBZNWJkUkNUZ3BtaGhlZVhTOV9Sell2YWZrVkdKSFgtQ3pxRkNhRGxETTdHNm9OUHdFMVk?oc=5"
+---
+
+Technology services M&A hits 247 deals in Q3, highest in 2026: EY BusinessLine
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxOOW1ndnBSYTdORTAybEd2aHJyNGhjOVZQT0czb3BERDhudlhEWXdIUUxPaDI3SVgzcF90VDA3Z2hnQ3k5cFhWSWdwa1gzVDRERDNlOW1FNUdYLXlBeXU0ajlSZUlQQUhjY3FQY0hwMW0zeU9tdmNsaGs5Tjd2dTlVa2ZNQmdBclNCNGZrdGxFeXRHeUp4VUxGbDhfN3lFbWRya0VyY2VTNkR3ZlhmeHB0WEFhMkV0X0taUkk0RDhYOTlUNVQ3djJYRtIBzwFBVV95cUxPM040WjlpTDRnM3BjV0k3TzhsVlZzdGdLMXlhUGFFU0xSWVFhRDVaQmlvWjVKVGd1QnFiVGE5bnFMUm1zQVhocDdVU1FBdlRmdlEycWkxZkd0Yzd6V0dIaWNqM1IwME1fYmRCSE1KQVJwYlplT01xSm01OTY1Tm16dFd2clBjSU9RRGEwaFpPWEdSS0pVNl9EZzZOTnBZNWJkUkNUZ3BtaGhlZVhTOV9Sell2YWZrVkdKSFgtQ3pxRkNhRGxETTdHNm9OUHdFMVk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

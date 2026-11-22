@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Nepal PM Balendra Shah to visit India foe the fist time: what's on the agenda? - The Hindu"
+date: 2026-11-22 11:27:35 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxOb2xZMGlad0tUOUVqVGN1bXZYLVY0Yk5sOTRycjJ3RVZTams3d2Zxa3E5NmlsV3BWVTU1R2VYM2pnRlhZNTlrSW1iNmN3TVRJR3NJN1NqNnI2S3BicEM1VUxVOTBSRzFsSmpTaGYxUm5rWllJVmxMZ19jd0lpMEVaTHJHS0VtTmFQbFlQMUV5WktwVVZjRldQMzdIQ0JRbWFkN0c1VWI0VEQ3ZmNrUV91MDhFc3lxSURiQ1BBVTZBcXlXcy1EMWdtMEJKWEo2UdIB1AFBVV95cUxQYng5UHpibDN6dUhHa0dvNzJsSDBoSjY3YUNjZWNJQlhkYU5ONXZpMWZ4OW1UQ2QyakxpMV9kNEM5Uk50Z1RJbTEyMzF3MGdKSUpNYjE0NGZuNFBJWTl2WThUT0JQWE03MUZCM3JoZWVhaWpMQnE2bC05X19lajNhYW1QRXhGZENUYlZzRWlRX2JWVzZsWjZVWDl1YndrWUNSNmlnZWtEWlZqNTloTVBDZ1dKZGRXTnJsdDZ5MDlNVzZkMmtwTU9XWHE3RUhlY3lZb29tQw?oc=5"
+---
+
+Nepal PM Balendra Shah to visit India foe the fist time: what's on the agenda? The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxOb2xZMGlad0tUOUVqVGN1bXZYLVY0Yk5sOTRycjJ3RVZTams3d2Zxa3E5NmlsV3BWVTU1R2VYM2pnRlhZNTlrSW1iNmN3TVRJR3NJN1NqNnI2S3BicEM1VUxVOTBSRzFsSmpTaGYxUm5rWllJVmxMZ19jd0lpMEVaTHJHS0VtTmFQbFlQMUV5WktwVVZjRldQMzdIQ0JRbWFkN0c1VWI0VEQ3ZmNrUV91MDhFc3lxSURiQ1BBVTZBcXlXcy1EMWdtMEJKWEo2UdIB1AFBVV95cUxQYng5UHpibDN6dUhHa0dvNzJsSDBoSjY3YUNjZWNJQlhkYU5ONXZpMWZ4OW1UQ2QyakxpMV9kNEM5Uk50Z1RJbTEyMzF3MGdKSUpNYjE0NGZuNFBJWTl2WThUT0JQWE03MUZCM3JoZWVhaWpMQnE2bC05X19lajNhYW1QRXhGZENUYlZzRWlRX2JWVzZsWjZVWDl1YndrWUNSNmlnZWtEWlZqNTloTVBDZ1dKZGRXTnJsdDZ5MDlNVzZkMmtwTU9XWHE3RUhlY3lZb29tQw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

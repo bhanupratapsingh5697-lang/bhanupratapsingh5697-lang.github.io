@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Keralam to revise manuals for school arts, sports, science fairs: Education minister Samsudheen - Careers360"
+date: 2026-11-22 08:36:33 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxPc3RTY0pEeXY4QjRaZmRzMFpIb0NmZ1p4VzJYeng2RUx3WkdCRC1jejlBVjBYd0RkZzNpdzJyNXctcDlfc0dURE9mWlRpQmFwdkQ3V0RPRTJsWGFMX2tyQVcwUV84NXBjbm1PY3ZFaDJJSWkwRnNTZmFFcDdtQzZiUnhVTV91WUFEdDBlcHVoeXZVVnVIN1lvQmh3ODBTcW5iQVdrdzBkdXBmOF9nLUVIZjNqbnVwTUVf0gG-AUFVX3lxTE90d212UU5fUWRRNUYxR29UOThfNnhSQkduWWdkWHlEWWF2UGVVT09IWHVvbXNxclprUDhoVEJySVhKZDZPT29COGFGcHJDZFo0RjFNOGhHZk5IRHFrbmdTbWFWdGY0Qm9uaFFGaUxLWkVVWms5SEhPNlZxam1hU1l5bFd5T0xZMTA1UHlaeEU1b3RubGhLemdidFltYzduN1hQaGlZbmJZZWd6U19YaVlDWDdFWFdaT3gtaldBMWc?oc=5"
+---
+
+Keralam to revise manuals for school arts, sports, science fairs: Education minister Samsudheen Careers360
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxPc3RTY0pEeXY4QjRaZmRzMFpIb0NmZ1p4VzJYeng2RUx3WkdCRC1jejlBVjBYd0RkZzNpdzJyNXctcDlfc0dURE9mWlRpQmFwdkQ3V0RPRTJsWGFMX2tyQVcwUV84NXBjbm1PY3ZFaDJJSWkwRnNTZmFFcDdtQzZiUnhVTV91WUFEdDBlcHVoeXZVVnVIN1lvQmh3ODBTcW5iQVdrdzBkdXBmOF9nLUVIZjNqbnVwTUVf0gG-AUFVX3lxTE90d212UU5fUWRRNUYxR29UOThfNnhSQkduWWdkWHlEWWF2UGVVT09IWHVvbXNxclprUDhoVEJySVhKZDZPT29COGFGcHJDZFo0RjFNOGhHZk5IRHFrbmdTbWFWdGY0Qm9uaFFGaUxLWkVVWms5SEhPNlZxam1hU1l5bFd5T0xZMTA1UHlaeEU1b3RubGhLemdidFltYzduN1hQaGlZbmJZZWd6U19YaVlDWDdFWFdaT3gtaldBMWc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

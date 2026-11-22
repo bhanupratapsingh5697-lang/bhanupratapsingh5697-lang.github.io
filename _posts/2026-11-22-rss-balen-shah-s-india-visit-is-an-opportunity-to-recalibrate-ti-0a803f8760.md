@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Balen Shah's India Visit Is An Opportunity To Recalibrate Ties With Nepal - NDTV"
+date: 2026-11-22 11:43:42 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxOMnphTUxzRk9PQUcwaWFISUhaR1BKVlk5VHRTa2l3Rl9qWFlJOURuUWx0dE5EUF91bGJwZTRkdFpMTmxIekdMSVVOckJiUlJQbEdjWjhVN0Vranl3LUF6a3hBbHloZlhDZzRqcl9aQ3kxR1pGa1M3RDNYSjRDTUt4UmtYZG8wNFptYWJGWTAxaXlEQ21XMTd3VDdubHJQUUxTNzdacTczQlVKUTVlSnhz0gG3AUFVX3lxTE81RHBPbWFKUGsxaFdPX01sWksxeHVPcFV4MjFVMlowb1VjYjd5aHZ6MWxETzVLakQ4dFpfQnRERlU4VUxyQXo1UGlZNWpWMWVOZE52OGZEdUxjcS1rblVycF9QVFZtVTRsc1JJZ3VETHB4cDV3Z1FCUDVjMEUyODZtNU1oa3pSZE80ZDM0WDBRSlFpTE9RREtILWlURWRmVnc2ZWY4ZzV3SE9McnlSUE1ISzNnYmZvaw?oc=5"
+---
+
+Balen Shah's India Visit Is An Opportunity To Recalibrate Ties With Nepal NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxOMnphTUxzRk9PQUcwaWFISUhaR1BKVlk5VHRTa2l3Rl9qWFlJOURuUWx0dE5EUF91bGJwZTRkdFpMTmxIekdMSVVOckJiUlJQbEdjWjhVN0Vranl3LUF6a3hBbHloZlhDZzRqcl9aQ3kxR1pGa1M3RDNYSjRDTUt4UmtYZG8wNFptYWJGWTAxaXlEQ21XMTd3VDdubHJQUUxTNzdacTczQlVKUTVlSnhz0gG3AUFVX3lxTE81RHBPbWFKUGsxaFdPX01sWksxeHVPcFV4MjFVMlowb1VjYjd5aHZ6MWxETzVLakQ4dFpfQnRERlU4VUxyQXo1UGlZNWpWMWVOZE52OGZEdUxjcS1rblVycF9QVFZtVTRsc1JJZ3VETHB4cDV3Z1FCUDVjMEUyODZtNU1oa3pSZE80ZDM0WDBRSlFpTE9RREtILWlURWRmVnc2ZWY4ZzV3SE9McnlSUE1ISzNnYmZvaw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

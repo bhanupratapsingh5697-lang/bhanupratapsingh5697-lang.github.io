@@ -1,0 +1,17 @@
+---
+layout: post
+title: "BJP’s urban gains fail to win rural support in Rajasthan panchayat polls - The Hindu"
+date: 2026-11-21 14:55:16 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxOWkJWTlc2OS1BbVNVbmlnVFdKMTFjU3BSb0ZIQnNrMGJTYnl3YjV2OVBlZ2dmUzZhRzVwV2E2OGhQMXlfZXVLS3M1SXBKRkVMYTEwamRnNUZ6RGpmcWFDcG1OTmZvYXRWX2xLVmJ3eVY4ckpody1VUGtGZkdCUDFKSnJoeHZtZmx1RVR2UFdyaDJmbjBrLUpqSkcybExRbDhNM212R0RZeVlGRV9tc24wQW5ocF9scFRVekVlZVl2MUZZakMzR0lXT0xNYkZOckdBT3A0STdQWdIB3gFBVV95cUxOV2tzU0lBWm1mMnhVM3hzSnJYR3RSdVN2eEQxVERZUk1tN1pBZmdWNW5GUGZzWGNULXhlUHlkS2tNRnBLbjFsY0Z0S0tBWVJNdG5OSWQ1WFNXbDRIR29FVjFrSUZpVkVCajlfVXZueWFZQkVrWFZuQWlHWlZWOVRsa0ZwNWR3TV9uSW9VOTgtdmhjR1AyMlNxdV82ZXZOd1RuZU9CWjhTYUpYVmwwcEt5T1NXcDJzaTBtOWkxTkhYbC1pdUFUcFdmU1JPRUsteU5MUU54RkNCWldDVXhDcmc?oc=5"
+---
+
+BJP’s urban gains fail to win rural support in Rajasthan panchayat polls The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxOWkJWTlc2OS1BbVNVbmlnVFdKMTFjU3BSb0ZIQnNrMGJTYnl3YjV2OVBlZ2dmUzZhRzVwV2E2OGhQMXlfZXVLS3M1SXBKRkVMYTEwamRnNUZ6RGpmcWFDcG1OTmZvYXRWX2xLVmJ3eVY4ckpody1VUGtGZkdCUDFKSnJoeHZtZmx1RVR2UFdyaDJmbjBrLUpqSkcybExRbDhNM212R0RZeVlGRV9tc24wQW5ocF9scFRVekVlZVl2MUZZakMzR0lXT0xNYkZOckdBT3A0STdQWdIB3gFBVV95cUxOV2tzU0lBWm1mMnhVM3hzSnJYR3RSdVN2eEQxVERZUk1tN1pBZmdWNW5GUGZzWGNULXhlUHlkS2tNRnBLbjFsY0Z0S0tBWVJNdG5OSWQ1WFNXbDRIR29FVjFrSUZpVkVCajlfVXZueWFZQkVrWFZuQWlHWlZWOVRsa0ZwNWR3TV9uSW9VOTgtdmhjR1AyMlNxdV82ZXZOd1RuZU9CWjhTYUpYVmwwcEt5T1NXcDJzaTBtOWkxTkhYbC1pdUFUcFdmU1JPRUsteU5MUU54RkNCWldDVXhDcmc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

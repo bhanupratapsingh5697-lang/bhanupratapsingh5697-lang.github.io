@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Why India’s Public Policy schools need to rethink how they teach - The Hindu"
+date: 2026-11-22 11:00:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxPRnpkMVpubVMycF9TVm1wdHdOV2FFMUNNYjZBWHpGNVE5a01feFdOZm5YWk5Td19kb01PUnpVQXJOVjVwV2NkSHozdzRES1RnUnVmN0JnNEhWYXFQSlQ4SHd2NWxoQmZSMk9GLVA2cl91a0NHQS1Eb1VLSFNEZnVRZmxyUUdjVURpZ3c3SEx0UEpNUV84bnFUTXB4OEIyQnNDeHBpUkNUX2oxV0ZieUloUjNCWU1pVkdIRHfSAcABQVVfeXFMTk1uQTQxUHFlVWE2WlUwWVNLUUJWeE5tc2VrR0RmbGNHMVROVXhoamRpUHU5S0RreURVOE5ud044RHFiTnN1clFXVWE4a0huU2VrdXRIdWlfMzRUZ05TdVVSSHpULVBxVTlzSjZMa1N0dVZjY1JDdEpoLUloblNvSHBKU3RGX29iMEhHZm00S0M3alMzaTQ1YkZodmFnSHZ4MlY0dVpSemNxX0tlM3BfVWJOaHpxMVRBM2RtTWw0akRO?oc=5"
+---
+
+Why India’s Public Policy schools need to rethink how they teach The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxPRnpkMVpubVMycF9TVm1wdHdOV2FFMUNNYjZBWHpGNVE5a01feFdOZm5YWk5Td19kb01PUnpVQXJOVjVwV2NkSHozdzRES1RnUnVmN0JnNEhWYXFQSlQ4SHd2NWxoQmZSMk9GLVA2cl91a0NHQS1Eb1VLSFNEZnVRZmxyUUdjVURpZ3c3SEx0UEpNUV84bnFUTXB4OEIyQnNDeHBpUkNUX2oxV0ZieUloUjNCWU1pVkdIRHfSAcABQVVfeXFMTk1uQTQxUHFlVWE2WlUwWVNLUUJWeE5tc2VrR0RmbGNHMVROVXhoamRpUHU5S0RreURVOE5ud044RHFiTnN1clFXVWE4a0huU2VrdXRIdWlfMzRUZ05TdVVSSHpULVBxVTlzSjZMa1N0dVZjY1JDdEpoLUloblNvSHBKU3RGX29iMEhHZm00S0M3alMzaTQ1YkZodmFnSHZ4MlY0dVpSemNxX0tlM3BfVWJOaHpxMVRBM2RtTWw0akRO?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

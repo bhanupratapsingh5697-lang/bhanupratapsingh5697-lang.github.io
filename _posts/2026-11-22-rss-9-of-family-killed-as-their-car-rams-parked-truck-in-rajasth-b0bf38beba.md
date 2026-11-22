@@ -1,0 +1,17 @@
+---
+layout: post
+title: "9 of family killed as their car rams parked truck in Rajasthan - Rediff"
+date: 2026-11-22 11:11:30 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxOT1RnVFN5a2lERHo4R3lhMnJ4ZVlUendhd21DMG5pa3ZnLUpVZUJ1ajRDUWc0MjRJRXl0cThzeU9oWVVmeVRlU2toZGpIM29NYmhTd1I4NFZxalY3ZTBSR01aWGhNMDJKRFZXQVBwXzZtUnF4aTlZcUVrQnlBc1VHZEhEaEZIb1p1U2dXd0lzVWhNQmd3WGQ5VVREVS1PT2p3ZkM5LWcySUZJRmJhVFlv0gGyAUFVX3lxTE5JUHFFQ1R6MXJxS01SZExCLWFqa2lnaFg5MEJlTDhsWVVQSVE1NDQ5Sm5HY3pCZUh6OWVROFVsT0paYVhGZE9KLUJlbGhzX3Y3Sy10QWRIVVJLdnZ1Q2doQjNNTWF5cF9VZ2sxU2JCSHpQQU9wV3lVZy1XVWUzUTZxeVJNSVVNSlFaOGx4MGNmV2FFSHdXSXYxa0hKN3ZDQmxIZ2lKMGR4emhJNER3VENOdHc?oc=5"
+---
+
+9 of family killed as their car rams parked truck in Rajasthan Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxOT1RnVFN5a2lERHo4R3lhMnJ4ZVlUendhd21DMG5pa3ZnLUpVZUJ1ajRDUWc0MjRJRXl0cThzeU9oWVVmeVRlU2toZGpIM29NYmhTd1I4NFZxalY3ZTBSR01aWGhNMDJKRFZXQVBwXzZtUnF4aTlZcUVrQnlBc1VHZEhEaEZIb1p1U2dXd0lzVWhNQmd3WGQ5VVREVS1PT2p3ZkM5LWcySUZJRmJhVFlv0gGyAUFVX3lxTE5JUHFFQ1R6MXJxS01SZExCLWFqa2lnaFg5MEJlTDhsWVVQSVE1NDQ5Sm5HY3pCZUh6OWVROFVsT0paYVhGZE9KLUJlbGhzX3Y3Sy10QWRIVVJLdnZ1Q2doQjNNTWF5cF9VZ2sxU2JCSHpQQU9wV3lVZy1XVWUzUTZxeVJNSVVNSlFaOGx4MGNmV2FFSHdXSXYxa0hKN3ZDQmxIZ2lKMGR4emhJNER3VENOdHc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

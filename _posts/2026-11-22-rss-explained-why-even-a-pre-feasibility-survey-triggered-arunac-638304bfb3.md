@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Explained: Why Even A Pre-Feasibility Survey Triggered Arunachal Anti-Dam Protest - NDTV"
+date: 2026-11-22 10:01:43 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxNSzNORnFFZGU4cEY0VGo5QmI4VDZzZnJKVURveGF1RzEzWjRLU1NqcXA5aWpkSEFoR0RCWVpCMVNyU2cwYnEwNHhhV2xQLU1FZHhzR3FXUDJISDFqdmkwUGtQYWg4Rm1BZG9NMU9adFRRNXFSd1o0TmhGV3NyRmNHXzVja25OeVBYMnpORFhKZGJHRmg0NHZQcGRfTWtJWVJWc2taRlR1a2hlbFc5WElIWUtRaWVMTWFiTDQtU3lvUWVNVlZsTDNIUtIB0AFBVV95cUxQbTJfcENidEJQRFp3a2wzZUw5M0hkTU1vakVSS0xQcFJtajRlUkU4bUhpQkxPNHZoMEZqV21xb0oyaW1LUUItNS1tcFc4eEU4UlpxeUlhMUlnNEllTDFuemhfV1VHWmd2bmVnLU55UG1EQm5wSkJvMWo5UFJrN09sWDFySUJaZU5mRGpNWTFoUEZPckdvQUhOMk15dkdDMkxQbnI2Y0NYUUxHdU5ZVzdEd1kwOE8wOEJmNWQ0SFFiTnMwRUpmZ1lLVTFVNGlSZDlh?oc=5"
+---
+
+Explained: Why Even A Pre-Feasibility Survey Triggered Arunachal Anti-Dam Protest NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNSzNORnFFZGU4cEY0VGo5QmI4VDZzZnJKVURveGF1RzEzWjRLU1NqcXA5aWpkSEFoR0RCWVpCMVNyU2cwYnEwNHhhV2xQLU1FZHhzR3FXUDJISDFqdmkwUGtQYWg4Rm1BZG9NMU9adFRRNXFSd1o0TmhGV3NyRmNHXzVja25OeVBYMnpORFhKZGJHRmg0NHZQcGRfTWtJWVJWc2taRlR1a2hlbFc5WElIWUtRaWVMTWFiTDQtU3lvUWVNVlZsTDNIUtIB0AFBVV95cUxQbTJfcENidEJQRFp3a2wzZUw5M0hkTU1vakVSS0xQcFJtajRlUkU4bUhpQkxPNHZoMEZqV21xb0oyaW1LUUItNS1tcFc4eEU4UlpxeUlhMUlnNEllTDFuemhfV1VHWmd2bmVnLU55UG1EQm5wSkJvMWo5UFJrN09sWDFySUJaZU5mRGpNWTFoUEZPckdvQUhOMk15dkdDMkxQbnI2Y0NYUUxHdU5ZVzdEd1kwOE8wOEJmNWQ0SFFiTnMwRUpmZ1lLVTFVNGlSZDlh?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

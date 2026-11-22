@@ -1,0 +1,17 @@
+---
+layout: post
+title: "‘India needs foreign capital, not opaque funds’: Congress questions SEBI move to dilute disclosure rules - Telegraph India"
+date: 2026-11-22 11:09:51 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4wFBVV95cUxPNURndjIyVmNmb2ZfUUNfa0xrcTVvenZjVnQ1bUpJQVJzdkM5RllWVmlZa05yWEdHX3M2LUlBcEhqMmVfM2VfcUx1RDVLWThKcFlIZ0s2ZE0zSE5VWFhkZVVZQjdpTUktM1FzSDJvQTNqZmpVWnFGVFJ5aG1CU3VsQkpsWDdaUXBUN1pTS3FTcG9KMS1CUlJhVFl2UjZWUnBqcnkzMGZQUFZyNW9hdjBqVXU1YklpN0VNUlJ1RmtSYTdLUGhmcEZiLXZITFFQLXpvTVRTNTMzeE85Vm1TUjBsNmJlVdIB6AFBVV95cUxNMGIzeTdleXk2b3NVNkFXelZtN2VPdzdySkJpUl9RVng1c1pTU2l6cEtlMEJGU0lmclh1ZnNocWRQTTJSRzJHcHpKbVdoYlNRY3Zwa3EtS2F6T0VHLTJtUDFPNE42blZJczdna09MUExfOHhrdkJiUVVubmZ2ZklmXzd1bVZLVnJ1WjktQ1EweDA1VlBreHBzT3VRXzQweUVwWHlCeTR4RF9DNzl2c3lwN3pXX013NUVZM3o3Vi1RaWFleFJTZ0FMRGNCY0VNQlJhOGViNGJST3c3THNVZUp1WkJKeUd2QnVF?oc=5"
+---
+
+‘India needs foreign capital, not opaque funds’: Congress questions SEBI move to dilute disclosure rules Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4wFBVV95cUxPNURndjIyVmNmb2ZfUUNfa0xrcTVvenZjVnQ1bUpJQVJzdkM5RllWVmlZa05yWEdHX3M2LUlBcEhqMmVfM2VfcUx1RDVLWThKcFlIZ0s2ZE0zSE5VWFhkZVVZQjdpTUktM1FzSDJvQTNqZmpVWnFGVFJ5aG1CU3VsQkpsWDdaUXBUN1pTS3FTcG9KMS1CUlJhVFl2UjZWUnBqcnkzMGZQUFZyNW9hdjBqVXU1YklpN0VNUlJ1RmtSYTdLUGhmcEZiLXZITFFQLXpvTVRTNTMzeE85Vm1TUjBsNmJlVdIB6AFBVV95cUxNMGIzeTdleXk2b3NVNkFXelZtN2VPdzdySkJpUl9RVng1c1pTU2l6cEtlMEJGU0lmclh1ZnNocWRQTTJSRzJHcHpKbVdoYlNRY3Zwa3EtS2F6T0VHLTJtUDFPNE42blZJczdna09MUExfOHhrdkJiUVVubmZ2ZklmXzd1bVZLVnJ1WjktQ1EweDA1VlBreHBzT3VRXzQweUVwWHlCeTR4RF9DNzl2c3lwN3pXX013NUVZM3o3Vi1RaWFleFJTZ0FMRGNCY0VNQlJhOGViNGJST3c3THNVZUp1WkJKeUd2QnVF?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

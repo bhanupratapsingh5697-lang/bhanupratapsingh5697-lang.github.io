@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Nine family members from Maharashtra killed in a vehicle crash in Rajasthan's Kota - India Today - India Today"
+date: 2026-11-22 09:07:56 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxNWldkRXdLaHVUa2FXRWUxZzUyTUxsa2R3Ul8wbEp1UXhMZ2ZFRXhWd1I4SU1GcWhiSldkaWxOTU5XYkt1bjJEN1JCemJDaUdfUG5tOHFtSWYxUVktQU5MVUxTa3I1N0NISjhlX2gyc3UyQmNiRTZoVmUxMUNkUUtveWNxeUN1Y1NlejlLMXhKYzVEZ3JZbndmZFoyNmpZZEVBeUpfTUQ1dktwY0lod1lHcjlQb1lrS3lhdXBPWkcxSnlIbDhHUlHSAcsBQVVfeXFMT1k1Q3lHWkh0SjJZN1VhUk9Jbm1XRTdILTFBN01ZU0E5UW5XRGdmbWU0MjE1ZEZMWjZrR3R3Y2JzVUphX1NkNzN0ZllmaUxOZ240VzdiX0FDMGtKcnBlZWx2OHJHWDJ0Q0FIWnlERmpub3hNNkxaYW1PV1J3bDVwb2dFNDRYOG9RclFwWDVOdDlpVVQyY3VJVDBvOXAzT2k5UG4wbWJYdEF6b09WbkpwR2g1M1UzUUpYSFczbFJSZTRxSmZiWFlpcUFPaFE?oc=5"
+---
+
+Nine family members from Maharashtra killed in a vehicle crash in Rajasthan's Kota - India Today India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxNWldkRXdLaHVUa2FXRWUxZzUyTUxsa2R3Ul8wbEp1UXhMZ2ZFRXhWd1I4SU1GcWhiSldkaWxOTU5XYkt1bjJEN1JCemJDaUdfUG5tOHFtSWYxUVktQU5MVUxTa3I1N0NISjhlX2gyc3UyQmNiRTZoVmUxMUNkUUtveWNxeUN1Y1NlejlLMXhKYzVEZ3JZbndmZFoyNmpZZEVBeUpfTUQ1dktwY0lod1lHcjlQb1lrS3lhdXBPWkcxSnlIbDhHUlHSAcsBQVVfeXFMT1k1Q3lHWkh0SjJZN1VhUk9Jbm1XRTdILTFBN01ZU0E5UW5XRGdmbWU0MjE1ZEZMWjZrR3R3Y2JzVUphX1NkNzN0ZllmaUxOZ240VzdiX0FDMGtKcnBlZWx2OHJHWDJ0Q0FIWnlERmpub3hNNkxaYW1PV1J3bDVwb2dFNDRYOG9RclFwWDVOdDlpVVQyY3VJVDBvOXAzT2k5UG4wbWJYdEF6b09WbkpwR2g1M1UzUUpYSFczbFJSZTRxSmZiWFlpcUFPaFE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
