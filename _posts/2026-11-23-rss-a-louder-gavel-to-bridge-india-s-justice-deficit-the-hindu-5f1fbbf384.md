@@ -1,0 +1,17 @@
+---
+layout: post
+title: "A louder gavel to bridge India’s justice deficit - The Hindu"
+date: 2026-11-23 00:16:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxNZWhzQnNRTU9ZVlFzTXp4NmJzWWpwMFYxS1Z6TGtkVXY1a2ZMX0RBVG5NSzItR2xZREFQSW1rNmhwYjRUamczWmNHRnhzd0lIS1FTb0NuWDlRQkVwaDhGT3RDUFg1ZHpLVk5KU20wQUwwZkRsRnFFSGdHR2g2SFhpMExDemsyYUdKTmtFZnB2SUJaTzVzdjlKN1lDbmd5dFhUd2xWVnVDWnfSAa8BQVVfeXFMUEp3WjcySW5XUGtrUXRvTEo0eFhLNndNMlNsRTNHcnhYd05tMXFjblAxM2t4S2NFTGxaYklBZGsxSzBzUFlRYXVCS2lFZ0x3UTA3Qm5XRFlxOTBDanQzdG1uLVBYbU5zaFVSRF82UWdWd1hNN2prcmhhbmVsTTVPTWpfRmFrU000YXlqTGJBWWlfNlZWYU0tTE4xY1dpSml2RTlrQlh0OGpwNTRWbjNacw?oc=5"
+---
+
+A louder gavel to bridge India’s justice deficit The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNZWhzQnNRTU9ZVlFzTXp4NmJzWWpwMFYxS1Z6TGtkVXY1a2ZMX0RBVG5NSzItR2xZREFQSW1rNmhwYjRUamczWmNHRnhzd0lIS1FTb0NuWDlRQkVwaDhGT3RDUFg1ZHpLVk5KU20wQUwwZkRsRnFFSGdHR2g2SFhpMExDemsyYUdKTmtFZnB2SUJaTzVzdjlKN1lDbmd5dFhUd2xWVnVDWnfSAa8BQVVfeXFMUEp3WjcySW5XUGtrUXRvTEo0eFhLNndNMlNsRTNHcnhYd05tMXFjblAxM2t4S2NFTGxaYklBZGsxSzBzUFlRYXVCS2lFZ0x3UTA3Qm5XRFlxOTBDanQzdG1uLVBYbU5zaFVSRF82UWdWd1hNN2prcmhhbmVsTTVPTWpfRmFrU000YXlqTGJBWWlfNlZWYU0tTE4xY1dpSml2RTlrQlh0OGpwNTRWbjNacw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

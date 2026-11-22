@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Stats - Pant's six-feast in India's highest away Test total - Cricinfo"
+date: 2026-11-22 10:48:26 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxOU3FJZWZkMFYzLVFHSHdPZUFEYndKQlFnUFhab0pQTnBrNERYclg1RzhacnY0VFNwdlJYakx5MXlONFRYdEUwY2xyYmF0OTJmcVdkU1JMR193cXpIWFZEU2k0ZVNXUnViOVlTSEtIT2x3ZlRRdmhCdEpweW1mTGhIYmpZVnJrQnlXREdSUjBYblByTWl2R0tYRlVvSllqNWVJVTdzYTFVY3JiMGp2NlRqLWtSLVFDbWhMTkhXOG81SHFQXzFfbjBpamphclp0VnZBakJPNdIB5gFBVV95cUxPc0VWeDZka1p5alVsRGtMRGs3OVlDaF9pRGJqbnNRaHBoZ3p6OUxqeWVQOVlrYW1ZZ3oxZ3lUMjdzdkQtU3pCRFJieW15N3pfUGEycVJ6OUN0UXFfd2lSR1N1aDlwSDVDRmZNTjRFdzFZU0x5cXk2Q1lnUzlFLXNZbWwtNy1Md3F4NWNINFFhUzF0UDFOSnRZcHNRc0xWc3laUS04Z1VqVGxYdkZMZm9YbXEtQmFlUEpkVXZpV2p1SG5LTmFkd2xEblFTWGM5R2RQMi0xcWVRR3Z2dGN1NHFUcDY0UXNMUQ?oc=5"
+---
+
+Stats - Pant's six-feast in India's highest away Test total Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxOU3FJZWZkMFYzLVFHSHdPZUFEYndKQlFnUFhab0pQTnBrNERYclg1RzhacnY0VFNwdlJYakx5MXlONFRYdEUwY2xyYmF0OTJmcVdkU1JMR193cXpIWFZEU2k0ZVNXUnViOVlTSEtIT2x3ZlRRdmhCdEpweW1mTGhIYmpZVnJrQnlXREdSUjBYblByTWl2R0tYRlVvSllqNWVJVTdzYTFVY3JiMGp2NlRqLWtSLVFDbWhMTkhXOG81SHFQXzFfbjBpamphclp0VnZBakJPNdIB5gFBVV95cUxPc0VWeDZka1p5alVsRGtMRGs3OVlDaF9pRGJqbnNRaHBoZ3p6OUxqeWVQOVlrYW1ZZ3oxZ3lUMjdzdkQtU3pCRFJieW15N3pfUGEycVJ6OUN0UXFfd2lSR1N1aDlwSDVDRmZNTjRFdzFZU0x5cXk2Q1lnUzlFLXNZbWwtNy1Md3F4NWNINFFhUzF0UDFOSnRZcHNRc0xWc3laUS04Z1VqVGxYdkZMZm9YbXEtQmFlUEpkVXZpV2p1SG5LTmFkd2xEblFTWGM5R2RQMi0xcWVRR3Z2dGN1NHFUcDY0UXNMUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

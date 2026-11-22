@@ -1,0 +1,17 @@
+---
+layout: post
+title: "CS Sajjan Singh Yadav Assesses Sports Infrastructure, Training Facilities In Jammu - Daily Excelsior"
+date: 2026-11-22 17:51:31 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxQODdSLW1VNHhoMGpUTlB4Tks5V0xYZi1JZXM4d3dyNHlpMEpzSGVmOF9INVFQdmJySXNSSUNUYWpfdVpMU0g1RjVqYlYyYVljUUdnY1M4YUU1OVU3eEpmVTJONjQ0aEVEbURJS3o3X1lDNEl2eWtkUXFaYjNwcVdaa0x4Zk1tLXMyUXRsYlI0cWF0ZndEMy1qWWF4VWFKOEpzS1JJUUgwcl9ocWtGTzQ4RTFTONIBtwFBVV95cUxPd29DYVBUN2lTU2xPTlhQczllME5YS1VqdnAxRm1zODJWYkxHWHp2S2JCMFZZTENtQVJxQTB4X0p3OC1uTnJHNk5TcGVFdHJIR0NEX2NkeGpGUUxiNXRVd2lRRUhmNzlmZEV6M3FiUTA4QWZ2SGZ2Q2pIVC1vWUJhMUVCVGVDd0xQajRDcDdEcmFSdktnQlF2WXdNUkQ2RHUzaWU0eVU5b1JySlJJbXVTaHFvUEtrM1U?oc=5"
+---
+
+CS Sajjan Singh Yadav Assesses Sports Infrastructure, Training Facilities In Jammu Daily Excelsior
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxQODdSLW1VNHhoMGpUTlB4Tks5V0xYZi1JZXM4d3dyNHlpMEpzSGVmOF9INVFQdmJySXNSSUNUYWpfdVpMU0g1RjVqYlYyYVljUUdnY1M4YUU1OVU3eEpmVTJONjQ0aEVEbURJS3o3X1lDNEl2eWtkUXFaYjNwcVdaa0x4Zk1tLXMyUXRsYlI0cWF0ZndEMy1qWWF4VWFKOEpzS1JJUUgwcl9ocWtGTzQ4RTFTONIBtwFBVV95cUxPd29DYVBUN2lTU2xPTlhQczllME5YS1VqdnAxRm1zODJWYkxHWHp2S2JCMFZZTENtQVJxQTB4X0p3OC1uTnJHNk5TcGVFdHJIR0NEX2NkeGpGUUxiNXRVd2lRRUhmNzlmZEV6M3FiUTA4QWZ2SGZ2Q2pIVC1vWUJhMUVCVGVDd0xQajRDcDdEcmFSdktnQlF2WXdNUkQ2RHUzaWU0eVU5b1JySlJJbXVTaHFvUEtrM1U?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

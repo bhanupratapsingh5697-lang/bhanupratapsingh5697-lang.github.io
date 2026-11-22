@@ -1,0 +1,17 @@
+---
+layout: post
+title: "IND vs NZ 1st Test Day 4: Jurel sees chance for India despite slowing Basin Reserve pitch - The Hindu"
+date: 2026-11-22 14:57:56 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4AFBVV95cUxPTnVJdlI1T20tWVlyeU56RGtMLTVETEZwYlg5WDh5TDNaYnlJTVVld05YOHJ0MFZ3UXcybkUyX0VySllUNUphX3hLUEhud3Rfd3VxbjZMTS1BV21KeFl2Tmo1N0RxNWxuNFk2bHA0anVncDlISUN4dk56eDE0eC01R0tiejdrYkp2MG9MbjlZandWaVVMUHplaXJYdE10Y1dpcF9vcG5UMjdrV2dsNGRCN19vQzNSeVJObEhUcTNQc3dxeUpSN05tdHFtZkFvVW5mNEdEaGE2dlU5eEh3Y2V6SNIB5wFBVV95cUxOeW52Y1o4cnZLNmM2MUhWeGtubGxqVWhXcDdWbVN6TGl3eWtQU2dNbTNDaWRSTF9EbXJ5ZHJ1UlYtNEFqcUpUY2g0a2FCbTZHRjl2Wk9uSW40SEZCeWZLUnFKQnU1Q3BudHc2NkxoTF9oWEFhZ0w2bEJHckRxdW9vSXczb1RDUlAwVW1xVVhoem9PYWFab19TZlB4T2ZXNXJsdHljMmx5NFEzdk9iM2VJOTIxcUlDNzVScmhuRXJ3ZDViS2IyeVo5aGdoSUY4T1NXWkgzeU1pbWVUMU00YTM3RUZ4VE1RaUE?oc=5"
+---
+
+IND vs NZ 1st Test Day 4: Jurel sees chance for India despite slowing Basin Reserve pitch The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4AFBVV95cUxPTnVJdlI1T20tWVlyeU56RGtMLTVETEZwYlg5WDh5TDNaYnlJTVVld05YOHJ0MFZ3UXcybkUyX0VySllUNUphX3hLUEhud3Rfd3VxbjZMTS1BV21KeFl2Tmo1N0RxNWxuNFk2bHA0anVncDlISUN4dk56eDE0eC01R0tiejdrYkp2MG9MbjlZandWaVVMUHplaXJYdE10Y1dpcF9vcG5UMjdrV2dsNGRCN19vQzNSeVJObEhUcTNQc3dxeUpSN05tdHFtZkFvVW5mNEdEaGE2dlU5eEh3Y2V6SNIB5wFBVV95cUxOeW52Y1o4cnZLNmM2MUhWeGtubGxqVWhXcDdWbVN6TGl3eWtQU2dNbTNDaWRSTF9EbXJ5ZHJ1UlYtNEFqcUpUY2g0a2FCbTZHRjl2Wk9uSW40SEZCeWZLUnFKQnU1Q3BudHc2NkxoTF9oWEFhZ0w2bEJHckRxdW9vSXczb1RDUlAwVW1xVVhoem9PYWFab19TZlB4T2ZXNXJsdHljMmx5NFEzdk9iM2VJOTIxcUlDNzVScmhuRXJ3ZDViS2IyeVo5aGdoSUY4T1NXWkgzeU1pbWVUMU00YTM3RUZ4VE1RaUE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

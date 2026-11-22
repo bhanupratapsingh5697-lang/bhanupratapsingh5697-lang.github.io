@@ -1,0 +1,17 @@
+---
+layout: post
+title: "No votes, no lights? Rajasthan candidate removes street lamps after poll defeat - India Today"
+date: 2026-11-22 14:13:35 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxPOGxyY1VNc2RfdENyeElKbXM2WkdEcGVxR0FFM2pDZzd0Zm5ha3RqclR3NzlsWnFKbjUxSTRDTlF2Z3RSZ3hHM2hMTUxMTkxBZ3NJOHB1eG1MTzZYY0I4bV9SWHRJcnRsNjExYV91cFdLREVnVFhqc3hvMmpCc0xRSEZscGFjRWY2eWxGV19uZ1NzY0FOWXR5ZG5XVE1VWWxvR25PMHNDZUJLVHg3WjNVb0YzcDliY1M5NC1RWUJZZFdPSHdJZkZjd3ItZkdZNERFYUU0dtIB2gFBVV95cUxPaE1ydmphejBiY25OMkxqUURIT3BEcmlvR0VRVDBHY3pYSmg4azdtRmk4TU5IMGNTNEJScUNOSEwzVFRZOUF5Z0xhZW94U2tMVFdlMnNzaEYzeGFkRnpEekxWNzdQVUhjbDJHLVZtNUR3V1FycGJhOTlwSXRpZjF1MVRXX0E2MHNkc3dieXJwQUtHZ1hFRWZCX2RyUlBFRm0tRTdCdFVPaW5xREg4bzVIN0Y3TlZ1dTVpVHJaWVltZlM5S3BVTGtxSTdVNGZPNHJNUGRIV2pqU2tvQQ?oc=5"
+---
+
+No votes, no lights? Rajasthan candidate removes street lamps after poll defeat India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPOGxyY1VNc2RfdENyeElKbXM2WkdEcGVxR0FFM2pDZzd0Zm5ha3RqclR3NzlsWnFKbjUxSTRDTlF2Z3RSZ3hHM2hMTUxMTkxBZ3NJOHB1eG1MTzZYY0I4bV9SWHRJcnRsNjExYV91cFdLREVnVFhqc3hvMmpCc0xRSEZscGFjRWY2eWxGV19uZ1NzY0FOWXR5ZG5XVE1VWWxvR25PMHNDZUJLVHg3WjNVb0YzcDliY1M5NC1RWUJZZFdPSHdJZkZjd3ItZkdZNERFYUU0dtIB2gFBVV95cUxPaE1ydmphejBiY25OMkxqUURIT3BEcmlvR0VRVDBHY3pYSmg4azdtRmk4TU5IMGNTNEJScUNOSEwzVFRZOUF5Z0xhZW94U2tMVFdlMnNzaEYzeGFkRnpEekxWNzdQVUhjbDJHLVZtNUR3V1FycGJhOTlwSXRpZjF1MVRXX0E2MHNkc3dieXJwQUtHZ1hFRWZCX2RyUlBFRm0tRTdCdFVPaW5xREg4bzVIN0Y3TlZ1dTVpVHJaWVltZlM5S3BVTGtxSTdVNGZPNHJNUGRIV2pqU2tvQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

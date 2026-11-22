@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan BJP Chief Takes Responsibility For Panchayat Poll Defeat - NDTV"
+date: 2026-11-22 19:05:25 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdDRUYmVRdXgxSW1aYjVKVVRMblZxeThyYzhMMXVvNGJiN2lKclVZaktYLTNGMndONVc4ei1RTVZlaUFickttVnN5Q1pUODNnbzRFNEtZS20tNjgyaUVtN3JGQURXQ29wU0U0OTRUY0F1RXVNRUJmeEpjX21MU3p4ZFdOUDdRM2dOakRBR0FLdDQ1WUk0Ym9GOG9jNWNEM3djeW91OVlCYTdHWFHSAbMBQVVfeXFMTmFhWEtRaTE1WTd2TVB3d1I3RTJrT003SWxBWWVWYjBmSTd1WmNSLVNiWmtnZGpXYTlxMXh6SkZkVENSWFNncnpCUVRzUmwxNC1JZUNxc0dDaE8xQjh4bDRSZ0JXeEROZjUxMUZ6MlRfSG9PSFhzbGhEQmtNdWRTaEt5NmpNXzNJUWg0TVRVVDBIUkJyOGNtU29pRjFjQ3hfRWx2N1FPZFlmUTUtNzZUc0JDWnc?oc=5"
+---
+
+Rajasthan BJP Chief Takes Responsibility For Panchayat Poll Defeat NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQdDRUYmVRdXgxSW1aYjVKVVRMblZxeThyYzhMMXVvNGJiN2lKclVZaktYLTNGMndONVc4ei1RTVZlaUFickttVnN5Q1pUODNnbzRFNEtZS20tNjgyaUVtN3JGQURXQ29wU0U0OTRUY0F1RXVNRUJmeEpjX21MU3p4ZFdOUDdRM2dOakRBR0FLdDQ1WUk0Ym9GOG9jNWNEM3djeW91OVlCYTdHWFHSAbMBQVVfeXFMTmFhWEtRaTE1WTd2TVB3d1I3RTJrT003SWxBWWVWYjBmSTd1WmNSLVNiWmtnZGpXYTlxMXh6SkZkVENSWFNncnpCUVRzUmwxNC1JZUNxc0dDaE8xQjh4bDRSZ0JXeEROZjUxMUZ6MlRfSG9PSFhzbGhEQmtNdWRTaEt5NmpNXzNJUWg0TVRVVDBIUkJyOGNtU29pRjFjQ3hfRWx2N1FPZFlmUTUtNzZUc0JDWnc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

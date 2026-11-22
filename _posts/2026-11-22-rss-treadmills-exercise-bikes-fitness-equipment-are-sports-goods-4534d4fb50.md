@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Treadmills, Exercise Bikes & Fitness Equipment Are ‘Sports Goods’ Exempt Under UP VAT Notification:... - Verdictum"
+date: 2026-11-22 17:30:37 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxOMWNIbnBaSjliNWtWZS1sYkxRYXg5MWxTMUZaSFRVTU1makFvbTVCak5peDE0LTZRU3pvTXVMYmZ1RU5telNURWh0ckZHMkM0ZjdNdTlBT0ZLVmdkT1ZaZzRmeVlTd0dpcm5lREhBT0ZkMS1xZzRaRDVtNkNjb29TOEJWbjNrWlVISUtWRzU4RDliTGE0YkdoT2YwUF9Vcm5ob2hDYmZadUtLaGxUWE5GNEhySXlzVlNTOWx6MmU3V09hdFJ0VWfSAcsBQVVfeXFMTmM2OW9lZmRPclJXNnFRdjRmNXpPQ0ZDYmdoVUd4ck9YdFBZazlaRVQ2SHgwZzNVWjZkcHhWV3ZyNnhpWnBZLWpZa0ZVRDZwamNWMjlzUkZtQU5GSXVhbzRqV2ZmTW1iTThWYk9Rcno3Uk5JMG9xQ1VuWTZlX3dEUndoSG1IU1ZLa05PdFZwRE95QUx0cUhWQ0lSXzZkaGc5WS1CSEpPbUIyamRhT2x1dVJLc0xsTGxFeVdpVUxHSHJHcUpYNmh5QzFPZHM?oc=5"
+---
+
+Treadmills, Exercise Bikes & Fitness Equipment Are ‘Sports Goods’ Exempt Under UP VAT Notification:... Verdictum
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxOMWNIbnBaSjliNWtWZS1sYkxRYXg5MWxTMUZaSFRVTU1makFvbTVCak5peDE0LTZRU3pvTXVMYmZ1RU5telNURWh0ckZHMkM0ZjdNdTlBT0ZLVmdkT1ZaZzRmeVlTd0dpcm5lREhBT0ZkMS1xZzRaRDVtNkNjb29TOEJWbjNrWlVISUtWRzU4RDliTGE0YkdoT2YwUF9Vcm5ob2hDYmZadUtLaGxUWE5GNEhySXlzVlNTOWx6MmU3V09hdFJ0VWfSAcsBQVVfeXFMTmM2OW9lZmRPclJXNnFRdjRmNXpPQ0ZDYmdoVUd4ck9YdFBZazlaRVQ2SHgwZzNVWjZkcHhWV3ZyNnhpWnBZLWpZa0ZVRDZwamNWMjlzUkZtQU5GSXVhbzRqV2ZmTW1iTThWYk9Rcno3Uk5JMG9xQ1VuWTZlX3dEUndoSG1IU1ZLa05PdFZwRE95QUx0cUhWQ0lSXzZkaGc5WS1CSEpPbUIyamRhT2x1dVJLc0xsTGxFeVdpVUxHSHJHcUpYNmh5QzFPZHM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

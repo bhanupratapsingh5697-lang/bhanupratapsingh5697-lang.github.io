@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'This is new India's response': BJP takes swipe at Pakistan over its minister's applause at Purana Qila - The Times of India"
+date: 2026-11-22 15:20:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi-gFBVV95cUxQVWlPRVJ1cDZJM01qSm5WcVRqc0QwZXpmc0dSVDFwMjViazdpc2s1MEFIS1NwM3B0V2dBcmZBYndjNzZvNUpRX0VXVDVxYkFqUFpfNXdWUE5BRWRpTXFqczRXQ1dYWmRwSFA4STE3U1cwRk5vN0psRTVVNElEOVRiclV3MXA1d0c2dUVfTVNYVFU1c3dvTHNVVERfby1RVFJodlRaRVVUNVJvd2tEVmJVMV9QRFZqMDItYTdKMlBCMUpiYnRxUFZyeGZEak10Q0lZN0FqWGRIajkxb2pyV3pmYm11LVJjS0lOOTIxZ3N2S3F5LTZES1NUZlR30gH_AUFVX3lxTE0wSFBkTzhNSFA1RXFFSEtELVdJQVowdlFCaTdVcElqcjlXTVduLW1GajhvakZfMUg4al83N1F3RVZhdTUzckdqaGtPUlU3Q3VrSmhqa2VmYjgwUG5XYU1oc2VPRm1fM0NHRkU3QU80Si00NVp1bGhMLXh4S1pOZGZycWUxRDRMMWs3djl0Z2F4Qnp1eVN3elJSdGdsaUwtZlFxeGNDcDJ3WDdpQXE0bmh2cE9sb0RvaVZFYXRDMzN3SU51TG1DV1JKdlZXOVV4SG9fc05XNmtGTlIxc09KOUpGanpSeEpEOEV0ZWk1LUhiNkRDVFBoUGhfWHBDdVNJZw?oc=5"
+---
+
+'This is new India's response': BJP takes swipe at Pakistan over its minister's applause at Purana Qila The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi-gFBVV95cUxQVWlPRVJ1cDZJM01qSm5WcVRqc0QwZXpmc0dSVDFwMjViazdpc2s1MEFIS1NwM3B0V2dBcmZBYndjNzZvNUpRX0VXVDVxYkFqUFpfNXdWUE5BRWRpTXFqczRXQ1dYWmRwSFA4STE3U1cwRk5vN0psRTVVNElEOVRiclV3MXA1d0c2dUVfTVNYVFU1c3dvTHNVVERfby1RVFJodlRaRVVUNVJvd2tEVmJVMV9QRFZqMDItYTdKMlBCMUpiYnRxUFZyeGZEak10Q0lZN0FqWGRIajkxb2pyV3pmYm11LVJjS0lOOTIxZ3N2S3F5LTZES1NUZlR30gH_AUFVX3lxTE0wSFBkTzhNSFA1RXFFSEtELVdJQVowdlFCaTdVcElqcjlXTVduLW1GajhvakZfMUg4al83N1F3RVZhdTUzckdqaGtPUlU3Q3VrSmhqa2VmYjgwUG5XYU1oc2VPRm1fM0NHRkU3QU80Si00NVp1bGhMLXh4S1pOZGZycWUxRDRMMWs3djl0Z2F4Qnp1eVN3elJSdGdsaUwtZlFxeGNDcDJ3WDdpQXE0bmh2cE9sb0RvaVZFYXRDMzN3SU51TG1DV1JKdlZXOVV4SG9fc05XNmtGTlIxc09KOUpGanpSeEpEOEV0ZWk1LUhiNkRDVFBoUGhfWHBDdVNJZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

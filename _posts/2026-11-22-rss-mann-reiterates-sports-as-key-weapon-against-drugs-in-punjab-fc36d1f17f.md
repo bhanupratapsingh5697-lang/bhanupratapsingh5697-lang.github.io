@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Mann Reiterates Sports As Key Weapon Against Drugs In Punjab - Rediff"
+date: 2026-11-22 21:26:10 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxNM01Tb3NENTQ3cHZteWhoX3pmMm5xY0tONjVXcWlvcExqQUZlMkNBNmppTUNXTV9tUUVUSlFvMXNvNzZ6RjlaNTRfQUN3ckV6bnpJMGxBX2ZKa3l4X0ZzRXh4a1VTN1ZPNzhpQjkyZGJhUlVmMHFnbExPX0hRSVpzQ00wX3Nma1dBOFhCYkdvMWxKNTBDMG5zdGpobFE0YTF1d1hvNzVDbljSAasBQVVfeXFMTUF0Z1dWc2xXckl5ck81eG91dGJRaGVRV0Z2UmFsVEJUZ0s0b2g4dEFXYkVxbGNBMFNrVGxxRGl3LWRSakYwbmZQMUVkblFGRDB2YnlPSDlhdFRHdDZWc3gxVDdYRzNONWlod2FJTjg0SnJQWThrZWtBa01FbFBMMlJCQ1lIU09OUVhGU0pWQTRSTFJRSGJYeXNwX20tZnlneFpoeXRrcjcwa1dj?oc=5"
+---
+
+Mann Reiterates Sports As Key Weapon Against Drugs In Punjab Rediff
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNM01Tb3NENTQ3cHZteWhoX3pmMm5xY0tONjVXcWlvcExqQUZlMkNBNmppTUNXTV9tUUVUSlFvMXNvNzZ6RjlaNTRfQUN3ckV6bnpJMGxBX2ZKa3l4X0ZzRXh4a1VTN1ZPNzhpQjkyZGJhUlVmMHFnbExPX0hRSVpzQ00wX3Nma1dBOFhCYkdvMWxKNTBDMG5zdGpobFE0YTF1d1hvNzVDbljSAasBQVVfeXFMTUF0Z1dWc2xXckl5ck81eG91dGJRaGVRV0Z2UmFsVEJUZ0s0b2g4dEFXYkVxbGNBMFNrVGxxRGl3LWRSakYwbmZQMUVkblFGRDB2YnlPSDlhdFRHdDZWc3gxVDdYRzNONWlod2FJTjg0SnJQWThrZWtBa01FbFBMMlJCQ1lIU09OUVhGU0pWQTRSTFJRSGJYeXNwX20tZnlneFpoeXRrcjcwa1dj?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

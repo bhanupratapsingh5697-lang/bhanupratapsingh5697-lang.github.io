@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Why Rajasthan rural body polls result is ringing warning bells for BJP - ThePrint"
+date: 2026-11-22 17:01:34 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirAFBVV95cUxNT00wU3FDb0hJZGxBWEw0TnVXeC1kUHd6UGZLRng4STB5M1hiNnFhV01tZ3RfSGk1ZEpoNEhlYTJOS3dtMW93MFhxcExBWHM3Q09HRFNMNzVKUm9hWWxGcTZjdkVzUHA4QklqSmVjUEJJRTZiZEJjbXFYbmtLMklrRHg1Y2J5V20xMjR2aWZWWmJ0dXAtN3dJYjFjZU42czR3WjAtNkJuSGdzZXBN0gGyAUFVX3lxTFBNYkhiODZRdnRYZ0RoamV1VGJNNWNCNXZvZVNpY056QXZ2TXdqY0VwYnZBSEZMbXozRVBtMTVtWUhIZGhHVzdvTWt0eHd3NUJrbWlFOTNJLWhtcmhrQW5aZVhIekc2VnFZWXFrVDg1dmxDYVdLS1BxeEFVc1FOcmVlWGZwS1RCdWFtUXRWY2U3XzV4OXJpZFdhTzJTQndLZ0R6MnNRcWZuSG8xdC1PRWE3VUE?oc=5"
+---
+
+Why Rajasthan rural body polls result is ringing warning bells for BJP ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirAFBVV95cUxNT00wU3FDb0hJZGxBWEw0TnVXeC1kUHd6UGZLRng4STB5M1hiNnFhV01tZ3RfSGk1ZEpoNEhlYTJOS3dtMW93MFhxcExBWHM3Q09HRFNMNzVKUm9hWWxGcTZjdkVzUHA4QklqSmVjUEJJRTZiZEJjbXFYbmtLMklrRHg1Y2J5V20xMjR2aWZWWmJ0dXAtN3dJYjFjZU42czR3WjAtNkJuSGdzZXBN0gGyAUFVX3lxTFBNYkhiODZRdnRYZ0RoamV1VGJNNWNCNXZvZVNpY056QXZ2TXdqY0VwYnZBSEZMbXozRVBtMTVtWUhIZGhHVzdvTWt0eHd3NUJrbWlFOTNJLWhtcmhrQW5aZVhIekc2VnFZWXFrVDg1dmxDYVdLS1BxeEFVc1FOcmVlWGZwS1RCdWFtUXRWY2U3XzV4OXJpZFdhTzJTQndLZ0R6MnNRcWZuSG8xdC1PRWE3VUE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
