@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Govt to test packaged water brands across India amid Bisleri 'unsafe' samples row - The Times of India"
+date: 2026-11-23 10:31:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi4AFBVV95cUxPXzVCcU1EdmNUQk1aT1lNTUlOYm5ZX2xxeVowbVo5b3VNaW1qQmg0bGVqdzh2NlVUWnkxeHVYb3MwdVVWdHB2cXR3bmxCcE1KaUtWNkItMm5fTTVhYVZ5bmUzc2pEb09lSHFsbmtNNUphajEyZHpaejlfZFNyS0I4SmkteDdlQXVGT3k5V2lpUlpUa1czOGl3dUprWmFZTlptdlR5c3hNcndLa3kzelNiTzJCT1NwWGE3U0Y1aFBoNU1wWHVNaDBadjRLaEdXM1hlbWx2SU9JZ2VPMHo1T1Z4a9IB5gFBVV95cUxPU3JlREwyTTRzNEx0eV9nc1NBX3A0dlVlZUkwT2s4WUlXMGhIUHEzckVZTHJZaFphSmlSMEFjeEhVMmhzTUtRLVg4MHY3MWFLTjVDS2JvZlEwTXprVHJ1NTNwTndibjhXSTg1LVRZekRNd3g4YXFpenpNR1QyRkNqSHhDZDBlcFQ4WGpUS2p6ZnZ3Q0FLeGNfQVFyVEdhOTVVeXJhVmtTMnlKZkRSeFFzcmNNZUlYWElxNllZV20xMEZHUTJ5X3dqOGFwb3V4SXhKU1dia2FQMjdhSHBXcXFWUVRnbTVNdw?oc=5"
+---
+
+Govt to test packaged water brands across India amid Bisleri 'unsafe' samples row The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4AFBVV95cUxPXzVCcU1EdmNUQk1aT1lNTUlOYm5ZX2xxeVowbVo5b3VNaW1qQmg0bGVqdzh2NlVUWnkxeHVYb3MwdVVWdHB2cXR3bmxCcE1KaUtWNkItMm5fTTVhYVZ5bmUzc2pEb09lSHFsbmtNNUphajEyZHpaejlfZFNyS0I4SmkteDdlQXVGT3k5V2lpUlpUa1czOGl3dUprWmFZTlptdlR5c3hNcndLa3kzelNiTzJCT1NwWGE3U0Y1aFBoNU1wWHVNaDBadjRLaEdXM1hlbWx2SU9JZ2VPMHo1T1Z4a9IB5gFBVV95cUxPU3JlREwyTTRzNEx0eV9nc1NBX3A0dlVlZUkwT2s4WUlXMGhIUHEzckVZTHJZaFphSmlSMEFjeEhVMmhzTUtRLVg4MHY3MWFLTjVDS2JvZlEwTXprVHJ1NTNwTndibjhXSTg1LVRZekRNd3g4YXFpenpNR1QyRkNqSHhDZDBlcFQ4WGpUS2p6ZnZ3Q0FLeGNfQVFyVEdhOTVVeXJhVmtTMnlKZkRSeFFzcmNNZUlYWElxNllZV20xMEZHUTJ5X3dqOGFwb3V4SXhKU1dia2FQMjdhSHBXcXFWUVRnbTVNdw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

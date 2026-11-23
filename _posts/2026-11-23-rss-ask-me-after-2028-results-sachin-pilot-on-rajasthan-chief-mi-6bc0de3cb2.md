@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Ask Me After 2028 Results': Sachin Pilot On Rajasthan Chief Minister Post Question - NDTV"
+date: 2026-11-23 09:41:31 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxQZzdzejNPSURUR2NBQ0hJbnc2RDNaV3YxaGtOWlYtMGFNX04tb3VHTjFJOHR0b3pQbGdZd1VILXBUVW9oeDVpdlJ0NkZJT01pR1RVUmtIeUVjdkRVR29BRHVVUnJXbkhNOUVOZk8tMG1haHdjeUJlNmZIRHBqOUtJelpjRlhBRzVlZk40RUpOMWhhMHhWVXlFZHloaUk2azJkcGllcFVmQUJtUVVUMHFVaWY3YlVibFkxSTNiVHAyMkV4N2tBQTJOTDJOa9IB0wFBVV95cUxOdXBPTjN5aEZCaXl2ZkdTT1ZxSndSZzVTc09ZekdBVTZlazNRNkNydklDTzk3czRIUWQ3N20wRHBvRXduQXZ1TFVvTTJ6M1ZkanVnM1d0RFplVHozTUNPNEpMYnJ3YjZQUzNLOXB0NWhwRllsSVZjZlJ6dVlxQTl0Q0o4Z3RLeGd4djFpb0d5T1RFVWFVejZ0Z2w0bFNMLUY0NENYQnkyV3BaMy0zcktmM3lxbkRHeElKOWp0dDVncEx2eDNXejB3cTBJM1FESm5ncWYw?oc=5"
+---
+
+'Ask Me After 2028 Results': Sachin Pilot On Rajasthan Chief Minister Post Question NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxQZzdzejNPSURUR2NBQ0hJbnc2RDNaV3YxaGtOWlYtMGFNX04tb3VHTjFJOHR0b3pQbGdZd1VILXBUVW9oeDVpdlJ0NkZJT01pR1RVUmtIeUVjdkRVR29BRHVVUnJXbkhNOUVOZk8tMG1haHdjeUJlNmZIRHBqOUtJelpjRlhBRzVlZk40RUpOMWhhMHhWVXlFZHloaUk2azJkcGllcFVmQUJtUVVUMHFVaWY3YlVibFkxSTNiVHAyMkV4N2tBQTJOTDJOa9IB0wFBVV95cUxOdXBPTjN5aEZCaXl2ZkdTT1ZxSndSZzVTc09ZekdBVTZlazNRNkNydklDTzk3czRIUWQ3N20wRHBvRXduQXZ1TFVvTTJ6M1ZkanVnM1d0RFplVHozTUNPNEpMYnJ3YjZQUzNLOXB0NWhwRllsSVZjZlJ6dVlxQTl0Q0o4Z3RLeGd4djFpb0d5T1RFVWFVejZ0Z2w0bFNMLUY0NENYQnkyV3BaMy0zcktmM3lxbkRHeElKOWp0dDVncEx2eDNXejB3cTBJM1FESm5ncWYw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Ind vs NZ Test series | Fifteen overs to go, five wickets to take. Why did India give up? - Deccan Herald"
+date: 2026-11-23 12:00:34 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0gFBVV95cUxPZzVKVzc5bWIxNTNIbkZQeDJaYzdDMFJleENqWENEWHV5RjNkbHdKWHhZOUJTUG1WQ3ZqRUZrbEUzWm5VNDJMUUhuc2xBb19zaDFxTDA5RnZydE43QUUyeVVidXR3d2s4aGUyT29kZkJZNEhSR2JaUmNGSEtQcHhDdVIwendHY2VvbFBMSk01TDVhQkJsalVLSjNzZHpHZHJyU0d1NTI3WHVoRkVvNlA4OGV6ei1KV29qMnd2MVZCbzNld1VpdHJjMWlCcEhvODhrR2fSAd8BQVVfeXFMT0pDNm8zemQ1MmY1QllNMG1pRjVwUUh2cE5TZXhqQ3h1OHBabkRUVHdxdEJ6NElRMlpaaFMyUUU1REw2Qzk1NWhCRGpRa3NtQzc4SWJrRzlmRkI2SDNRQzFMVEh2UjdKQ0hndVRiNnBVbEZvZHBJWEx2V2k4UVFURjd5M0FoT2VUdi1NSmxOeXV6aXRPb1dGZE5VR1VBYTllY1pKZ3FHVDVrajVnMFhQY3l2aXhGRURLQ1ZteXo1aS1aU0NFdHl0V2RmVTRoaUQ5UGtrRVVCT0RmQXNnM0RIQQ?oc=5"
+---
+
+Ind vs NZ Test series | Fifteen overs to go, five wickets to take. Why did India give up? Deccan Herald
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0gFBVV95cUxPZzVKVzc5bWIxNTNIbkZQeDJaYzdDMFJleENqWENEWHV5RjNkbHdKWHhZOUJTUG1WQ3ZqRUZrbEUzWm5VNDJMUUhuc2xBb19zaDFxTDA5RnZydE43QUUyeVVidXR3d2s4aGUyT29kZkJZNEhSR2JaUmNGSEtQcHhDdVIwendHY2VvbFBMSk01TDVhQkJsalVLSjNzZHpHZHJyU0d1NTI3WHVoRkVvNlA4OGV6ei1KV29qMnd2MVZCbzNld1VpdHJjMWlCcEhvODhrR2fSAd8BQVVfeXFMT0pDNm8zemQ1MmY1QllNMG1pRjVwUUh2cE5TZXhqQ3h1OHBabkRUVHdxdEJ6NElRMlpaaFMyUUU1REw2Qzk1NWhCRGpRa3NtQzc4SWJrRzlmRkI2SDNRQzFMVEh2UjdKQ0hndVRiNnBVbEZvZHBJWEx2V2k4UVFURjd5M0FoT2VUdi1NSmxOeXV6aXRPb1dGZE5VR1VBYTllY1pKZ3FHVDVrajVnMFhQY3l2aXhGRURLQ1ZteXo1aS1aU0NFdHl0V2RmVTRoaUQ5UGtrRVVCT0RmQXNnM0RIQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

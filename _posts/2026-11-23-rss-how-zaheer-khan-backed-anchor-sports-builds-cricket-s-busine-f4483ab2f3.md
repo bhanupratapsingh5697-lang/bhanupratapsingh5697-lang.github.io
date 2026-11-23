@@ -1,0 +1,17 @@
+---
+layout: post
+title: "How Zaheer Khan-backed Anchor Sports builds cricket's business in Europe - Business Standard"
+date: 2026-11-23 12:46:38 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxOd3BRenVwQXBmV3A2dENGZUJZUFRsdWZMU3pzb3EwZnJPQXJ3MkZodjJWNC1YcjhNbl9JWUtMZDE0am44WnQxYmNnZ3JPS21ocUljYXItZzVHV1NPZUV6SEFtOVNYdEVFb2VEblRWanJjTEYtdTlLR1FHSGFfdFFXNlBaaGNGR1l2RzRGRlR3SkpyR1FqbERxenAxTGhLcHRqUklMb0xsQ00waFpid045MEljYjJ1Ti1XNjg0elM5VTFZRUxWVWfSAcsBQVVfeXFMT3VDSGFQaXZxNHp2UFBaOUhZbE1aaUZFN3diazZFcW5GY2djTm9SZXdpVEJuQXNPTUJ0WXo1dFczU3VsRjRTWjBvWHVxVjRpc1NCT3BIck9EWVZvUFp4Z3hXQlJyekdPdVh0US1BUkNyMGo0cmZOTXBkM0lvekMzUUlyNldINjNYRXVQSkFoYXAyOWlOUDdZNDdBR0xfNmVUdXFaMFJwNThKTjhYb1c5aHQ1OURDc25VMk1FalFUQ0g2T1QwZ3dDNUQ5S0k?oc=5"
+---
+
+How Zaheer Khan-backed Anchor Sports builds cricket's business in Europe Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxOd3BRenVwQXBmV3A2dENGZUJZUFRsdWZMU3pzb3EwZnJPQXJ3MkZodjJWNC1YcjhNbl9JWUtMZDE0am44WnQxYmNnZ3JPS21ocUljYXItZzVHV1NPZUV6SEFtOVNYdEVFb2VEblRWanJjTEYtdTlLR1FHSGFfdFFXNlBaaGNGR1l2RzRGRlR3SkpyR1FqbERxenAxTGhLcHRqUklMb0xsQ00waFpid045MEljYjJ1Ti1XNjg0elM5VTFZRUxWVWfSAcsBQVVfeXFMT3VDSGFQaXZxNHp2UFBaOUhZbE1aaUZFN3diazZFcW5GY2djTm9SZXdpVEJuQXNPTUJ0WXo1dFczU3VsRjRTWjBvWHVxVjRpc1NCT3BIck9EWVZvUFp4Z3hXQlJyekdPdVh0US1BUkNyMGo0cmZOTXBkM0lvekMzUUlyNldINjNYRXVQSkFoYXAyOWlOUDdZNDdBR0xfNmVUdXFaMFJwNThKTjhYb1c5aHQ1OURDc25VMk1FalFUQ0g2T1QwZ3dDNUQ5S0k?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

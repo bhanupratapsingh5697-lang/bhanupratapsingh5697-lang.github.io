@@ -1,0 +1,17 @@
+---
+layout: post
+title: "209 assistant professors appointed in Rajasthan after court stay lifted - Medical Dialogues"
+date: 2026-11-23 10:55:53 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxQYlkwRS1HUWVtRklCT2d1cWY5Uk1tNWl0ekVscEh3QjJIdDhRWnNqaE80eWFyclhqM1l3T3M3dkdVNTRvcjBoNk01RTlPbkk2X0pkWVl2bWI2QUN5a1hvLWpiR2s4Vy1wWVhIMHZJRDEwcGVzS1FSTUhxbl9OT1RHUlp3cVNEOEFaTWcwYzRxYlVZcjg5QXFyVDJxN1N0d3d5Skt0d3p2N0hnYUtqdGxmZnZPSkc0eDhUVzZtYVpvLUJ5eWc50gHKAUFVX3lxTE5zYUd6dHJxckhyaURDUDAxSFpFcEtYRHRsZXFMblE0T3hCTGdISjRFeFpSdmY0RExXS3daSjd3WmV5LXJiZUhmb0drOWhadUdWNnozMUpkRGdkQXlzeGZaWGJrbF9UWHlxS0xselh0R3Bsb2RRQUtlVDBKR1pKa29HcDVNTjB0NzZyemw2X19oZzR4X1hOVF9pdVJ4Q2tLblJjOUVXSmpxWldLajVEaVdKVFJXaVFNekFqckFkZFZKR00wV0V1MzZ3TXc?oc=5"
+---
+
+209 assistant professors appointed in Rajasthan after court stay lifted Medical Dialogues
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxQYlkwRS1HUWVtRklCT2d1cWY5Uk1tNWl0ekVscEh3QjJIdDhRWnNqaE80eWFyclhqM1l3T3M3dkdVNTRvcjBoNk01RTlPbkk2X0pkWVl2bWI2QUN5a1hvLWpiR2s4Vy1wWVhIMHZJRDEwcGVzS1FSTUhxbl9OT1RHUlp3cVNEOEFaTWcwYzRxYlVZcjg5QXFyVDJxN1N0d3d5Skt0d3p2N0hnYUtqdGxmZnZPSkc0eDhUVzZtYVpvLUJ5eWc50gHKAUFVX3lxTE5zYUd6dHJxckhyaURDUDAxSFpFcEtYRHRsZXFMblE0T3hCTGdISjRFeFpSdmY0RExXS3daSjd3WmV5LXJiZUhmb0drOWhadUdWNnozMUpkRGdkQXlzeGZaWGJrbF9UWHlxS0xselh0R3Bsb2RRQUtlVDBKR1pKa29HcDVNTjB0NzZyemw2X19oZzR4X1hOVF9pdVJ4Q2tLblJjOUVXSmpxWldLajVEaVdKVFJXaVFNekFqckFkZFZKR00wV0V1MzZ3TXc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

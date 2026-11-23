@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Fadnavis Mourns Death of 9 Dhule Pilgrims in Rajasthan Road Accident - Asianet Newsable"
+date: 2026-11-22 22:00:07 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMixgFBVV95cUxPSjlsYjh5RklXY1hVZ0w5NlN2R1UwWkdDN1RqX3dxMDljQTV4ZXNXSE92bHJlc1Q5X3VGWEJMQ0F2NHNWUktNZ0t2NENHVFVWMFFHcHhvTm1YYWNJYXd1cEs5VUUtT3gyTlFLX0JBakNfLUFCR1FOVGl6aF9zX2lQMDNSQVdYdzVQNmlxQkhzM2VuTXZ0aTJxeEtWbElsUHBaSEJ0VlZpa1JkX25YOWpiT0laVnF0MmRCYkRrazVqR3FWekxZdkHSAcsBQVVfeXFMT3MteERkemlOZlZnaFZidGx4dkxKOFBnSjRwT1FvajNabXZDZUhQZWZCTWM1bXpWT2l0czRJcmZsalZJYTBwQ2kzUnVnLURuekdqeHMxbUhTYlBzWkhpZFdWRWkzZno0ZFZJdFc3c29wQmJnT3huSUthRmlfUC1TejRvQnlJSFhNODB2Yk94bnFiVUs4N3BLTE5IdWdVZ2ptS04xYnc1WHRzNTU4ZDJPYnhsU3FZbHNWTE9HeVdCcm0tT1V3SkRHOS14QUU?oc=5"
+---
+
+Fadnavis Mourns Death of 9 Dhule Pilgrims in Rajasthan Road Accident Asianet Newsable
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixgFBVV95cUxPSjlsYjh5RklXY1hVZ0w5NlN2R1UwWkdDN1RqX3dxMDljQTV4ZXNXSE92bHJlc1Q5X3VGWEJMQ0F2NHNWUktNZ0t2NENHVFVWMFFHcHhvTm1YYWNJYXd1cEs5VUUtT3gyTlFLX0JBakNfLUFCR1FOVGl6aF9zX2lQMDNSQVdYdzVQNmlxQkhzM2VuTXZ0aTJxeEtWbElsUHBaSEJ0VlZpa1JkX25YOWpiT0laVnF0MmRCYkRrazVqR3FWekxZdkHSAcsBQVVfeXFMT3MteERkemlOZlZnaFZidGx4dkxKOFBnSjRwT1FvajNabXZDZUhQZWZCTWM1bXpWT2l0czRJcmZsalZJYTBwQ2kzUnVnLURuekdqeHMxbUhTYlBzWkhpZFdWRWkzZno0ZFZJdFc3c29wQmJnT3huSUthRmlfUC1TejRvQnlJSFhNODB2Yk94bnFiVUs4N3BLTE5IdWdVZ2ptS04xYnc1WHRzNTU4ZDJPYnhsU3FZbHNWTE9HeVdCcm0tT1V3SkRHOS14QUU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

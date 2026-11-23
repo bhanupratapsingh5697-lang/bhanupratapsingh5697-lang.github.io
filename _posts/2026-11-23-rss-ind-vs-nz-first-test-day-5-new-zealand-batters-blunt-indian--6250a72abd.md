@@ -1,0 +1,17 @@
+---
+layout: post
+title: "IND vs NZ first Test Day 5: New Zealand batters blunt Indian attack; match ends in draw - The Hindu"
+date: 2026-11-23 10:32:04 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxQRWRMbnRIclEtZTdJT25VQmE0bzlUZ2tlbldscVRjM3BaZVY0eFFHajB0MHdGdXJZaXFLLW9tZ0RWVDloNDc1Y3FIa3FCWUwwNERxd1VQWU1XMlVTWVJGWEtCS0p0d011a1UyUFdxS083Q21JWXlpeUx0NHZRcFZqekRuVlp1R3V3eXVINHVWNEZiUkZiaFlXUlFvN1NRd0RoWnRETy1hWHJfalMyMlRFSmRVUHZyTlh2T2hZNmhB0gHEAUFVX3lxTE4tTkZ2VnhZNkdiUS1qd2NKdGxKOU1TeF9sQlp5UzU3RG9ISnI4YjFYZHhxNkl2Sk0yMm9PbHFtcE81NjlTVWVpa2xPSWxqLXU5V3Jyd1c4TlZHRjhtclZWZmdKQnR2Q05fcXA4WElPR3hySlktV0YxTTlaMTlDZkk3MlVhdnB5Y3g2V25WQ1NQVm5BOFpzZ0djOUkxdVIyWGNESkNCV3ZGM3pNaEtHOGxSX3pKdndQNUhCNGtKdm1uM0ZIMVE?oc=5"
+---
+
+IND vs NZ first Test Day 5: New Zealand batters blunt Indian attack; match ends in draw The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxQRWRMbnRIclEtZTdJT25VQmE0bzlUZ2tlbldscVRjM3BaZVY0eFFHajB0MHdGdXJZaXFLLW9tZ0RWVDloNDc1Y3FIa3FCWUwwNERxd1VQWU1XMlVTWVJGWEtCS0p0d011a1UyUFdxS083Q21JWXlpeUx0NHZRcFZqekRuVlp1R3V3eXVINHVWNEZiUkZiaFlXUlFvN1NRd0RoWnRETy1hWHJfalMyMlRFSmRVUHZyTlh2T2hZNmhB0gHEAUFVX3lxTE4tTkZ2VnhZNkdiUS1qd2NKdGxKOU1TeF9sQlp5UzU3RG9ISnI4YjFYZHhxNkl2Sk0yMm9PbHFtcE81NjlTVWVpa2xPSWxqLXU5V3Jyd1c4TlZHRjhtclZWZmdKQnR2Q05fcXA4WElPR3hySlktV0YxTTlaMTlDZkk3MlVhdnB5Y3g2V25WQ1NQVm5BOFpzZ0djOUkxdVIyWGNESkNCV3ZGM3pNaEtHOGxSX3pKdndQNUhCNGtKdm1uM0ZIMVE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India-Pakistan cricket fans want ‘dirty politics’ kept out of beloved sport - Al Jazeera"
+date: 2026-11-23 12:37:50 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxOSWh0N1Q5OHFfUXNQcHdFVThmZnVUd3Rkc0djT1B0SVhNaXFnYWE5UklhMk9EeE11NW5ETmNsckpHb2NOLXVjd0JZRDFrc2ZNNE9OSDZVQmdnVTlEZU4zOFE1XzBMU0lCVVVZSFAybmFNUGg3b2hYSUMwclVWOEJUUk9MTEw3MVZXV1dYWjVFUWkwRVZNNFZoUmpLdll0Q1cyZW4zQWVqRXh2OHVzY3hPZk1lWlJocXh20gG-AUFVX3lxTE1RYUYtdjR5RHZEaUFRTElEN1c4SkJZU3ZQeVhyUUhvUEVWM3ZCM3VuRHk0WEx0QzNNZ1M5ZEdjbU5BVFZFVzJFQ0RxTWRybXVOTE03REpsWGw0UjQ0bHdxTk5TZU9WODAxOUs0UGlwcnlUemZNQlpFQmw1bDgzWGp6NTNRc1AtRE8yczVoQ3NyTldXNklQS0I1RmpYOXZ6V29xQmRQWkxyRmtheDUwOW1oZlktYXl6MVN0dFZ0bXc?oc=5"
+---
+
+India-Pakistan cricket fans want ‘dirty politics’ kept out of beloved sport Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxOSWh0N1Q5OHFfUXNQcHdFVThmZnVUd3Rkc0djT1B0SVhNaXFnYWE5UklhMk9EeE11NW5ETmNsckpHb2NOLXVjd0JZRDFrc2ZNNE9OSDZVQmdnVTlEZU4zOFE1XzBMU0lCVVVZSFAybmFNUGg3b2hYSUMwclVWOEJUUk9MTEw3MVZXV1dYWjVFUWkwRVZNNFZoUmpLdll0Q1cyZW4zQWVqRXh2OHVzY3hPZk1lWlJocXh20gG-AUFVX3lxTE1RYUYtdjR5RHZEaUFRTElEN1c4SkJZU3ZQeVhyUUhvUEVWM3ZCM3VuRHk0WEx0QzNNZ1M5ZEdjbU5BVFZFVzJFQ0RxTWRybXVOTE03REpsWGw0UjQ0bHdxTk5TZU9WODAxOUs0UGlwcnlUemZNQlpFQmw1bDgzWGp6NTNRc1AtRE8yczVoQ3NyTldXNklQS0I1RmpYOXZ6V29xQmRQWkxyRmtheDUwOW1oZlktYXl6MVN0dFZ0bXc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

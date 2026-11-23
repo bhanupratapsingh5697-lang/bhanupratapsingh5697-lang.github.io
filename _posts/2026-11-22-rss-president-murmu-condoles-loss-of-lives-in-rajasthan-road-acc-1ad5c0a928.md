@@ -1,0 +1,17 @@
+---
+layout: post
+title: "President Murmu condoles loss of lives in Rajasthan road accident that killed 9 - The Hindu"
+date: 2026-11-22 13:32:20 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxNaENpV21VeGNyNXEtVWRNTnZwRm52MjFCTC1ZTVZyZVdyRjlMb0pHLUh6eTE2VEt6a2dtQUduUXI3UUhERjFSZGRUWXNGcXJvU2VHSnlwRV9NbS1JYkliMnBtLTBXTldoam14dUxzZXhOTkdXdFM1RXNrTWhFcEV5THlmUEVtZGc2QlJQTXBzQng1Yng0S1Buc21TN0pGaHVISUpLUm8yUEF3UEh3b1NjSzloZmxmV3M1c1FnVGRyc2dkSDhlZzNPVzVwTdIB0gFBVV95cUxNWmFFME1SZDhwVHlEenNFbEhVODh4Q19RN1drd19saFhMUXZLVVdXZUJ6TWw5QjEzWTl3VFpUeXVMV0U3UnQydVREalBEajMzQUdsdVlrOHc0Q1gwLXZza2NoNEZkMDdKSUtRWjhxc19QMXY2cTFGcXpBQk9EOU1iaDlhS0dpaktvOE1kTU1LbFBiLTNXaGZwa1A0SVhROEVFdzFhT3ZxSnFUT1B6ZHByS1lnMWZIOHJaRkRXYWdxa2pqWElZRGduREUzTUNiMUc1S0E?oc=5"
+---
+
+President Murmu condoles loss of lives in Rajasthan road accident that killed 9 The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxNaENpV21VeGNyNXEtVWRNTnZwRm52MjFCTC1ZTVZyZVdyRjlMb0pHLUh6eTE2VEt6a2dtQUduUXI3UUhERjFSZGRUWXNGcXJvU2VHSnlwRV9NbS1JYkliMnBtLTBXTldoam14dUxzZXhOTkdXdFM1RXNrTWhFcEV5THlmUEVtZGc2QlJQTXBzQng1Yng0S1Buc21TN0pGaHVISUpLUm8yUEF3UEh3b1NjSzloZmxmV3M1c1FnVGRyc2dkSDhlZzNPVzVwTdIB0gFBVV95cUxNWmFFME1SZDhwVHlEenNFbEhVODh4Q19RN1drd19saFhMUXZLVVdXZUJ6TWw5QjEzWTl3VFpUeXVMV0U3UnQydVREalBEajMzQUdsdVlrOHc0Q1gwLXZza2NoNEZkMDdKSUtRWjhxc19QMXY2cTFGcXpBQk9EOU1iaDlhS0dpaktvOE1kTU1LbFBiLTNXaGZwa1A0SVhROEVFdzFhT3ZxSnFUT1B6ZHByS1lnMWZIOHJaRkRXYWdxa2pqWElZRGduREUzTUNiMUc1S0E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
