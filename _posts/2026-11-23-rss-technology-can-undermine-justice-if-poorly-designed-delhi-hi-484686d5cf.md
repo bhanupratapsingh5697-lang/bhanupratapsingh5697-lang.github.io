@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Technology can undermine justice if poorly designed: Delhi High Court Justice Tejas Karia - Bar and Bench"
+date: 2026-11-23 17:00:37 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxPSExwUVp3eXB2WUtsZk96MDR1UFlsMUFHc0dqM2NiME9vZFVEak03V09KYmNuX1M4bnRYWEFpdXpyTzZKVm0zZU0yU3puVzRqR3RWN3NONEhMT0J3TTM3alp1TVhLQTZ6X0x0aGdBY0EyR2VIOEhYbmI3QjY5MUJyVFpPT0xGOW9XQlk4VWMxZEQ0LXl5aHFDaE9mUE0wSEY5U2RKVG1BQkNNNWxnbFdkTy1Dd0VSWVZHTkNmUHBR0gHLAUFVX3lxTFAwaDN4SWhNak9yLU9YVDVOSUIzZ0V6cTFjRUFRdzl5TDAxOW4wZE5adWpqMFNWRGIxTlhqMlJhcUE5TnRoSEo1MHFmVzVRQU1VWmwxb2IyMmpSN1NadVJWRFc3NXdLVkRGeGdtd2JLU25QcHBrVzhjdU1lckZBZWVQZVVvdUlkVUs1M29RdEdGdnlab2dwaTdlNFM1V0JnTXVtRU1TNjhoTWNoTnl6RzhBYkRZQ0lkcFUzMkZtSjZFZUg2YmE4a041dVVB?oc=5"
+---
+
+Technology can undermine justice if poorly designed: Delhi High Court Justice Tejas Karia Bar and Bench
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxPSExwUVp3eXB2WUtsZk96MDR1UFlsMUFHc0dqM2NiME9vZFVEak03V09KYmNuX1M4bnRYWEFpdXpyTzZKVm0zZU0yU3puVzRqR3RWN3NONEhMT0J3TTM3alp1TVhLQTZ6X0x0aGdBY0EyR2VIOEhYbmI3QjY5MUJyVFpPT0xGOW9XQlk4VWMxZEQ0LXl5aHFDaE9mUE0wSEY5U2RKVG1BQkNNNWxnbFdkTy1Dd0VSWVZHTkNmUHBR0gHLAUFVX3lxTFAwaDN4SWhNak9yLU9YVDVOSUIzZ0V6cTFjRUFRdzl5TDAxOW4wZE5adWpqMFNWRGIxTlhqMlJhcUE5TnRoSEo1MHFmVzVRQU1VWmwxb2IyMmpSN1NadVJWRFc3NXdLVkRGeGdtd2JLU25QcHBrVzhjdU1lckZBZWVQZVVvdUlkVUs1M29RdEdGdnlab2dwaTdlNFM1V0JnTXVtRU1TNjhoTWNoTnl6RzhBYkRZQ0lkcFUzMkZtSjZFZUg2YmE4a041dVVB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

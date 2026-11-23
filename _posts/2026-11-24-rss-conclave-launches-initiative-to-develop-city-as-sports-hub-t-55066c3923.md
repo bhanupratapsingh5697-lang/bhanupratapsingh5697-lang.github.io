@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Conclave launches initiative to develop city as sports hub - The Times of India"
+date: 2026-11-24 02:54:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxPb3hsZDBhZ2ZXU19YQXJqVW9HMGhaLURHbjZ3eVF0OHA0R0xlM0VwNHRqeVR2TTVCWkE5dnE3QjdWbXlKbU01QWNwcEZEN1lRR0lwX2ZvSUtSMEZfUUlIUFhFVGhmSGdITjA5S2JxdEtUQjltdGNDelBWOWY2NmFNdUlnbmNMOE51UklXbW8tSW56cWI2Z0lJNW9PYi1Ja1ZOeEZRT0VoVTFFcktTaFZxRHJ0U0doMzJxTFVna3RxMFh3M3lNVG9oYTdHNXHSAdIBQVVfeXFMT3Q2S0RYYmR6STdmS3hoTUFETUhrSTVjTzExSkxPbW1XVFpqQ21DWDFObmtmWmJkdTdvUFZUaVBkT2RwUEFLTkZCWUlJWkp0b0Z4bDJ4eTFpTV9PODVHM09jOGdlbGhlUmlybkJHLXJxV3ZXUkIteDdCMUNvaTRhNjF5UTN6VXV6Y29TNmM5d2J5MnBQZ0syYjNZQ2gyZE1KUTFnd0dxYXc3V2U0NW9XTERKcTNMd0stRHJQMHB5V241U3oydFFJWXUtT2JTclpvbUFn?oc=5"
+---
+
+Conclave launches initiative to develop city as sports hub The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxPb3hsZDBhZ2ZXU19YQXJqVW9HMGhaLURHbjZ3eVF0OHA0R0xlM0VwNHRqeVR2TTVCWkE5dnE3QjdWbXlKbU01QWNwcEZEN1lRR0lwX2ZvSUtSMEZfUUlIUFhFVGhmSGdITjA5S2JxdEtUQjltdGNDelBWOWY2NmFNdUlnbmNMOE51UklXbW8tSW56cWI2Z0lJNW9PYi1Ja1ZOeEZRT0VoVTFFcktTaFZxRHJ0U0doMzJxTFVna3RxMFh3M3lNVG9oYTdHNXHSAdIBQVVfeXFMT3Q2S0RYYmR6STdmS3hoTUFETUhrSTVjTzExSkxPbW1XVFpqQ21DWDFObmtmWmJkdTdvUFZUaVBkT2RwUEFLTkZCWUlJWkp0b0Z4bDJ4eTFpTV9PODVHM09jOGdlbGhlUmlybkJHLXJxV3ZXUkIteDdCMUNvaTRhNjF5UTN6VXV6Y29TNmM5d2J5MnBQZ0syYjNZQ2gyZE1KUTFnd0dxYXc3V2U0NW9XTERKcTNMd0stRHJQMHB5V241U3oydFFJWXUtT2JTclpvbUFn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

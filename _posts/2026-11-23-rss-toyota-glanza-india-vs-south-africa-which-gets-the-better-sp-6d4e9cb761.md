@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Toyota Glanza: India Vs South Africa - Which Gets The Better Specification And Price? - CarDekho"
+date: 2026-11-23 19:01:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxNS2ozZ2k1aWhCTGRpX0RSMVd6RlF6Sm94UjZfNktkTnU1ZHVnVml5STNSOXVGanRkYUdTUk9rejR1M090TTBoT2hCZDE4eE1Hc0dfbEdKc3RoX3dUOWp3Qng3aXB5SDhKb2xYRlY4V1BTcXR2Q054VGRWcXJqLU9nSkpreFc3N1YxdlVaanp4MTJNVHdKZF9CR1ZXQW96UW5Ja0xUQTQ1RzZkbWs1RjZraFE0NXI4YmdWY1pxQW41TjZkUnJfN2tBUNIB0AFBVV95cUxNa2VrcmJady1uUktWWlBEQUtQSHR1LTRYVTVGVlVWZ2N6YnRIZFBkRjRMUzZTcGo5aTFJaVdpeXY1NWEteTY4Y1FYT0RxLXVibFFfMF92dGtCRWFlYzA0UDZlRnhab3hvT3JQV2lUdFVVLWNGRFVnUUVqeHI3YTBNbGJWSFRrN04tZF9nbXdLSHBRR0xzWEFUSkIwcWR6UkZSeDlOV2EwZlhVOXdaa2ZrTkhmelhmRWhGS3lUSHN6MnBDZ0dMUHE3UHZDamFWNl8t?oc=5"
+---
+
+Toyota Glanza: India Vs South Africa - Which Gets The Better Specification And Price? CarDekho
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxNS2ozZ2k1aWhCTGRpX0RSMVd6RlF6Sm94UjZfNktkTnU1ZHVnVml5STNSOXVGanRkYUdTUk9rejR1M090TTBoT2hCZDE4eE1Hc0dfbEdKc3RoX3dUOWp3Qng3aXB5SDhKb2xYRlY4V1BTcXR2Q054VGRWcXJqLU9nSkpreFc3N1YxdlVaanp4MTJNVHdKZF9CR1ZXQW96UW5Ja0xUQTQ1RzZkbWs1RjZraFE0NXI4YmdWY1pxQW41TjZkUnJfN2tBUNIB0AFBVV95cUxNa2VrcmJady1uUktWWlBEQUtQSHR1LTRYVTVGVlVWZ2N6YnRIZFBkRjRMUzZTcGo5aTFJaVdpeXY1NWEteTY4Y1FYT0RxLXVibFFfMF92dGtCRWFlYzA0UDZlRnhab3hvT3JQV2lUdFVVLWNGRFVnUUVqeHI3YTBNbGJWSFRrN04tZF9nbXdLSHBRR0xzWEFUSkIwcWR6UkZSeDlOV2EwZlhVOXdaa2ZrTkhmelhmRWhGS3lUSHN6MnBDZ0dMUHE3UHZDamFWNl8t?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

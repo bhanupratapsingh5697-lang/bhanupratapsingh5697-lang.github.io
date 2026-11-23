@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Nepal PM India visit highlights: PM Modi announces offshore campus of IIT in Nepal - The Hindu"
+date: 2026-11-23 19:27:34 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiggJBVV95cUxPRi1rXzlya1hfdlVjcWRxYkFNdUF4d01CREF0cjhHUnJVTXBKeFp4b21kejVxdXVVcEt5M2pIdmhiM2hORUlHbWhFMVlSQi01VjlTLXkzRUh6Uy10UlZDeDdCU3laUVdINDJiWGwwQ2tTNVM3WFI0aU9xRUpZX3N1bDEyc1EzZURESHBUck84ajROajJmcC03R1JGbnpRd3haU3NYTWl6LVRISmtDT2NtQVpzSXBUaVBmWTFRUTdFSnVlRkFxdkZXXzZZQnlJYk9hdkVsMVB6ZHF4QWhhbUtIZ2VuQno2RlpkTlQ5dGRsdWdfcUVNRXQ4eDdSMFQ5RWVjdVHSAYgCQVVfeXFMT0c5UjlUaVBqN3IwcUhBQnhjTTk0OXJxakNEc3pDVEdkQ0RBVVlYQm9RMkhUQmZCYVlHVUMwSkRiZldxMC0zejJLNXA0aUh1bHdWdFlOSmRaZ2ZxNE9RanBrbFRZVGZkNTVkNWFwcEJfU1RPcllLWlB2d0s5T2pMcmdCbFpKSDRKd0hjTGVDZGxUdEFwTk9aeExhV3I1YU0zalZiSjd6VFJtTVlGcGFfcG9QMkhCNnlCRnpJYWVNQ2ZSLXd1cUV5eUZCeGlRRUExYlhmaDlncDBoRUN3WHFPR0x2SndYRXBZUm5hZzllZGt4Zzg5eUtKTmk5QzRvYmFpNTRZVUZLTjRa?oc=5"
+---
+
+Nepal PM India visit highlights: PM Modi announces offshore campus of IIT in Nepal The Hindu India 3rd Biggest Asian Power, PM Modi 2nd Most Effective Leader: Report NDTV Joint Press Release on the State Visit of the Prime Minister of Nepal to India (November 22-23, 2026) Ministry of External Affairs
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiggJBVV95cUxPRi1rXzlya1hfdlVjcWRxYkFNdUF4d01CREF0cjhHUnJVTXBKeFp4b21kejVxdXVVcEt5M2pIdmhiM2hORUlHbWhFMVlSQi01VjlTLXkzRUh6Uy10UlZDeDdCU3laUVdINDJiWGwwQ2tTNVM3WFI0aU9xRUpZX3N1bDEyc1EzZURESHBUck84ajROajJmcC03R1JGbnpRd3haU3NYTWl6LVRISmtDT2NtQVpzSXBUaVBmWTFRUTdFSnVlRkFxdkZXXzZZQnlJYk9hdkVsMVB6ZHF4QWhhbUtIZ2VuQno2RlpkTlQ5dGRsdWdfcUVNRXQ4eDdSMFQ5RWVjdVHSAYgCQVVfeXFMT0c5UjlUaVBqN3IwcUhBQnhjTTk0OXJxakNEc3pDVEdkQ0RBVVlYQm9RMkhUQmZCYVlHVUMwSkRiZldxMC0zejJLNXA0aUh1bHdWdFlOSmRaZ2ZxNE9RanBrbFRZVGZkNTVkNWFwcEJfU1RPcllLWlB2d0s5T2pMcmdCbFpKSDRKd0hjTGVDZGxUdEFwTk9aeExhV3I1YU0zalZiSjd6VFJtTVlGcGFfcG9QMkhCNnlCRnpJYWVNQ2ZSLXd1cUV5eUZCeGlRRUExYlhmaDlncDBoRUN3WHFPR0x2SndYRXBZUm5hZzllZGt4Zzg5eUtKTmk5QzRvYmFpNTRZVUZLTjRa?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

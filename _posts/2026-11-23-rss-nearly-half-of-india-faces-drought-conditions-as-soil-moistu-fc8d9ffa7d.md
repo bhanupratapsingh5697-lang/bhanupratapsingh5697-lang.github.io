@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Nearly half of India faces drought conditions as soil moisture levels remain low - Down To Earth"
+date: 2026-11-23 17:25:40 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRTh5NzJUNEhCWHQ0a25UUGNLSHFIcTNRUURxcXhTLThxZ3pCVTlCaEpaaGx2U0JJaTM0RTkxU2xyVHRybV82R0dJdGs1WDc4QmxjSjQ0c2w3OGIwQjRjZkt4UElFdU5Zd3QwTUJ0TnhwbVZQQXQwZFBYcE13QVB1bXZhdmI5bjhuR0lyalQ1b2FFdHlhZEtuTTcxZS1DalhFT3ZNS0d5c0gzcW4xZGo3MmJjQnBmZVA1UGNzeldoaULSAc4BQVVfeXFMUHdOTkd3RTFVcU1KZkdGamtLSE42ODJycmpTcWMwZkFPOWx2eWxRM01lRTlJd2piZHlMejkwNWwtNkhPWEJkZ0RyRXNHbGNwWGc4SGZBUzZ3ejNHazJmYXVTRVR1Z2lwanBpcEJKMW5TWWExbXdITVk4UkFxMUo5NDdzZVQtd0ZzaUFGZF80YWRuS2JabDN6aWl0X0QtaGhUNGgtdndpQ214M0hDWkhNbTNNdzJQY0Voc1BMVFhocDVoNHNxa0l6TF8tYmpPeGc?oc=5"
+---
+
+Nearly half of India faces drought conditions as soil moisture levels remain low Down To Earth
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNRTh5NzJUNEhCWHQ0a25UUGNLSHFIcTNRUURxcXhTLThxZ3pCVTlCaEpaaGx2U0JJaTM0RTkxU2xyVHRybV82R0dJdGs1WDc4QmxjSjQ0c2w3OGIwQjRjZkt4UElFdU5Zd3QwTUJ0TnhwbVZQQXQwZFBYcE13QVB1bXZhdmI5bjhuR0lyalQ1b2FFdHlhZEtuTTcxZS1DalhFT3ZNS0d5c0gzcW4xZGo3MmJjQnBmZVA1UGNzeldoaULSAc4BQVVfeXFMUHdOTkd3RTFVcU1KZkdGamtLSE42ODJycmpTcWMwZkFPOWx2eWxRM01lRTlJd2piZHlMejkwNWwtNkhPWEJkZ0RyRXNHbGNwWGc4SGZBUzZ3ejNHazJmYXVTRVR1Z2lwanBpcEJKMW5TWWExbXdITVk4UkFxMUo5NDdzZVQtd0ZzaUFGZF80YWRuS2JabDN6aWl0X0QtaGhUNGgtdndpQ214M0hDWkhNbTNNdzJQY0Voc1BMVFhocDVoNHNxa0l6TF8tYmpPeGc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
