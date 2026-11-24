@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Deepam Lit Away From Approved Spot As Vijay Government Defies Supreme Court Order - NDTV"
+date: 2026-11-24 20:31:59 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxPblhMWlFmYkxPZHF1MV9aX2hiUUhKTHEyal9QdVU1YkFudnFTNEw5NHNROVBQcjVqTGZ1RUhaRUxlTW5BRDYzRWZzTXVUb1FBN1Z2Q3JNYXpTWl9rWVRQNEhxYm5FMEhaNTNnRG02VGRjMVpadll5YVZ2MTNVUE9FU2tia2syV1g2Umt1TF9oRUtZNm94aUw4SGo4S194bnlXSi1VRGdSRGQ0S1h4aXBWYkg0WUh1VzB4a2hyRS1LY9IBxwFBVV95cUxNQmFBLXRSSkQ4YUIyRXdXTWZTTGJvWnlMajRyaTZMTnd2R0pRd0tXT3FOcEVObEFaRGNkODhWaVZFT0hfc012MjhvbUIzYXd6SHpnaTh3X1lIcUJVdUNtVjM2RDlZWUpQVVoyblB2b0hxOGg2N1IxdGZnR3FUaEphR0x1QWJrZmc0VVl4SjRKWXB0YUd3OEtIbU5DSVF4dF9GLWVPdzNXNzcwSnlkVXhPcnVtdG5vLXB2T0ZvV0hhczcteGU2cU9F?oc=5"
+---
+
+Deepam Lit Away From Approved Spot As Vijay Government Defies Supreme Court Order NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxPblhMWlFmYkxPZHF1MV9aX2hiUUhKTHEyal9QdVU1YkFudnFTNEw5NHNROVBQcjVqTGZ1RUhaRUxlTW5BRDYzRWZzTXVUb1FBN1Z2Q3JNYXpTWl9rWVRQNEhxYm5FMEhaNTNnRG02VGRjMVpadll5YVZ2MTNVUE9FU2tia2syV1g2Umt1TF9oRUtZNm94aUw4SGo4S194bnlXSi1VRGdSRGQ0S1h4aXBWYkg0WUh1VzB4a2hyRS1LY9IBxwFBVV95cUxNQmFBLXRSSkQ4YUIyRXdXTWZTTGJvWnlMajRyaTZMTnd2R0pRd0tXT3FOcEVObEFaRGNkODhWaVZFT0hfc012MjhvbUIzYXd6SHpnaTh3X1lIcUJVdUNtVjM2RDlZWUpQVVoyblB2b0hxOGg2N1IxdGZnR3FUaEphR0x1QWJrZmc0VVl4SjRKWXB0YUd3OEtIbU5DSVF4dF9GLWVPdzNXNzcwSnlkVXhPcnVtdG5vLXB2T0ZvV0hhczcteGU2cU9F?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

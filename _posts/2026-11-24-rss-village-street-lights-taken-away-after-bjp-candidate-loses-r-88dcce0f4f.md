@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Village Street Lights Taken Away After BJP Candidate Loses Rajasthan Panchayat Polls - NDTV"
+date: 2026-11-24 22:25:32 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxQUjd4RmRtOUg3RmhwQWM5MDEtSjRMR0VEZWo2NFNWSzJfYlRCT3BRRkRUaTRnUmowUnhzVmpkNV9yeUN0RWlqaHBwOUlCV0FaUmtPRV9LTXRqY2dOcTc4TVpWeTNJQWJBUUVIYVhhNVF4MjJSalBpZ0RrdmRETGFYdVo5Mk5XcF9OOTFxZUNaQU11RVVvRHphUVpSYVhlWmswT2VqQnJ6MU55Unl1dlJhVjlVa3YwR0RuaDYzTEhMeGNVSVHSAcsBQVVfeXFMTUZJQU4xUGZISTJnYnpjVFVid3BwVUdEM0VGeE9MOXpZZjdEUG5RZndGMlRaY1pKVHhFaHJ4SzkzcE9FWVE2TFRRVk8xWWhvanc0aWw0SDIwR3dtamtza0t2aC1ZVDlFRnNfREt0NE1EQmpWTG9IYWtXTDNPek9SamhWWEE4TVhvY1ZEbmNRVmRwaWNUeTA5Y3RvRXp5T2R1X0x3Y185QmVFWHM0R1FWTjB0MEh4d0g2ZnNjY0R1cGtyODlzZXM4ZjFiNTQ?oc=5"
+---
+
+Village Street Lights Taken Away After BJP Candidate Loses Rajasthan Panchayat Polls NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQUjd4RmRtOUg3RmhwQWM5MDEtSjRMR0VEZWo2NFNWSzJfYlRCT3BRRkRUaTRnUmowUnhzVmpkNV9yeUN0RWlqaHBwOUlCV0FaUmtPRV9LTXRqY2dOcTc4TVpWeTNJQWJBUUVIYVhhNVF4MjJSalBpZ0RrdmRETGFYdVo5Mk5XcF9OOTFxZUNaQU11RVVvRHphUVpSYVhlWmswT2VqQnJ6MU55Unl1dlJhVjlVa3YwR0RuaDYzTEhMeGNVSVHSAcsBQVVfeXFMTUZJQU4xUGZISTJnYnpjVFVid3BwVUdEM0VGeE9MOXpZZjdEUG5RZndGMlRaY1pKVHhFaHJ4SzkzcE9FWVE2TFRRVk8xWWhvanc0aWw0SDIwR3dtamtza0t2aC1ZVDlFRnNfREt0NE1EQmpWTG9IYWtXTDNPek9SamhWWEE4TVhvY1ZEbmNRVmRwaWNUeTA5Y3RvRXp5T2R1X0x3Y185QmVFWHM0R1FWTjB0MEh4d0g2ZnNjY0R1cGtyODlzZXM4ZjFiNTQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

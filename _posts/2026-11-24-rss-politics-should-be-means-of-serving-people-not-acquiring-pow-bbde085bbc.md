@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Politics should be means of serving people, not acquiring power: Rajasthan CM - ThePrint"
+date: 2026-11-24 18:23:49 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxQMzgtcjBVbVo0bU5sYzlhVGF6YXFPVlAwT1l6M1BQZWc3VmdKNzlfVUxPNTZTd0VzamM1WFZiV3NGS1pjcEpYLTZJWU9GajN4MmxjV3o2Q3FySjVuMHVWamJNZENvN01Pa1BVbVZGa3Y5SUR4TDVuQ25vUVdTdWxXYkJQQTdxYy16Q09kQk04blBVaFZUSjZnbWt2N0hkOXI3YnpLS0Q1V0JZenF4OF9j0gG0AUFVX3lxTE1RNTU3aEVaZldCVGx2dzlvVHhDNFNaUmh2aC12WlB4Y0dRNWZuMDR4YksyVnlRMzJmSlNZQTFqTHNocFpZcWFSYTJfczZzZEY0ZVRSeERUN0JzLXFuNThnaHdHNjhSX0pUaFdXcGJXbmNCZHBMaDI4MDVZVzVsMjdELU5mV1ZhSllXWlN0Wk54RWhHOHVkV0RHVGpueHp4UXRMZzM2UW80UzJWOV80NWZPa3Y5TQ?oc=5"
+---
+
+Politics should be means of serving people, not acquiring power: Rajasthan CM ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxQMzgtcjBVbVo0bU5sYzlhVGF6YXFPVlAwT1l6M1BQZWc3VmdKNzlfVUxPNTZTd0VzamM1WFZiV3NGS1pjcEpYLTZJWU9GajN4MmxjV3o2Q3FySjVuMHVWamJNZENvN01Pa1BVbVZGa3Y5SUR4TDVuQ25vUVdTdWxXYkJQQTdxYy16Q09kQk04blBVaFZUSjZnbWt2N0hkOXI3YnpLS0Q1V0JZenF4OF9j0gG0AUFVX3lxTE1RNTU3aEVaZldCVGx2dzlvVHhDNFNaUmh2aC12WlB4Y0dRNWZuMDR4YksyVnlRMzJmSlNZQTFqTHNocFpZcWFSYTJfczZzZEY0ZVRSeERUN0JzLXFuNThnaHdHNjhSX0pUaFdXcGJXbmNCZHBMaDI4MDVZVzVsMjdELU5mV1ZhSllXWlN0Wk54RWhHOHVkV0RHVGpueHp4UXRMZzM2UW80UzJWOV80NWZPa3Y5TQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
