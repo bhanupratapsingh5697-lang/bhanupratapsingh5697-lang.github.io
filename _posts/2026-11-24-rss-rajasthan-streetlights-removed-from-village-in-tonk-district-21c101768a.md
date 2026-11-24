@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Streetlights removed from village in Tonk district after BJP loses Panchayat polls - Scroll.in"
+date: 2026-11-24 09:31:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxQcWJjTVhrU1ZRNDYwOHlhNWVRQUZ5NFBsQk5mVXVHX1Y5dDhBcXpSd3lGbGNOQjExejhjVXExamlINldzRmczYWltSHVMVnhJMGI1X1hKWDBhOEh5azExSmJuQWNTWU03aEl5bDlzc1dPVGlqR3RTOFljZEZGS1Ezd3AxNWJtU2VpR1ZJSVl5a2w0Um4tc0FqZW1icHB4WTV4alFfWjdHVGVuWWdicUp4RDVhdlYweWJkcGV1cXAxR0FDTTjSAcgBQVVfeXFMTk9HMERmeFBuNS1DUlFMMXRaTkRncXA3TzNjeFh1MldMdklGSmpVQVZpaVFZaG1RbkotSGhoRy1QZ190dlJhOWJhaWtVSmQtX0NzQVdZUV9qVWpqTnMyQmp1VTFsUXpuNzhCY0JaRno1M2hkSnBsMnNXRXgzMTZkeF9QZ1pCMmJhN1NadWJaWnpPck9WRTJRZ3Z2RjViaDFPM2JoZUdneEYzOGxQamlScFFlZDk0RjlVM3FETjdlUXJXejJkME5kank?oc=5"
+---
+
+Rajasthan: Streetlights removed from village in Tonk district after BJP loses Panchayat polls Scroll.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxQcWJjTVhrU1ZRNDYwOHlhNWVRQUZ5NFBsQk5mVXVHX1Y5dDhBcXpSd3lGbGNOQjExejhjVXExamlINldzRmczYWltSHVMVnhJMGI1X1hKWDBhOEh5azExSmJuQWNTWU03aEl5bDlzc1dPVGlqR3RTOFljZEZGS1Ezd3AxNWJtU2VpR1ZJSVl5a2w0Um4tc0FqZW1icHB4WTV4alFfWjdHVGVuWWdicUp4RDVhdlYweWJkcGV1cXAxR0FDTTjSAcgBQVVfeXFMTk9HMERmeFBuNS1DUlFMMXRaTkRncXA3TzNjeFh1MldMdklGSmpVQVZpaVFZaG1RbkotSGhoRy1QZ190dlJhOWJhaWtVSmQtX0NzQVdZUV9qVWpqTnMyQmp1VTFsUXpuNzhCY0JaRno1M2hkSnBsMnNXRXgzMTZkeF9QZ1pCMmJhN1NadWJaWnpPck9WRTJRZ3Z2RjViaDFPM2JoZUdneEYzOGxQamlScFFlZDk0RjlVM3FETjdlUXJXejJkME5kank?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

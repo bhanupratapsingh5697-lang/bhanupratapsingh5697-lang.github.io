@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India a cut above New Zealand but cut down to size by the pitch - Cricinfo"
+date: 2026-11-23 15:42:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0AFBVV95cUxPVnQ5WEM5MjZ2Mkx3c0FCNi1tYXdrQVd2WWc1Qm1OSjRqSldlZDZ0eVFsSnVaWXQyVzEtdmxJd19GU1ltSDdkVjdWTXRBTzkwUC1hN3NlSW1NZTQyVFp4d283OWJDVzRhNkhaTTJLTGYxY2tnTGJIamNfWS05OXYwMlRRTzRsUE1lRkpDTF9uRHJ3NHg0M3h4RHdLTzI0cVkyWHc0LTRuZ29keUdzUk5PVkhsLXRWUjVBcmFlRFFLMTZMWWhUTHpBdTAwcG41MWxF0gHiAUFVX3lxTE5lOHFSQUcya3VvdVZXWk9sbVpzSEJ5cmtsMWhxSEtHb2NEQnlxR3hGT3ZUZWxQS2tlMjU2YklqU0ZWNFFvX2JWbGNpZWw5MTRWOEswLXh0Y1VpLXhfZE9aWTNOMGVPUXJpMVAzbmNwWFNPOUNTVzQ1c3oxT3lUc3paaUhOQ3lGTWhNaUN4U1QwelBaTkltUGdBNU1EMnNQUTJpSFdCYkZMcEZ2YXh3U1U1VHhFTVpXWkJzdEVZbTliVkxMcW5jMzQ3dko4UTkydVF2Z2psZ2E4WjZGZjRVQ2oxaWc?oc=5"
+---
+
+India a cut above New Zealand but cut down to size by the pitch Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0AFBVV95cUxPVnQ5WEM5MjZ2Mkx3c0FCNi1tYXdrQVd2WWc1Qm1OSjRqSldlZDZ0eVFsSnVaWXQyVzEtdmxJd19GU1ltSDdkVjdWTXRBTzkwUC1hN3NlSW1NZTQyVFp4d283OWJDVzRhNkhaTTJLTGYxY2tnTGJIamNfWS05OXYwMlRRTzRsUE1lRkpDTF9uRHJ3NHg0M3h4RHdLTzI0cVkyWHc0LTRuZ29keUdzUk5PVkhsLXRWUjVBcmFlRFFLMTZMWWhUTHpBdTAwcG41MWxF0gHiAUFVX3lxTE5lOHFSQUcya3VvdVZXWk9sbVpzSEJ5cmtsMWhxSEtHb2NEQnlxR3hGT3ZUZWxQS2tlMjU2YklqU0ZWNFFvX2JWbGNpZWw5MTRWOEswLXh0Y1VpLXhfZE9aWTNOMGVPUXJpMVAzbmNwWFNPOUNTVzQ1c3oxT3lUc3paaUhOQ3lGTWhNaUN4U1QwelBaTkltUGdBNU1EMnNQUTJpSFdCYkZMcEZ2YXh3U1U1VHhFTVpXWkJzdEVZbTliVkxMcW5jMzQ3dko4UTkydVF2Z2psZ2E4WjZGZjRVQ2oxaWc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

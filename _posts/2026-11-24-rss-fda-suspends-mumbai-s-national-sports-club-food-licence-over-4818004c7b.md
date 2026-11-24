@@ -1,0 +1,17 @@
+---
+layout: post
+title: "FDA suspends Mumbai’s National Sports Club food licence over cockroaches, hygiene lapses - The Statesman"
+date: 2026-11-24 11:37:00 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxPMFBTdVp6VTI2X3JhZEF5akpNWnZqc1JJZTlyTmp5Ml9TX1pyc1diM0ctT0haNEpEenhOcXl1eTQzenpsZ0ROVFhUaV9RRWVPeEFMSGpHd1Q0VTlmVlFEalkzU0I2WkRUamRoSUpkOWhrWjZWOG9JTWp0MFQtNXVaay04VW9NZmlfSUJQeDRUMGtTTU1UZlpBcHJ1VUJweFQ3dWljZ1lYZzN5bEMySTVIR212UUZyZnRLREd3eDBrR1JvTkMyYVhiN3NldFYyUGRmN3ltS9IB2gFBVV95cUxPQmlqa1JsdWR6TmgyMEotNzZrdnZ2RldCSGpMQnpOR3QtV0pINGVJZFlEUTBvYUxlUnRvN010ZnIzYWUwVktJOVI1YUZ3TUpYX1ZhTGtocUxHZnpKRUoxWXhXeEVjOHBvWmpzWXh2dlliMHdDV3RrdDVXdXlORkpwMEV4Q3dhc1g5Q0ZMNktkTWNzbGVfQ19TaGtYMDE5Q0Z0MjdmbW5yRE9ucklERExhOS1MQ2ktQ250XzFFT21pR0FuZkxGNHdQRUNEMjdvUTZudU4wNUEzU0JVZw?oc=5"
+---
+
+FDA suspends Mumbai’s National Sports Club food licence over cockroaches, hygiene lapses The Statesman
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxPMFBTdVp6VTI2X3JhZEF5akpNWnZqc1JJZTlyTmp5Ml9TX1pyc1diM0ctT0haNEpEenhOcXl1eTQzenpsZ0ROVFhUaV9RRWVPeEFMSGpHd1Q0VTlmVlFEalkzU0I2WkRUamRoSUpkOWhrWjZWOG9JTWp0MFQtNXVaay04VW9NZmlfSUJQeDRUMGtTTU1UZlpBcHJ1VUJweFQ3dWljZ1lYZzN5bEMySTVIR212UUZyZnRLREd3eDBrR1JvTkMyYVhiN3NldFYyUGRmN3ltS9IB2gFBVV95cUxPQmlqa1JsdWR6TmgyMEotNzZrdnZ2RldCSGpMQnpOR3QtV0pINGVJZFlEUTBvYUxlUnRvN010ZnIzYWUwVktJOVI1YUZ3TUpYX1ZhTGtocUxHZnpKRUoxWXhXeEVjOHBvWmpzWXh2dlliMHdDV3RrdDVXdXlORkpwMEV4Q3dhc1g5Q0ZMNktkTWNzbGVfQ19TaGtYMDE5Q0Z0MjdmbW5yRE9ucklERExhOS1MQ2ktQ250XzFFT21pR0FuZkxGNHdQRUNEMjdvUTZudU4wNUEzU0JVZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

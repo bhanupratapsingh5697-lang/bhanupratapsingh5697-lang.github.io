@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Video: Chaos as stray bulls storm Rajasthan shop, men take cover behind counter - India Today"
+date: 2026-11-23 23:59:56 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2AFBVV95cUxOeEtsZU1qX3VrREFMRTJ6NG9mX3BYMWdUR0UzT1FsaTVDd3htS3MyRnFVWW1oenk5ZnE4WTdJM2NOS3dPNnpsbW0zWGVYYXhXLVhkdzN0aHZJc1JDQ0ZmcWxzUGs0eGRwYlNWZ2VHeWlabXRGeklxRkFVemI3VHZSbmFRbVRMR2lUQlloN3YyNFR2WElBMHMzUk1aRzBua3d3bG1PeVdacTB2YVU4aHBmd0V3T2QxSjdGVXVNQWp3eUdNcndmZHZKcjU2VE84cHJCVHRkNEVnam3SAd4BQVVfeXFMTlQ5SlZwVmc2Sm1nc21wNDZmTTVsblJyMzE1enVlVlZtY2tBcmZxdUdOc00tbW5Odnc3c3RTeUpCQXBVbEJtQmpBWVAxaDZMcWtVRGExc0FTd2RzcUVHTHJuTzZia3dFYXFRems2bkZmelVhRGF3emZKREhWdHNJUHg4Y2lEaG51a3RvcHRFVEcxckxiZzk1ejZNSzBNaXE2QlFaZWpaeTQwQ1dkdTZTd1I3RE5YSGh1bXdxZU9FZXBHVjVSUWROM2FXN2dfVy1aRjRYYm44RnY5S3ZXTG1n?oc=5"
+---
+
+Video: Chaos as stray bulls storm Rajasthan shop, men take cover behind counter India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2AFBVV95cUxOeEtsZU1qX3VrREFMRTJ6NG9mX3BYMWdUR0UzT1FsaTVDd3htS3MyRnFVWW1oenk5ZnE4WTdJM2NOS3dPNnpsbW0zWGVYYXhXLVhkdzN0aHZJc1JDQ0ZmcWxzUGs0eGRwYlNWZ2VHeWlabXRGeklxRkFVemI3VHZSbmFRbVRMR2lUQlloN3YyNFR2WElBMHMzUk1aRzBua3d3bG1PeVdacTB2YVU4aHBmd0V3T2QxSjdGVXVNQWp3eUdNcndmZHZKcjU2VE84cHJCVHRkNEVnam3SAd4BQVVfeXFMTlQ5SlZwVmc2Sm1nc21wNDZmTTVsblJyMzE1enVlVlZtY2tBcmZxdUdOc00tbW5Odnc3c3RTeUpCQXBVbEJtQmpBWVAxaDZMcWtVRGExc0FTd2RzcUVHTHJuTzZia3dFYXFRems2bkZmelVhRGF3emZKREhWdHNJUHg4Y2lEaG51a3RvcHRFVEcxckxiZzk1ejZNSzBNaXE2QlFaZWpaeTQwQ1dkdTZTd1I3RE5YSGh1bXdxZU9FZXBHVjVSUWROM2FXN2dfVy1aRjRYYm44RnY5S3ZXTG1n?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

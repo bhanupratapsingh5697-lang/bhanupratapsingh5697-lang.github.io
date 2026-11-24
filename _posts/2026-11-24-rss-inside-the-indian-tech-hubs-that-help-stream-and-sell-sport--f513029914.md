@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Inside the Indian tech hubs that help stream and sell sport worldwide - Business Standard"
+date: 2026-11-24 13:10:35 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxPU3p0VjRURFktdWFRazlVY2R4c2RiTDhMaGVDaHBseU5US2lwY0sxaTdwbkFKRGEwVjAxV0ptb1dJb29Jb21DZ1plSGl2VHZwdllmSHluTVpfaWlmSXowVENaMTlnQ1RXVnRIMjVmQWtjWW1wcUJ1Z2JKakpOWjg5aG1wNE85dWhrcVR4T1pwbWxSdTNYRVFqbTNIMVVvd002UXdfelJCdjNRQV9La2M0ZEdsbEtCM1JfS0pCWDdSU3BFZkh5WXBQYTM2dC1adldaN2tlYXRR0gHbAUFVX3lxTFBMOWtRaUJIWkh2N01FRm9FT1FzLVRocUstVUNOdVVlQktiaFJWeHd6TUd2RzNIbmVfZGxhQURmcklneG9BYUVvZmRUUXFUMTk1dlZVZlh5MDNzeTBMLUlrRXdhaGNHbXZZdmx5aVpHZzF1dTV5YWpwMTNfYTJ1MHB3VjVZRk0zOWwtRU1YRnEwakhrVzVUVmtFLVRzd0k4YWhfOGRzbDhVdmN1TGItdVRfMGFJN3paVWVFZEd0M25rYUNIbHZ4NkxSSkpsVkFOS3dwcHc4TXhxc01USQ?oc=5"
+---
+
+Inside the Indian tech hubs that help stream and sell sport worldwide Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxPU3p0VjRURFktdWFRazlVY2R4c2RiTDhMaGVDaHBseU5US2lwY0sxaTdwbkFKRGEwVjAxV0ptb1dJb29Jb21DZ1plSGl2VHZwdllmSHluTVpfaWlmSXowVENaMTlnQ1RXVnRIMjVmQWtjWW1wcUJ1Z2JKakpOWjg5aG1wNE85dWhrcVR4T1pwbWxSdTNYRVFqbTNIMVVvd002UXdfelJCdjNRQV9La2M0ZEdsbEtCM1JfS0pCWDdSU3BFZkh5WXBQYTM2dC1adldaN2tlYXRR0gHbAUFVX3lxTFBMOWtRaUJIWkh2N01FRm9FT1FzLVRocUstVUNOdVVlQktiaFJWeHd6TUd2RzNIbmVfZGxhQURmcklneG9BYUVvZmRUUXFUMTk1dlZVZlh5MDNzeTBMLUlrRXdhaGNHbXZZdmx5aVpHZzF1dTV5YWpwMTNfYTJ1MHB3VjVZRk0zOWwtRU1YRnEwakhrVzVUVmtFLVRzd0k4YWhfOGRzbDhVdmN1TGItdVRfMGFJN3paVWVFZEd0M25rYUNIbHZ4NkxSSkpsVkFOS3dwcHc4TXhxc01USQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

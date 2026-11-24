@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan High Court Defers Interim Relief On IAS Officer Shikhar Agrawal's Plea In Corruption Case Over... - Live Law"
+date: 2026-11-21 10:45:48 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi4gFBVV95cUxONDMtaEJNTU0xNVNQOVZjcGJ2c2dDVlV0bmJvaEZHamRMcE5oQjNxZXV2RFhlVUJNeVJuY1RvWmV2OU5VeU5LOXBUbTFsT3ZJcWZWc2hjWWZTX0s4Y2VuRFkzeVhlZ3ROVjhIc0J6Ti1pVXFRNjBHQ05scTJ2eDVOOTJheWxXT1czLTl1a04tMFkxSF9HZ2Z2Y3R4OWRzZllTV1dRNl9XaWxaQk11WERIZDFpWGxBUEtDSDNWYmRTdUY4N2cxZjhVb29ISWUtVGVNZ2lXOV83ZjlfaGRmUHkzVFJR0gHnAUFVX3lxTFBYQVExQzh6Y3JuQmJjME5Rd3ZZNjRQTGE3clp6UnN3YS1GcjNvMHJwelJOdlBQNnBmdlIxREpaZnpHeTZ0VzlWODRHU0plcndxZkhWYW1TVHJRd01Ibm85UU1ablhMc05fdm90bExVZVBaSkVXbjI5SU82QWt4bnBQUzNjTHhLY1V0VE04R3lzSFNXSTZQYUtKenF1cDdKcGlwQnhPdk82NXRkZjZxTnVvbVNrYW5DcnJ3SWsyd1Baa0w3cmg4TnVJbDV4bEFHaGVJVW9UOUZKLV9jelRBMzk5cXJCTWpOYw?oc=5"
+---
+
+Rajasthan High Court Defers Interim Relief On IAS Officer Shikhar Agrawal's Plea In Corruption Case Over... Live Law
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4gFBVV95cUxONDMtaEJNTU0xNVNQOVZjcGJ2c2dDVlV0bmJvaEZHamRMcE5oQjNxZXV2RFhlVUJNeVJuY1RvWmV2OU5VeU5LOXBUbTFsT3ZJcWZWc2hjWWZTX0s4Y2VuRFkzeVhlZ3ROVjhIc0J6Ti1pVXFRNjBHQ05scTJ2eDVOOTJheWxXT1czLTl1a04tMFkxSF9HZ2Z2Y3R4OWRzZllTV1dRNl9XaWxaQk11WERIZDFpWGxBUEtDSDNWYmRTdUY4N2cxZjhVb29ISWUtVGVNZ2lXOV83ZjlfaGRmUHkzVFJR0gHnAUFVX3lxTFBYQVExQzh6Y3JuQmJjME5Rd3ZZNjRQTGE3clp6UnN3YS1GcjNvMHJwelJOdlBQNnBmdlIxREpaZnpHeTZ0VzlWODRHU0plcndxZkhWYW1TVHJRd01Ibm85UU1ablhMc05fdm90bExVZVBaSkVXbjI5SU82QWt4bnBQUzNjTHhLY1V0VE04R3lzSFNXSTZQYUtKenF1cDdKcGlwQnhPdk82NXRkZjZxTnVvbVNrYW5DcnJ3SWsyd1Baa0w3cmg4TnVJbDV4bEFHaGVJVW9UOUZKLV9jelRBMzk5cXJCTWpOYw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

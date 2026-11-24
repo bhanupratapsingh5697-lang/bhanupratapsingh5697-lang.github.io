@@ -1,0 +1,17 @@
+---
+layout: post
+title: "A legendary philosopher isn’t buying Anthropic’s consciousness argument - MIT Technology Review"
+date: 2026-11-23 23:06:08 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxPOVJjY0Z0eXltTjlvZFE1YkNJNGFPYUhjY3k3QUExczJNbkc0dGZzeHVndVZwQ1VzRmYyY2hjX0pqdWtfTTEyS0ZqVVYzajlMSVViZGppWFlqRThpbW5BNGdsemJOQk9kcVc5VmFEcnFsandWUy1hM2JkNWIwOTN2RzBRbWVwNWN5MTZCaEdsQVB4OEpUSDNiZDIzaHlQdnd0Yzg5blhhUHFHcnBaQmViaEhjQ2JxdnkwWnNSdVNOONIBxAFBVV95cUxNa1ZNcWxfTVFmYnpIWGh0Q21UaE9KbnBydERsMDZINEJuTHktSldwdXFmaXhJXzNoUnRQWkxsNHk4WHlacWdyMU9NMHM0M2tOQ1VZbDJ3NGlrRTI2ekFrajgyclVFeUlzZ3NqREV3clM4R2UycDlleW1uMmtMSmdaUVlOdjl2S1VvSGM0ZmEzaGRNZjlXTzVCN1RqblhwbndacGJMdVU1NFZLUzM3M01oM2RZY0pzZXZFOHBFME5FQ25tSlNx?oc=5"
+---
+
+A legendary philosopher isn’t buying Anthropic’s consciousness argument MIT Technology Review
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxPOVJjY0Z0eXltTjlvZFE1YkNJNGFPYUhjY3k3QUExczJNbkc0dGZzeHVndVZwQ1VzRmYyY2hjX0pqdWtfTTEyS0ZqVVYzajlMSVViZGppWFlqRThpbW5BNGdsemJOQk9kcVc5VmFEcnFsandWUy1hM2JkNWIwOTN2RzBRbWVwNWN5MTZCaEdsQVB4OEpUSDNiZDIzaHlQdnd0Yzg5blhhUHFHcnBaQmViaEhjQ2JxdnkwWnNSdVNOONIBxAFBVV95cUxNa1ZNcWxfTVFmYnpIWGh0Q21UaE9KbnBydERsMDZINEJuTHktSldwdXFmaXhJXzNoUnRQWkxsNHk4WHlacWdyMU9NMHM0M2tOQ1VZbDJ3NGlrRTI2ekFrajgyclVFeUlzZ3NqREV3clM4R2UycDlleW1uMmtMSmdaUVlOdjl2S1VvSGM0ZmEzaGRNZjlXTzVCN1RqblhwbndacGJMdVU1NFZLUzM3M01oM2RZY0pzZXZFOHBFME5FQ25tSlNx?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

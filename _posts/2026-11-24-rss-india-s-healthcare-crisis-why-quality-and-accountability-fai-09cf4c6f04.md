@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India’s Healthcare Crisis: Why Quality and Accountability Fail - Frontline Magazine"
+date: 2026-11-24 12:37:02 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirgFBVV95cUxOYVdFVl9OcFBDRURQTVZ5YldyNXpCNUdmMmVFYWxpdWduQVNyV2lrX2ZaWjBGT1hjM1VLSWhLcVVSdENITUlDRGJrWXk5VHBmZExrQktoNUo2VjBEV3BoQ1o1VGtvdHVsUDBlN0hfTGlYWG13UFZldWJuaEZMbk9BQWp2bDFUakJaSmE4ekdYb2N0OUt3a2xqLWtxUG9lTHNRcC1zYjF0QndMTzEzT0HSAbQBQVVfeXFMTy1RUDhnRWlPblRmQ2x5TDRuY0RNdFY4VENHTE1VWnFqZ1VPcDkzcmRJdGFLVVl0Rk9oUXJ3SXU0U1FfU1d1RzdzVUIxOWlMV2NEM3A0OVVfUlk2NEt6X3MzSnNJaTY1cXlaS1ppUXNiVlQ3Q0Rnek5la0JxNDZTNWhlaTVuNXFJVFd2TGZhZEdPa3FjUnlLLXFoWDc1VXRGZEZFMzVfT1Q5cnV3ZnUyMzE0QXlW?oc=5"
+---
+
+India’s Healthcare Crisis: Why Quality and Accountability Fail Frontline Magazine
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirgFBVV95cUxOYVdFVl9OcFBDRURQTVZ5YldyNXpCNUdmMmVFYWxpdWduQVNyV2lrX2ZaWjBGT1hjM1VLSWhLcVVSdENITUlDRGJrWXk5VHBmZExrQktoNUo2VjBEV3BoQ1o1VGtvdHVsUDBlN0hfTGlYWG13UFZldWJuaEZMbk9BQWp2bDFUakJaSmE4ekdYb2N0OUt3a2xqLWtxUG9lTHNRcC1zYjF0QndMTzEzT0HSAbQBQVVfeXFMTy1RUDhnRWlPblRmQ2x5TDRuY0RNdFY4VENHTE1VWnFqZ1VPcDkzcmRJdGFLVVl0Rk9oUXJ3SXU0U1FfU1d1RzdzVUIxOWlMV2NEM3A0OVVfUlk2NEt6X3MzSnNJaTY1cXlaS1ppUXNiVlQ3Q0Rnek5la0JxNDZTNWhlaTVuNXFJVFd2TGZhZEdPa3FjUnlLLXFoWDc1VXRGZEZFMzVfT1Q5cnV3ZnUyMzE0QXlW?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan: Two Men Narrowly Escape As Fighting Bulls Crash Into Mobile Shop (WATCH) - Asianet Newsable"
+date: 2026-11-24 01:06:26 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxOOHZwZHRlVWFDLWtpclloZ2kwVEZ2ajQzRVBPZXVtdTdDd2duaFR3N3hRd2V3RGI1QkNBMm4tYjYwOVBSSU9pUzhwY0FPb0YwM2hsZEFuM2cxRHpqVjdvSlRpWHB1Mkduems2azdURzdtTG5wMVFOUVpSRWdTMG53Si1BcXVoS2FsX19GVV9FaW1YSHVpOEJsZjk4MGpTcGFONkNnUGhDWURwUUdNdkN4cEt3MnZqNDJVZUc2dk9RMTA1VWp4M05qLS1PeERZYWlpMXBMemd30gHbAUFVX3lxTE44ME4tUWJPeUMxNldsV2k0UVlCSjA1aWZ4OUZlaVllaHZqalAtaC1DRmtlc2gtRGJfb3BOdDhRd2F1dXRpdjRqVXhCcVZpc29nM0dLUnNYX1RZSVQ3R3RtbEVjdWpLbG9oY29Gbll1WmdvZVBxaERzOTVJbnFrR0NLTDFhYnFUWWFCTllSdzNzc2V3VnB2dEZsOE9xMHJFd0E0bVVGVEJGZjhrVlF1N1pja19DWHVKcDhidzdiNEFob3hVMXh2N3NtTVF3aTl1N0VOSEZzcE05YmpRaw?oc=5"
+---
+
+Rajasthan: Two Men Narrowly Escape As Fighting Bulls Crash Into Mobile Shop (WATCH) Asianet Newsable
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOOHZwZHRlVWFDLWtpclloZ2kwVEZ2ajQzRVBPZXVtdTdDd2duaFR3N3hRd2V3RGI1QkNBMm4tYjYwOVBSSU9pUzhwY0FPb0YwM2hsZEFuM2cxRHpqVjdvSlRpWHB1Mkduems2azdURzdtTG5wMVFOUVpSRWdTMG53Si1BcXVoS2FsX19GVV9FaW1YSHVpOEJsZjk4MGpTcGFONkNnUGhDWURwUUdNdkN4cEt3MnZqNDJVZUc2dk9RMTA1VWp4M05qLS1PeERZYWlpMXBMemd30gHbAUFVX3lxTE44ME4tUWJPeUMxNldsV2k0UVlCSjA1aWZ4OUZlaVllaHZqalAtaC1DRmtlc2gtRGJfb3BOdDhRd2F1dXRpdjRqVXhCcVZpc29nM0dLUnNYX1RZSVQ3R3RtbEVjdWpLbG9oY29Gbll1WmdvZVBxaERzOTVJbnFrR0NLTDFhYnFUWWFCTllSdzNzc2V3VnB2dEZsOE9xMHJFd0E0bVVGVEJGZjhrVlF1N1pja19DWHVKcDhidzdiNEFob3hVMXh2N3NtTVF3aTl1N0VOSEZzcE05YmpRaw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "5.3 magnitude earthquake jolts Nepal; tremors felt across parts of eastern India - The Times of India"
+date: 2026-11-24 07:29:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxNc0t3al9wdmFRSG9IQm1ZR1otcThFa29XczV5aXM5T0dFYkp3aG5RY0l3QmZJQVh1TUdZa0lrZ1kxM3ZfUzZaNllDWEVvYmVXYmx3MXV1akVEcmJFQ0JBZFM1V3BFNUZJa2FoT0Y5QWpYWW56RnNlX0NjU2VNTE1QX29udHdQelREZTdZOHVrSnlieXg5eHZ5YnBPWmQ0dHE3Q2JXQm1sbmswbmtxNXlpVzFnUmxHajU3MnZaUVYxZzllS2JGSHlqU2JSa3ZhZ9IB0wFBVV95cUxOb2NYbGxSWWxvR3hYSnl5OVRpTzBlblJHbi1CMUc5WUdTTmNmN0NwZ1BnQUdQWWU2T1B4MWQ1Q0N1SmxRSVVKaUVvZ2h2azRxXzZlanJPNmY3OEJiZEdUalE2SC1nM2lRWWJnT3NWWmU3WU1EdmtMbWtsbUlNR3NsQ2g1NEJfWk05VlZuVDZBODdsRHNjSGVBMklzdXRxQXlYeWRvUGkzMmRnVExjOVFNM3dQQmduVkF4M2lhbFVBWmZaYkFpSHFjblUtaUVQRlJJc3NB?oc=5"
+---
+
+5.3 magnitude earthquake jolts Nepal; tremors felt across parts of eastern India The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxNc0t3al9wdmFRSG9IQm1ZR1otcThFa29XczV5aXM5T0dFYkp3aG5RY0l3QmZJQVh1TUdZa0lrZ1kxM3ZfUzZaNllDWEVvYmVXYmx3MXV1akVEcmJFQ0JBZFM1V3BFNUZJa2FoT0Y5QWpYWW56RnNlX0NjU2VNTE1QX29udHdQelREZTdZOHVrSnlieXg5eHZ5YnBPWmQ0dHE3Q2JXQm1sbmswbmtxNXlpVzFnUmxHajU3MnZaUVYxZzllS2JGSHlqU2JSa3ZhZ9IB0wFBVV95cUxOb2NYbGxSWWxvR3hYSnl5OVRpTzBlblJHbi1CMUc5WUdTTmNmN0NwZ1BnQUdQWWU2T1B4MWQ1Q0N1SmxRSVVKaUVvZ2h2azRxXzZlanJPNmY3OEJiZEdUalE2SC1nM2lRWWJnT3NWWmU3WU1EdmtMbWtsbUlNR3NsQ2g1NEJfWk05VlZuVDZBODdsRHNjSGVBMklzdXRxQXlYeWRvUGkzMmRnVExjOVFNM3dQQmduVkF4M2lhbFVBWmZaYkFpSHFjblUtaUVQRlJJc3NB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
