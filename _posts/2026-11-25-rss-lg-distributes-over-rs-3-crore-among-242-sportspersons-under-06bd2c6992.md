@@ -1,0 +1,17 @@
+---
+layout: post
+title: "LG distributes over Rs 3 crore among 242 sportspersons under Ladakh sports policy - ThePrint"
+date: 2026-11-25 18:19:04 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxQNUJrUjdHYXpncG9xNWx4VFFGWUZkM1NRRndOUnQ3a0J2bDByVkRQLXhUajR0Q3liZUQ1dU1KTlNsUGtvS2o4RkY0NDcxU0VEMDgtQjJDbTlYX19HVzRuQXZIdWRDcURIdG1VNUEwRG5DTFl6QkdMcGV6RnduRW9RSnh2djhTcmJVMHpOTm9PMFh4a053S0l0MVNqVWVMNGIzVy12R1dSMWpyMU5WWjNWZVZIaFRzblnSAbwBQVVfeXFMT1dPbHRaTW9JenVsNEJzU2xBaWoyOERTMUthTm93NUJuQ0p5c0FLdG1XV21Ea0U0bUFmMGctbTVVZ0ljeWE2WnROVVhIb3J2eWN2cWxuSHh4dHg1N0FjTnhaTHRBbkE5T0VWWnBQcS1sanNnQ0xVRnRyRGY2ZzFtdExnY082QXF2Y0NYV1FLN1NXTXhRT3BnTkE4dXhldWlMOVVLYVB5NzY4UWVmN3VkY1l0anQzWURsSFhJWFk?oc=5"
+---
+
+LG distributes over Rs 3 crore among 242 sportspersons under Ladakh sports policy ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxQNUJrUjdHYXpncG9xNWx4VFFGWUZkM1NRRndOUnQ3a0J2bDByVkRQLXhUajR0Q3liZUQ1dU1KTlNsUGtvS2o4RkY0NDcxU0VEMDgtQjJDbTlYX19HVzRuQXZIdWRDcURIdG1VNUEwRG5DTFl6QkdMcGV6RnduRW9RSnh2djhTcmJVMHpOTm9PMFh4a053S0l0MVNqVWVMNGIzVy12R1dSMWpyMU5WWjNWZVZIaFRzblnSAbwBQVVfeXFMT1dPbHRaTW9JenVsNEJzU2xBaWoyOERTMUthTm93NUJuQ0p5c0FLdG1XV21Ea0U0bUFmMGctbTVVZ0ljeWE2WnROVVhIb3J2eWN2cWxuSHh4dHg1N0FjTnhaTHRBbkE5T0VWWnBQcS1sanNnQ0xVRnRyRGY2ZzFtdExnY082QXF2Y0NYV1FLN1NXTXhRT3BnTkE4dXhldWlMOVVLYVB5NzY4UWVmN3VkY1l0anQzWURsSFhJWFk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

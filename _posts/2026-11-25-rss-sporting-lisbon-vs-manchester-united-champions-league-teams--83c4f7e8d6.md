@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sporting Lisbon vs Manchester United: Champions League – teams, prediction - Al Jazeera"
+date: 2026-11-25 14:40:46 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMitAFBVV95cUxQRDZkLXJXNU0tXzFYOFlGc1I3dlVYSnRvWkNGQm5ILW5KdTdodzhZN0Vuc3A0blQ1MWY0MURCbjdWbzJjVVdIVmQwTEtFaWxtWnNxNXF1VHFnRFhiWkUxNDF5eE4xbWhvckthY05OQ1hkc3hEZVZ4X3B6V0ZkSlo3M0tJY1NoVmNRcGg5QVp2WmhjSUs0M3pETTVVdExVZGJLUU9XNmRUcDkzdDFCQkFSZjl2TUjSAboBQVVfeXFMTTBQemxvbmpCdFBjZmdkT29lOU1PaWJiMk9MNE9sSDRrNXlkeVB6eXRMTUtfc2doTnZ4V3JqZXhyT1NScExydnlGVmpOVmRwTy1IelhsekQ0ZlhndkUtVmkyWC04ZmJpZG5oelhwQ2dhTjRUdkhXMWtta1pjaVVxS0R3NXVwaGV4WlFfSkkxS0JaZFZpOV9ya3MzSXdCMjAzLTlkM0tsMGVuMzh4M2Y4WGM5U0ZDdUVLLVBB?oc=5"
+---
+
+Sporting Lisbon vs Manchester United: Champions League – teams, prediction Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitAFBVV95cUxQRDZkLXJXNU0tXzFYOFlGc1I3dlVYSnRvWkNGQm5ILW5KdTdodzhZN0Vuc3A0blQ1MWY0MURCbjdWbzJjVVdIVmQwTEtFaWxtWnNxNXF1VHFnRFhiWkUxNDF5eE4xbWhvckthY05OQ1hkc3hEZVZ4X3B6V0ZkSlo3M0tJY1NoVmNRcGg5QVp2WmhjSUs0M3pETTVVdExVZGJLUU9XNmRUcDkzdDFCQkFSZjl2TUjSAboBQVVfeXFMTTBQemxvbmpCdFBjZmdkT29lOU1PaWJiMk9MNE9sSDRrNXlkeVB6eXRMTUtfc2doTnZ4V3JqZXhyT1NScExydnlGVmpOVmRwTy1IelhsekQ0ZlhndkUtVmkyWC04ZmJpZG5oelhwQ2dhTjRUdkhXMWtta1pjaVVxS0R3NXVwaGV4WlFfSkkxS0JaZFZpOV9ya3MzSXdCMjAzLTlkM0tsMGVuMzh4M2Y4WGM5U0ZDdUVLLVBB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "‘Inequality emergency’ looming over India: Economist Jayati Ghosh - The Hindu"
+date: 2026-11-26 02:00:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxNMXBQQW5FdWdjLU9NNTQxS1pXYTl1TVFTZFpQel9haWFMUDVObXhHbkdEVXZHSTNVVzhDVVN1TXZ1b1ZfUTdISHJLMENSZHFGejlpcG5IeHdPQTBWcVRaMjREdU1sV2VRU2hxcFAxTUYxd3NGQU9GbFI4NHRKdGZUTWhYQzZ2eTZwempOclBfYVFlSjF1T0hJMTEwTlAzTW9jenhQYW1taXBLUVNnaFgzeWgtNEtFWVVmY3p6b3Zn0gHEAUFVX3lxTE5SNjFUdlJTeFExc0k3dnV2WFYwcTAyX1ExSUZPYS13QVN3b0JhTzkzWWtjY01YenV2VjFyUDltZkV6OHc4ZWt5eXhwTW8wYXdEMGxiV1J3bW1JcnFqcGF5ZW1pYmZVRGFqZHJHX01NVTBSTHltTTVFaE1mM21SYThpNVFNYTRFUkF1ZWNaS1kwSFhMY25UcUJZdy03ZWZwTkU1NlI0blY1NmlnX0hzUTNNWmlGandscTVlcjdobUNGWTJPYlY?oc=5"
+---
+
+‘Inequality emergency’ looming over India: Economist Jayati Ghosh The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxNMXBQQW5FdWdjLU9NNTQxS1pXYTl1TVFTZFpQel9haWFMUDVObXhHbkdEVXZHSTNVVzhDVVN1TXZ1b1ZfUTdISHJLMENSZHFGejlpcG5IeHdPQTBWcVRaMjREdU1sV2VRU2hxcFAxTUYxd3NGQU9GbFI4NHRKdGZUTWhYQzZ2eTZwempOclBfYVFlSjF1T0hJMTEwTlAzTW9jenhQYW1taXBLUVNnaFgzeWgtNEtFWVVmY3p6b3Zn0gHEAUFVX3lxTE5SNjFUdlJTeFExc0k3dnV2WFYwcTAyX1ExSUZPYS13QVN3b0JhTzkzWWtjY01YenV2VjFyUDltZkV6OHc4ZWt5eXhwTW8wYXdEMGxiV1J3bW1JcnFqcGF5ZW1pYmZVRGFqZHJHX01NVTBSTHltTTVFaE1mM21SYThpNVFNYTRFUkF1ZWNaS1kwSFhMY25UcUJZdy03ZWZwTkU1NlI0blY1NmlnX0hzUTNNWmlGandscTVlcjdobUNGWTJPYlY?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

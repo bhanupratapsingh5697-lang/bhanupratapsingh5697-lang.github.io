@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Telangana CM Revanth Reddy: Khelo India Games To Make State Global Sports Hub - Rediff.com"
+date: 2026-11-25 19:13:10 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMitwFBVV95cUxOQWhPSVJNd3RncE9ISkdQVnVfY3JFMGJrbjd2b05neWJyX0Zfc2RENDRQNzdsTVQ1QzRrSlJoaWlnXzRNZmJBTjJQVGV0LWJ4c3plaDVQdllNYVhvYmFRYmRWal91RnVfb0phZGRpSlEydG9LMTdHMFpPaURONFNvYzdiT0Q1TVBJWWxVbVRvamJoWEhINWFNSjZBZEdzdTZoYjRWeldGNjZpdHROck9xcHBBSkhxeFHSAboBQVVfeXFMTmVvNDVSbkx6ai1GeTQweDluZmlEbUl0ZHhtTndGSEpRR1ZOd3VhZnQ2Z1Bnb1BTSkNvWkV4WFNtM3UwX2libDh1Qm9ORXByV1ZMMUtId3lXaTZvTGVBVUliMmQzVnpSTnROUGJWS2ljblNOaWtCOGNjaVZqb09XZTV6V0ZBWGZ4NXcxU0V6cjJpRmc1RHNjV1M1Mlhtei1ObHoyTGl4VEpEZ0V1YkJxYTY2bGZqWmhyY0lR?oc=5"
+---
+
+Telangana CM Revanth Reddy: Khelo India Games To Make State Global Sports Hub Rediff.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitwFBVV95cUxOQWhPSVJNd3RncE9ISkdQVnVfY3JFMGJrbjd2b05neWJyX0Zfc2RENDRQNzdsTVQ1QzRrSlJoaWlnXzRNZmJBTjJQVGV0LWJ4c3plaDVQdllNYVhvYmFRYmRWal91RnVfb0phZGRpSlEydG9LMTdHMFpPaURONFNvYzdiT0Q1TVBJWWxVbVRvamJoWEhINWFNSjZBZEdzdTZoYjRWeldGNjZpdHROck9xcHBBSkhxeFHSAboBQVVfeXFMTmVvNDVSbkx6ai1GeTQweDluZmlEbUl0ZHhtTndGSEpRR1ZOd3VhZnQ2Z1Bnb1BTSkNvWkV4WFNtM3UwX2libDh1Qm9ORXByV1ZMMUtId3lXaTZvTGVBVUliMmQzVnpSTnROUGJWS2ljblNOaWtCOGNjaVZqb09XZTV6V0ZBWGZ4NXcxU0V6cjJpRmc1RHNjV1M1Mlhtei1ObHoyTGl4VEpEZ0V1YkJxYTY2bGZqWmhyY0lR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

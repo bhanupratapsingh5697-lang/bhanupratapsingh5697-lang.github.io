@@ -1,0 +1,17 @@
+---
+layout: post
+title: "IITs to add 6,000 seats in Robotics, Physical AI and Space Technology over 10 years - The New Indian Express"
+date: 2026-11-25 23:26:19 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxPcGJTbk0xeE1VYllnaU1fQkFNUXFTajZ4N3o4MEZsZk9xT2o5UEtIakVTSU9HV3RiemJCbGtYZlJqR0FLQkpkY2QyeEM2X3dlcEFlQ3dOSFBUeFRIVnZUWTRRajdhVzREdGpvdG9TZ2ZpVXFkaW9RcXVkNXlzM084NG1RanNjYll3blNWMlVyQ0V0emtmdU9NaHEzaXFlbE8zQUhSTV9PVHpQS081Z3FMcVVmVHlBU2NfVEduclhHcldIVUZSSU11cXpZTHjSAdoBQVVfeXFMTzBSc2trcXYyMWtGd0psNlh4WXJxQlFFTTBvRV9yQldjMGpTQnBUWVlFQmFtM2tMcGw5eHg5MzdEWTFmeWFsQ2RISHpNSHlHZjBBRDZQckNleHJPRk9CWlNaYjZZRUs1dzFtNWpTSEwtNnctVnVsSFliQTBHd29EbW5ZWGROMk5ncURWQ1J0bC1WX1VhbUR1aDN3cXNTMmFPbEZHdnRicUlvMXRta2toNjlobmktbEMyTFN0UG5BUjV6YmNkYUdVaV94QzZfSnlPOGVzeFkxWUVINGc?oc=5"
+---
+
+IITs to add 6,000 seats in Robotics, Physical AI and Space Technology over 10 years The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxPcGJTbk0xeE1VYllnaU1fQkFNUXFTajZ4N3o4MEZsZk9xT2o5UEtIakVTSU9HV3RiemJCbGtYZlJqR0FLQkpkY2QyeEM2X3dlcEFlQ3dOSFBUeFRIVnZUWTRRajdhVzREdGpvdG9TZ2ZpVXFkaW9RcXVkNXlzM084NG1RanNjYll3blNWMlVyQ0V0emtmdU9NaHEzaXFlbE8zQUhSTV9PVHpQS081Z3FMcVVmVHlBU2NfVEduclhHcldIVUZSSU11cXpZTHjSAdoBQVVfeXFMTzBSc2trcXYyMWtGd0psNlh4WXJxQlFFTTBvRV9yQldjMGpTQnBUWVlFQmFtM2tMcGw5eHg5MzdEWTFmeWFsQ2RISHpNSHlHZjBBRDZQckNleHJPRk9CWlNaYjZZRUs1dzFtNWpTSEwtNnctVnVsSFliQTBHd29EbW5ZWGROMk5ncURWQ1J0bC1WX1VhbUR1aDN3cXNTMmFPbEZHdnRicUlvMXRta2toNjlobmktbEMyTFN0UG5BUjV6YmNkYUdVaV94QzZfSnlPOGVzeFkxWUVINGc?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

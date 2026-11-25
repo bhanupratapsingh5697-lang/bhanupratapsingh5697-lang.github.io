@@ -1,0 +1,17 @@
+---
+layout: post
+title: "WTC final race: New Zealand and India's chances take a hit after Wellington draw - Cricinfo"
+date: 2026-11-23 14:43:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxOR20yVGllTVNCOENGeUtocE9vR0RycmJDR0xBeFljZEVVSzhuTVAxdzUxX2VLRVVkOHAyemNqUFBJQ3h0MVdDYWF1Y1BRY1BrMGJ5ZDMydERJeEc5MmFVN3QyWVNpZEdndlVhNmdNdk5KWGduM2wtVDJIYU5mVFZFZHFCX0VGaEtCUnBUSFkwSkRwMmtzdU9aeDNkWWQ3ZEZtTFpQc0E5NUZETVZLa3YzVFBkQlJwTzQxbzBWYVZpaDR0UWlrRDVCM3E5dU5yVk1KdFhTTnRoaEZtUdIB6wFBVV95cUxQMHMtbmlRSlpxTVlTUjc0NUs5OHpLU0lMaWxPdm1zS0dYQTl4QnBVal9CdUlWZ3JrUFBobnZNRGtRWk1Vd0RIWXEyZXhpbWJybDlMVnJYRFZiTUE0c0tYY1FJX2pzZGU4azItZFdmRWZRM1ZvX3JsR09jR3paLURPaW84aHh4czBKTnlyLXNESkR6QlE1SHM5Rll4UnNIVmVMbU9RdXFIOU82SEVnUmlQUkZhVUI3ak1ZaTdTTnktbzRWOGpCMm9JcUotOVdPN3dHOUNNRS1wcmRJX1R2by03eTJvNzVld3AwUS1N?oc=5"
+---
+
+WTC final race: New Zealand and India's chances take a hit after Wellington draw Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2gFBVV95cUxOR20yVGllTVNCOENGeUtocE9vR0RycmJDR0xBeFljZEVVSzhuTVAxdzUxX2VLRVVkOHAyemNqUFBJQ3h0MVdDYWF1Y1BRY1BrMGJ5ZDMydERJeEc5MmFVN3QyWVNpZEdndlVhNmdNdk5KWGduM2wtVDJIYU5mVFZFZHFCX0VGaEtCUnBUSFkwSkRwMmtzdU9aeDNkWWQ3ZEZtTFpQc0E5NUZETVZLa3YzVFBkQlJwTzQxbzBWYVZpaDR0UWlrRDVCM3E5dU5yVk1KdFhTTnRoaEZtUdIB6wFBVV95cUxQMHMtbmlRSlpxTVlTUjc0NUs5OHpLU0lMaWxPdm1zS0dYQTl4QnBVal9CdUlWZ3JrUFBobnZNRGtRWk1Vd0RIWXEyZXhpbWJybDlMVnJYRFZiTUE0c0tYY1FJX2pzZGU4azItZFdmRWZRM1ZvX3JsR09jR3paLURPaW84aHh4czBKTnlyLXNESkR6QlE1SHM5Rll4UnNIVmVMbU9RdXFIOU82SEVnUmlQUkZhVUI3ak1ZaTdTTnktbzRWOGpCMm9JcUotOVdPN3dHOUNNRS1wcmRJX1R2by03eTJvNzVld3AwUS1N?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

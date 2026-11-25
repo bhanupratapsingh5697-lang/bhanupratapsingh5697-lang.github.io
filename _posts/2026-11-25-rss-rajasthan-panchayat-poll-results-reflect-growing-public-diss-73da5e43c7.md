@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan panchayat poll results reflect growing public dissatisfaction with govt: Pilot - ThePrint"
+date: 2026-11-25 15:17:10 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivwFBVV95cUxQN1cwdHRZVHVrSjZvaGNYOVFrNWh0Umo4MGZpbW5hQTc2ZDZ3TU1hQW1JeDRZcHA5ZElIUGF6TFk2UjRzYUJlTVlQQV9xNy1NOTg0MmRVZG1tY3JoYjdOOGRwemQxbmJiWWpDTmptSUc4akZuLXJjT29oMHpGU0hfcGZlVVRHOVdGamRfYUt5OXdXenAwMkJnZUF6UWczZmpWTm9xOWZXZmRuWVlzU1VBWGd4eEo4OFU3QUphbmFEY9IBxAFBVV95cUxPbkNHTExfTEg4cXlDRUs5M2dCaWZJU2d2M0x1ZFdQaFYwVGE0YUlpV09CU3BMUVZ3T1pTRGNoMVZSbzJjenlQa1pmWlpoQ1gyaF9HMHktUEZXb0NKSTB3eGllek9oWUVPLTRBdTZheldtem9YZXkxdGRQbTE4aTUzUXN1UHFtWmRwdWJHcnp5QkRhalA3VE40NE95N19EQjl5UHBXZjljX2tRQkd3eVh5d0gwdTVtQmRrYTJXNUdqUjFfUFNL?oc=5"
+---
+
+Rajasthan panchayat poll results reflect growing public dissatisfaction with govt: Pilot ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivwFBVV95cUxQN1cwdHRZVHVrSjZvaGNYOVFrNWh0Umo4MGZpbW5hQTc2ZDZ3TU1hQW1JeDRZcHA5ZElIUGF6TFk2UjRzYUJlTVlQQV9xNy1NOTg0MmRVZG1tY3JoYjdOOGRwemQxbmJiWWpDTmptSUc4akZuLXJjT29oMHpGU0hfcGZlVVRHOVdGamRfYUt5OXdXenAwMkJnZUF6UWczZmpWTm9xOWZXZmRuWVlzU1VBWGd4eEo4OFU3QUphbmFEY9IBxAFBVV95cUxPbkNHTExfTEg4cXlDRUs5M2dCaWZJU2d2M0x1ZFdQaFYwVGE0YUlpV09CU3BMUVZ3T1pTRGNoMVZSbzJjenlQa1pmWlpoQ1gyaF9HMHktUEZXb0NKSTB3eGllek9oWUVPLTRBdTZheldtem9YZXkxdGRQbTE4aTUzUXN1UHFtWmRwdWJHcnp5QkRhalA3VE40NE95N19EQjl5UHBXZjljX2tRQkd3eVh5d0gwdTVtQmRrYTJXNUdqUjFfUFNL?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

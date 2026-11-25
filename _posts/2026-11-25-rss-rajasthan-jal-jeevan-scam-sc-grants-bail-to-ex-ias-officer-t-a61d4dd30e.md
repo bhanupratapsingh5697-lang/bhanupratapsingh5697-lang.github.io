@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan Jal Jeevan 'scam': SC grants bail to ex-IAS officer, two others - The New Indian Express"
+date: 2026-11-25 20:37:33 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiywFBVV95cUxOY3ZuZDdKM0p0SXlxYXZRVE5rZzZrWnM5dGhpaVpfVW5PeURtZDREWVVoMDdkOC1wR3M3b0RwR0xPZXhkamV6N3FiYzVVSXJBYVh6eFA4UWFNcUpXcEZwZTQ4RzRVUTVQY1lPM2Z0Sy14SExHdHpjSUd5RHJJaFNVS2M0bFRQMnIxMGpMOGQ2MlpYbTVmMnczeEt3QXVzRXdNMDhnc054Q3NWQW5zOVUwMXdZX09pbGVTcVdnTjEtSDZfeXRxVnZaUWR5QdIB2AFBVV95cUxOaHFUYXlFcDBWc09jdFdtTW5CX01GZjB6X1NVNkhwT0dfR0pjLUJtYVhwVjZTQ3h6SGw3eVdSUEZmeDRtQlRsdk5UcktNd1NjTnNmS3Vzdy01SG5BcjVzUzU4RUVYdk5CbmE3QlpRR3N5OF9vWmltNDVtUFRxWDVmd0pxTWViREFueTJFOVpUVFd6SXVMT2w2SHUzS2gtanl4TU5MNzExek1adk9KQVVocVkwcmFXcFRWV3JselhjSUhkTHNybjBHZ1pocXhxbTVnOUZobm1KMEI?oc=5"
+---
+
+Rajasthan Jal Jeevan 'scam': SC grants bail to ex-IAS officer, two others The New Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiywFBVV95cUxOY3ZuZDdKM0p0SXlxYXZRVE5rZzZrWnM5dGhpaVpfVW5PeURtZDREWVVoMDdkOC1wR3M3b0RwR0xPZXhkamV6N3FiYzVVSXJBYVh6eFA4UWFNcUpXcEZwZTQ4RzRVUTVQY1lPM2Z0Sy14SExHdHpjSUd5RHJJaFNVS2M0bFRQMnIxMGpMOGQ2MlpYbTVmMnczeEt3QXVzRXdNMDhnc054Q3NWQW5zOVUwMXdZX09pbGVTcVdnTjEtSDZfeXRxVnZaUWR5QdIB2AFBVV95cUxOaHFUYXlFcDBWc09jdFdtTW5CX01GZjB6X1NVNkhwT0dfR0pjLUJtYVhwVjZTQ3h6SGw3eVdSUEZmeDRtQlRsdk5UcktNd1NjTnNmS3Vzdy01SG5BcjVzUzU4RUVYdk5CbmE3QlpRR3N5OF9vWmltNDVtUFRxWDVmd0pxTWViREFueTJFOVpUVFd6SXVMT2w2SHUzS2gtanl4TU5MNzExek1adk9KQVVocVkwcmFXcFRWV3JselhjSUhkTHNybjBHZ1pocXhxbTVnOUZobm1KMEI?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
