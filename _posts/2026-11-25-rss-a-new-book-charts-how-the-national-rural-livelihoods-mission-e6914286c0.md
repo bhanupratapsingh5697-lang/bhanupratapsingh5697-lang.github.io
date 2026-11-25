@@ -1,0 +1,17 @@
+---
+layout: post
+title: "A new book charts how the National Rural Livelihoods Mission made India’s women financially capable - Scroll.in"
+date: 2026-11-25 13:30:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxNVDJjMlJ5NFJhSTdpMWh3V1pNMEFmZjlwUFBiQ2dXc0dLcUlTX3gtbnBFeWxJRTBBd051TTBaVFdGQ0lwSklrcWJnR2RVTXZ6YVRzdHpmLUs2Z0FPS050SUFfay1JUDMyNjE4YkJaYlFQTnhlTmdDMU8xallnNS1jSmtZbjlsY0lWX2t2ZXEtOS05Rl9WbTkxU3lBLUtUckpEVjZ3eHdDWkdqRzRiOHZuU2c5TlNwTmFtcDN3cXN5aTBLZVktSE9IUnZTVlTSAdIBQVVfeXFMTTA4SEVySi1UaEt4QTNrV2pLcnhERm5QVy1US1VybTk5TC02djFyRlpuMTR5YjFueFVabFU5eWxFLUJteTAta1JuYjZSdzY1cFctQ2JyTU5pU1ZiVC12Q2FPcXIzd2txNVRydHlYSlRNYWNNQWZJdktmeUhKRk40bmpiRWRxY3dHYWZjRTZKWS1rakVxT1NEbFhCTzhOZDRRd1h6WFZ6QXc2bFlzTkxKUldONzNPRmIxeE5NZDNMQ1IxTTJZa2otUmJuclFyQVNhTGFR?oc=5"
+---
+
+A new book charts how the National Rural Livelihoods Mission made India’s women financially capable Scroll.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxNVDJjMlJ5NFJhSTdpMWh3V1pNMEFmZjlwUFBiQ2dXc0dLcUlTX3gtbnBFeWxJRTBBd051TTBaVFdGQ0lwSklrcWJnR2RVTXZ6YVRzdHpmLUs2Z0FPS050SUFfay1JUDMyNjE4YkJaYlFQTnhlTmdDMU8xallnNS1jSmtZbjlsY0lWX2t2ZXEtOS05Rl9WbTkxU3lBLUtUckpEVjZ3eHdDWkdqRzRiOHZuU2c5TlNwTmFtcDN3cXN5aTBLZVktSE9IUnZTVlTSAdIBQVVfeXFMTTA4SEVySi1UaEt4QTNrV2pLcnhERm5QVy1US1VybTk5TC02djFyRlpuMTR5YjFueFVabFU5eWxFLUJteTAta1JuYjZSdzY1cFctQ2JyTU5pU1ZiVC12Q2FPcXIzd2txNVRydHlYSlRNYWNNQWZJdktmeUhKRk40bmpiRWRxY3dHYWZjRTZKWS1rakVxT1NEbFhCTzhOZDRRd1h6WFZ6QXc2bFlzTkxKUldONzNPRmIxeE5NZDNMQ1IxTTJZa2otUmJuclFyQVNhTGFR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

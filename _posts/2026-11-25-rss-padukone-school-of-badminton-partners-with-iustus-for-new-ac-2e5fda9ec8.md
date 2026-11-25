@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Padukone School Of Badminton Partners With IUSTUS For New Academy - Rediff.com"
+date: 2026-11-25 13:39:02 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiwAFBVV95cUxNVE11REJhUU9wTEFDTGxFWWtLREUtNnBLSnpqVUpWa2UyWHdVb254cG9nYUVONGU5T09MaGJzUnZBbkRBT1lDTnFiNWloSGZfMTRxbTVES3hVeUI1c2R0RmVwREtJZ0phYkdZVmFzc29ERkpYSVJiS0ZuU0tzRXBtNzR5aUNJNUQ4OHJ5WVRrZ2J5eFE4VFRqQ2wxVVlSbVdobkVCRGpyanUyWURqVzh6RmthNWN6eV9LLUdBQ0ZNVHrSAcMBQVVfeXFMTlB6eVFKR3hqTERBaGdXTmZpRGp5Uy1jZF9iellhUDhUQU5aSzctNDhPUWlmd1NqZEpxQmdJV1hDT3Y3dXVKY2NzaFo1VzdmVUNDaTB2VFF5RUVSV2NRc3l1SGZrN25DZ1o0M0Rqc1FTSHNWVElVOWNtU2p4clBtWnFhdkFyeDc4U25QOTRha2dnNzNpdkdNUXBaazl4Rjh4WDJyX0NkTEFyN25GVlhldXlTTUJndkJZdjM0MHZHTlpHWUJV?oc=5"
+---
+
+Padukone School Of Badminton Partners With IUSTUS For New Academy Rediff.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwAFBVV95cUxNVE11REJhUU9wTEFDTGxFWWtLREUtNnBLSnpqVUpWa2UyWHdVb254cG9nYUVONGU5T09MaGJzUnZBbkRBT1lDTnFiNWloSGZfMTRxbTVES3hVeUI1c2R0RmVwREtJZ0phYkdZVmFzc29ERkpYSVJiS0ZuU0tzRXBtNzR5aUNJNUQ4OHJ5WVRrZ2J5eFE4VFRqQ2wxVVlSbVdobkVCRGpyanUyWURqVzh6RmthNWN6eV9LLUdBQ0ZNVHrSAcMBQVVfeXFMTlB6eVFKR3hqTERBaGdXTmZpRGp5Uy1jZF9iellhUDhUQU5aSzctNDhPUWlmd1NqZEpxQmdJV1hDT3Y3dXVKY2NzaFo1VzdmVUNDaTB2VFF5RUVSV2NRc3l1SGZrN25DZ1o0M0Rqc1FTSHNWVElVOWNtU2p4clBtWnFhdkFyeDc4U25QOTRha2dnNzNpdkdNUXBaazl4Rjh4WDJyX0NkTEFyN25GVlhldXlTTUJndkJZdjM0MHZHTlpHWUJV?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

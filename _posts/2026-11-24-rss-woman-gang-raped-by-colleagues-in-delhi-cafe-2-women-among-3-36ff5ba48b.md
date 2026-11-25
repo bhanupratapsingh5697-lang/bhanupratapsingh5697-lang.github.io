@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Woman Gang-Raped By Colleagues In Delhi Cafe, 2 Women Among 3 Arrested - NDTV"
+date: 2026-11-24 23:35:29 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxPbkQtR0NDdmhROVpobEVQVmtFdEhmUlhLN2gxX1dwSXZ3UE0yUmZ2a1RYMDlydUFxY3A2cDdxTnU0WFY3NnNVNm1LNGdxYWJjbDY1WUcwMEszamZUVlJTVWFKTXY2SkQ3RG9ZendtOVRyYXRSaGxIclR6U3FRLWZSRTRXakpWYUxYVTF6QjNrOE52SmlmcDg0UTEwS0lROFJrRWg1aVhqZlY3T29RM3dn0gG3AUFVX3lxTE1GdG1lLVJCMHo2OU03YUMzekFXaUdfRFR4dGdqQmtDaHQydVZSbW9NRnRHYTJaa0NxbUtQNTJRZks2VVUyNTNGdDJiU05Od090Y3AySkJSdGZDZXdkaVVWWVhLREN3alczLThuY1RXLU1oMXV2YUotaFV2bVowcWk4eVNZWmtiSlctcWZwSHdodFJGS3lsQ2VoRlR5eHEyMFdIOFFTSk42cFRJWE5DQk1TU2hJNlF2QQ?oc=5"
+---
+
+Woman Gang-Raped By Colleagues In Delhi Cafe, 2 Women Among 3 Arrested NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxPbkQtR0NDdmhROVpobEVQVmtFdEhmUlhLN2gxX1dwSXZ3UE0yUmZ2a1RYMDlydUFxY3A2cDdxTnU0WFY3NnNVNm1LNGdxYWJjbDY1WUcwMEszamZUVlJTVWFKTXY2SkQ3RG9ZendtOVRyYXRSaGxIclR6U3FRLWZSRTRXakpWYUxYVTF6QjNrOE52SmlmcDg0UTEwS0lROFJrRWg1aVhqZlY3T29RM3dn0gG3AUFVX3lxTE1GdG1lLVJCMHo2OU03YUMzekFXaUdfRFR4dGdqQmtDaHQydVZSbW9NRnRHYTJaa0NxbUtQNTJRZks2VVUyNTNGdDJiU05Od090Y3AySkJSdGZDZXdkaVVWWVhLREN3alczLThuY1RXLU1oMXV2YUotaFV2bVowcWk4eVNZWmtiSlctcWZwSHdodFJGS3lsQ2VoRlR5eHEyMFdIOFFTSk42cFRJWE5DQk1TU2hJNlF2QQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

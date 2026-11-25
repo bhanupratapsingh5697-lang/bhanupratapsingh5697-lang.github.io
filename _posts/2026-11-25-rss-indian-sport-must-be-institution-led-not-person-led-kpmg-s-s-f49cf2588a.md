@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indian sport must be institution-led, not person-led: KPMG's Shanthakumaran - Business Standard"
+date: 2026-11-25 12:31:50 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMizgFBVV95cUxQMDlydGVQd2JWbzJoVDNfWFBPU1poNm82NmZxLVowb2R1VUgyZUtrdDZpSmRqdmhaM0ZyczF5azhKd3FaN0ZKMUlQZS1HOFZMNzY2VWNjTU1Fdzg2TkgzbWVkQUFvME4zVEd6bTBQeVdjUXNmNV94eFdIRHZ4bWM0Z2lmMUh4V1dVZlVVd0dIbW5tcDBaYnRDLXpPWWlhMTdWbGtyWjM4b3VWa25PVlVlOTJ2X2JlNzI0WTdOVFlFQkR1YzFDRzZoV0Z4WXdGZ9IB0wFBVV95cUxQTnE1aDQzalR6bkVrRlhlOHo1T3F2bmU3NWZ4dWFpTFU0X0pDM1dvSHZJeXZZS2ljWWE0WmcyaWpyUjBGSEpkX3U4ZmN4aTduay14cnFGaWhpQmpsc3p1bUtYMmNfSXdkTjljZ1k2OGYxMURuM1NPN3BKU0pNdDRxMzJnREx0YlNkenlwMXVrUzNab0tsZGxHMlJXZUxMZW1NdnFzaGlKYmgyckpSNUZsV3pMN015aF9xUGtEem1EZVBLdTJNdTVhS251T181NE5zOVdR?oc=5"
+---
+
+Indian sport must be institution-led, not person-led: KPMG's Shanthakumaran Business Standard
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizgFBVV95cUxQMDlydGVQd2JWbzJoVDNfWFBPU1poNm82NmZxLVowb2R1VUgyZUtrdDZpSmRqdmhaM0ZyczF5azhKd3FaN0ZKMUlQZS1HOFZMNzY2VWNjTU1Fdzg2TkgzbWVkQUFvME4zVEd6bTBQeVdjUXNmNV94eFdIRHZ4bWM0Z2lmMUh4V1dVZlVVd0dIbW5tcDBaYnRDLXpPWWlhMTdWbGtyWjM4b3VWa25PVlVlOTJ2X2JlNzI0WTdOVFlFQkR1YzFDRzZoV0Z4WXdGZ9IB0wFBVV95cUxQTnE1aDQzalR6bkVrRlhlOHo1T3F2bmU3NWZ4dWFpTFU0X0pDM1dvSHZJeXZZS2ljWWE0WmcyaWpyUjBGSEpkX3U4ZmN4aTduay14cnFGaWhpQmpsc3p1bUtYMmNfSXdkTjljZ1k2OGYxMURuM1NPN3BKU0pNdDRxMzJnREx0YlNkenlwMXVrUzNab0tsZGxHMlJXZUxMZW1NdnFzaGlKYmgyckpSNUZsV3pMN015aF9xUGtEem1EZVBLdTJNdTVhS251T181NE5zOVdR?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

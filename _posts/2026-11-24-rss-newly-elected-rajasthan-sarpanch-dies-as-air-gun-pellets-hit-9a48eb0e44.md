@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Newly-Elected Rajasthan Sarpanch Dies As Air Gun Pellets Hit Her In Chest - NDTV"
+date: 2026-11-24 19:29:13 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxQME90dW9YRHNyeXdKaERJUkV5dVdwYktvSi0tanpWVWJTRU9jTUE3MHBBOWlRUGtqSjB5eVBsbF8wSnZ0OTRmMDczN1E5X0lrVVpOTV83bFl3SmtPblZwYmRycXdwQnhhdWt4NWdyc3dDU2VrZEVMeEtEcXoxM09wakZ5WXZwX2E2dGVOZ1RiQV9SbW9weGlBS3ZNaWxIdzRhNGhIdUNpREJXZk44TE5lR2JNM1ItcUc1emRZUHhB0gHGAUFVX3lxTE9kbFNISzNqYmdnOTh4NVJCeVZvb1hNcnI5UGVLOTdDa1ZTNUd2OVBlSFdhSEt4VGdmLTNJSGxUVVBFN1QwU1NFTGltbVpkU0ZnQkpldU5RU2dKS0RDTlZlRWwxSmljMDZleFBTMUxhSTRZYlNwVERoX3RBMVNJTURDWk1rZkFiTXB3U1IzM09RXzR0VWhRamhGUnppLU53NnBLdXZPUnVFNTN6eDBpQmlQaXJGeXBqUnFDUnFHeHRxcmF1T3NyZw?oc=5"
+---
+
+Newly-Elected Rajasthan Sarpanch Dies As Air Gun Pellets Hit Her In Chest NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxQME90dW9YRHNyeXdKaERJUkV5dVdwYktvSi0tanpWVWJTRU9jTUE3MHBBOWlRUGtqSjB5eVBsbF8wSnZ0OTRmMDczN1E5X0lrVVpOTV83bFl3SmtPblZwYmRycXdwQnhhdWt4NWdyc3dDU2VrZEVMeEtEcXoxM09wakZ5WXZwX2E2dGVOZ1RiQV9SbW9weGlBS3ZNaWxIdzRhNGhIdUNpREJXZk44TE5lR2JNM1ItcUc1emRZUHhB0gHGAUFVX3lxTE9kbFNISzNqYmdnOTh4NVJCeVZvb1hNcnI5UGVLOTdDa1ZTNUd2OVBlSFdhSEt4VGdmLTNJSGxUVVBFN1QwU1NFTGltbVpkU0ZnQkpldU5RU2dKS0RDTlZlRWwxSmljMDZleFBTMUxhSTRZYlNwVERoX3RBMVNJTURDWk1rZkFiTXB3U1IzM09RXzR0VWhRamhGUnppLU53NnBLdXZPUnVFNTN6eDBpQmlQaXJGeXBqUnFDUnFHeHRxcmF1T3NyZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

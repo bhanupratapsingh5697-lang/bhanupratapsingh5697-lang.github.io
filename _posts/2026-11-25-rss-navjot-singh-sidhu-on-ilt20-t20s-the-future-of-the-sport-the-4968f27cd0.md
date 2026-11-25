@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Navjot Singh Sidhu on ILT20, T20s & the future of the sport - The Times of India"
+date: 2026-11-25 12:20:01 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi1AFBVV95cUxQNVR3bnM4dERKVHctRlp3Sk14c3c0eUI5T3M0czMwc09jWjBjVlJuN1M2UURXal9FbWlZN3ZYUnc1enlOV1dMclRVY2NkUGdrVk5ZWDFHbm1GaGRZb1FDcFlxQVJVQXRMMDhDOGNrWUNYTi1zYmI3Rm9tVnlEMkZWbzF4MlhfVmZoUkNwaXpoRmlwTy1NOGx1cV93c2ZaejNVdDAtWkk4cGxtYW9hN2dYZF9wZGdJNl9UekpIdHk0N0U2aEtLa1hyTllhMkdGM0FvZnh5QtIB2gFBVV95cUxOQlY1eFRmb3B1cXpWZHNCNjUtYUViNXc3ZzA3aGVYTkltWFg4NUlaNG1WU3l2Z04wbXRraGtCUDN4em5vQXpyRFZjWF9SbmJ0Tm5vT2h2QlBQTWdDV0FHLTNCMFU5dzgyWmQzbW1SdkdxMFl5a2w4MGNGMU9qbU14NmJvQzgwS3VweFNsNXJzRGRQcnAxR3JmanE2YkRsS21oYjhnbUFXQ0tiNHp0X0tHenNqMlZuQ3lVR3hvTEEybUJjTUJpdnBPaG5UX2JSekdBOUZiN01Jdlp1QQ?oc=5"
+---
+
+Navjot Singh Sidhu on ILT20, T20s & the future of the sport The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1AFBVV95cUxQNVR3bnM4dERKVHctRlp3Sk14c3c0eUI5T3M0czMwc09jWjBjVlJuN1M2UURXal9FbWlZN3ZYUnc1enlOV1dMclRVY2NkUGdrVk5ZWDFHbm1GaGRZb1FDcFlxQVJVQXRMMDhDOGNrWUNYTi1zYmI3Rm9tVnlEMkZWbzF4MlhfVmZoUkNwaXpoRmlwTy1NOGx1cV93c2ZaejNVdDAtWkk4cGxtYW9hN2dYZF9wZGdJNl9UekpIdHk0N0U2aEtLa1hyTllhMkdGM0FvZnh5QtIB2gFBVV95cUxOQlY1eFRmb3B1cXpWZHNCNjUtYUViNXc3ZzA3aGVYTkltWFg4NUlaNG1WU3l2Z04wbXRraGtCUDN4em5vQXpyRFZjWF9SbmJ0Tm5vT2h2QlBQTWdDV0FHLTNCMFU5dzgyWmQzbW1SdkdxMFl5a2w4MGNGMU9qbU14NmJvQzgwS3VweFNsNXJzRGRQcnAxR3JmanE2YkRsS21oYjhnbUFXQ0tiNHp0X0tHenNqMlZuQ3lVR3hvTEEybUJjTUJpdnBPaG5UX2JSekdBOUZiN01Jdlp1QQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

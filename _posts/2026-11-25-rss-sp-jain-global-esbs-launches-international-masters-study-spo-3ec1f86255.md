@@ -1,0 +1,17 @@
+---
+layout: post
+title: "SP Jain Global-ESBS Launches International Masters: Study Sports Management in India and Spain! - Telegraph India"
+date: 2026-11-25 12:46:02 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxNWU92ajFLd2poaUVUX2hUNC1WZm9PcTR3MmtVMms1c0ZRY0VnMGxMeWNyckZ2UmZONUMtMTZpYzJsZ3VSUlE2bVdCOUNfVVRjZndUazNxOEJuaElnbUNZYnRRclM1N3FQUlVsdUNkdEdnUmdmemt0clNYOUJrbW5oOW1LbnB5SFNUcDJGM25leHhHTExPWGZQMXRpTFJSWXJ4T2pYZWFRX3N2SUsxV0NXWllZVDVXWkNKSFdNLXFRQWFkYnloR1d6bHg1a0p0ZWJGLWZvQXFvNHRIQ0nSAeABQVVfeXFMTy05MHdOdEhQZHJla0JHNHFLSzF4b0gxX0ZlUjNjMm9FTS1TZ2NVUGFqbmQ4dGxjeTg2bDRfcE80SVJsUjd3Ylc2dnpHYzRwLVFiVEgtUkRrVmVwY0YyWUdGN3RZLVMySkpzeEFKbS1HS3FOenJIUUV6eWtKWllPTDBBbTdKVDZyTXlXUkpGTTQ1VzJRNHhzaEktY08tRTNFb2lmR0N0eFkyMXV5Vld3RkpJcUtUY1JPRl91am1FM251QXJ3QjZlUWdhM0tBMmZVZlpjaEJOcnVEcmM5aVJxTUE?oc=5"
+---
+
+SP Jain Global-ESBS Launches International Masters: Study Sports Management in India and Spain! Telegraph India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxNWU92ajFLd2poaUVUX2hUNC1WZm9PcTR3MmtVMms1c0ZRY0VnMGxMeWNyckZ2UmZONUMtMTZpYzJsZ3VSUlE2bVdCOUNfVVRjZndUazNxOEJuaElnbUNZYnRRclM1N3FQUlVsdUNkdEdnUmdmemt0clNYOUJrbW5oOW1LbnB5SFNUcDJGM25leHhHTExPWGZQMXRpTFJSWXJ4T2pYZWFRX3N2SUsxV0NXWllZVDVXWkNKSFdNLXFRQWFkYnloR1d6bHg1a0p0ZWJGLWZvQXFvNHRIQ0nSAeABQVVfeXFMTy05MHdOdEhQZHJla0JHNHFLSzF4b0gxX0ZlUjNjMm9FTS1TZ2NVUGFqbmQ4dGxjeTg2bDRfcE80SVJsUjd3Ylc2dnpHYzRwLVFiVEgtUkRrVmVwY0YyWUdGN3RZLVMySkpzeEFKbS1HS3FOenJIUUV6eWtKWllPTDBBbTdKVDZyTXlXUkpGTTQ1VzJRNHhzaEktY08tRTNFb2lmR0N0eFkyMXV5Vld3RkpJcUtUY1JPRl91am1FM251QXJ3QjZlUWdhM0tBMmZVZlpjaEJOcnVEcmM5aVJxTUE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

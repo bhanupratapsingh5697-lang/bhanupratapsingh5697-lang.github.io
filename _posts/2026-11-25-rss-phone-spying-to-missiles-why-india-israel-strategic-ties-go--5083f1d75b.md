@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Phone spying to missiles: Why India-Israel strategic ties go beyond Modi - Al Jazeera"
+date: 2026-11-25 11:02:08 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxPcHFibkwxUzhQcTVJYjFVTl9SS3lnT1dFdlFOcGhNMnhRdnRiZ284UnhHSkhsS01jRDQ4ZnJZbEstRjAwVFFqUXN1NXY2cWpOaFNxWHEtSkpSeFVKZ0xsT0FEMnhnMGZhcVRxenlEQ0w0YVpaM2hiOFpvNHNTQ2VxLTVvVTZBYThzbXhLOHdzWXNBR3Y4MFNySGRxZjltZ0EzT0VLVEo1Yk1LYlpYZ1NUcUVSRdIBuAFBVV95cUxNVWFKTmNEcXByb0I3NXAxbFZORG5walcwRGlMcm1UcFZVUk5iOUhvSjltOVRENGFfdTZSQWxIM2F2RFppRUlqOFlVREpsbWROdHVFa3BTWHlUMTRqNlNVVFFjZWkwQUJob3lRckVVWGZ1WEFfR0I0TXhBZ2E1a2xXVHVRZmdmTkRGZ0dvdG56X1VkMFJSMmZGamtBQWdOMHZxYzdmbUxSYTYxUzdIMWkwWFNkQWpFcFlh?oc=5"
+---
+
+Phone spying to missiles: Why India-Israel strategic ties go beyond Modi Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxPcHFibkwxUzhQcTVJYjFVTl9SS3lnT1dFdlFOcGhNMnhRdnRiZ284UnhHSkhsS01jRDQ4ZnJZbEstRjAwVFFqUXN1NXY2cWpOaFNxWHEtSkpSeFVKZ0xsT0FEMnhnMGZhcVRxenlEQ0w0YVpaM2hiOFpvNHNTQ2VxLTVvVTZBYThzbXhLOHdzWXNBR3Y4MFNySGRxZjltZ0EzT0VLVEo1Yk1LYlpYZ1NUcUVSRdIBuAFBVV95cUxNVWFKTmNEcXByb0I3NXAxbFZORG5walcwRGlMcm1UcFZVUk5iOUhvSjltOVRENGFfdTZSQWxIM2F2RFppRUlqOFlVREpsbWROdHVFa3BTWHlUMTRqNlNVVFFjZWkwQUJob3lRckVVWGZ1WEFfR0I0TXhBZ2E1a2xXVHVRZmdmTkRGZ0dvdG56X1VkMFJSMmZGamtBQWdOMHZxYzdmbUxSYTYxUzdIMWkwWFNkQWpFcFlh?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

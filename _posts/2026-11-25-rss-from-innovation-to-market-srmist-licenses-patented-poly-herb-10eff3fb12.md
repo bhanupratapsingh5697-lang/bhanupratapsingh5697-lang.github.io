@@ -1,0 +1,17 @@
+---
+layout: post
+title: "From Innovation to Market: SRMIST Licenses Patented Poly-Herbal Technology to Dr. SHREEVARMAs Wellness - TheWire.in"
+date: 2026-11-25 12:27:28 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxOTEZpZjNnZnJXdzBwNzFOeW9QeEh4UDh4UnZCbWRRcGkzaU80bzZGeDlNQzNQTFZSbzBuNTFyN2Q3Q0xkUHJfR1NCV1hGbXBvV2xDNU1ZZDlsQ2tSd2k0LWxYMXBDZzQ2WWJDc250OU9uSlZydVVrY25FajRKbUc0akM3MkpBWlJOUk8tODF5emNvQzlqNzBqTUJqaXFvaHlmNG5rNFNNV1dYb19lYXVDVEU4M2tETng0anNCSkZLak1WVjhqVUJfOFBIU1dvVGtZOE5SNGpn0gHbAUFVX3lxTE9RaG5IQ1lIZmRwcm43NUpzNTRZczdvYTNwM0pNSjdScEdWdnVXSGpKRkprZHdoYjlqRDlYN19PSThoQ3dDOU9lRExvY2tLMFI5dTJyUlR3Uk1pSVZJcmYzakhwWU9sLUdmR0xUVkdDSDZQd3ZzZldZaHJvVXFzc2J1NWJ1MHd2ZEhuVmVyMUhnSGpnMF9ubmVySmdQV2gxbDdMWUZCZ3ZiVkg4ZWZzSHE4LXBOZU9naThiNkxTUS1xZi1sTk5TYjFXTHNtamJ1emY2VGxCb3B3V2MwRQ?oc=5"
+---
+
+From Innovation to Market: SRMIST Licenses Patented Poly-Herbal Technology to Dr. SHREEVARMAs Wellness TheWire.in
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1gFBVV95cUxOTEZpZjNnZnJXdzBwNzFOeW9QeEh4UDh4UnZCbWRRcGkzaU80bzZGeDlNQzNQTFZSbzBuNTFyN2Q3Q0xkUHJfR1NCV1hGbXBvV2xDNU1ZZDlsQ2tSd2k0LWxYMXBDZzQ2WWJDc250OU9uSlZydVVrY25FajRKbUc0akM3MkpBWlJOUk8tODF5emNvQzlqNzBqTUJqaXFvaHlmNG5rNFNNV1dYb19lYXVDVEU4M2tETng0anNCSkZLak1WVjhqVUJfOFBIU1dvVGtZOE5SNGpn0gHbAUFVX3lxTE9RaG5IQ1lIZmRwcm43NUpzNTRZczdvYTNwM0pNSjdScEdWdnVXSGpKRkprZHdoYjlqRDlYN19PSThoQ3dDOU9lRExvY2tLMFI5dTJyUlR3Uk1pSVZJcmYzakhwWU9sLUdmR0xUVkdDSDZQd3ZzZldZaHJvVXFzc2J1NWJ1MHd2ZEhuVmVyMUhnSGpnMF9ubmVySmdQV2gxbDdMWUZCZ3ZiVkg4ZWZzSHE4LXBOZU9naThiNkxTUS1xZi1sTk5TYjFXTHNtamJ1emY2VGxCb3B3V2MwRQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

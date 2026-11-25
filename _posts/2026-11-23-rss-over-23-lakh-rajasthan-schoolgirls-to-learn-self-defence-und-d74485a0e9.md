@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Over 23 lakh Rajasthan schoolgirls to learn self-defence under new initiative - ThePrint"
+date: 2026-11-23 16:22:27 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMisgFBVV95cUxQYXVYOUZhamJBaktRNm9iYlFkWFEwNEZ3Mkk3VE15SHZxQmJHd2RULTZ6M0l2TmxkdEQ2dnJMMXRBWlFQb2ZUeFJFZFRVMFBvVnBJRzltNkV1RjlENHhEX3FZb1p2MUhGZUZBTHp1czRNSk5ZSlpzQUlTTElHaUN6a1VqNlVYRmp0SkUtZ0ZzRndJNXJ1TC14Mk1qSGtnSHBsUEtJUkhDbEdwYV9TblNNU1Fn0gG3AUFVX3lxTE15cVNjRlNLSTJoSkFRQ080TEF2cXM0d3Y1RHByYWhiMmxydzVxd0tLNzVmUEMzbmo0cVpGQmx2OTkxTDhhWkJnTExJVFRqSzJjd3FWaEtjNi1TNnhVZl9PVExFZ2Y0YXhZZ3JkQnNmaVJxU3k2RnJfWHExQUpRM3BXeEpCVkR4U0lpQ1lEZC1QdVFYVXJ6RlRZVlVWU0l5X1ZTMk5VbTJrQm5QT2pNYkhXT25rdVhZRQ?oc=5"
+---
+
+Over 23 lakh Rajasthan schoolgirls to learn self-defence under new initiative ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisgFBVV95cUxQYXVYOUZhamJBaktRNm9iYlFkWFEwNEZ3Mkk3VE15SHZxQmJHd2RULTZ6M0l2TmxkdEQ2dnJMMXRBWlFQb2ZUeFJFZFRVMFBvVnBJRzltNkV1RjlENHhEX3FZb1p2MUhGZUZBTHp1czRNSk5ZSlpzQUlTTElHaUN6a1VqNlVYRmp0SkUtZ0ZzRndJNXJ1TC14Mk1qSGtnSHBsUEtJUkhDbEdwYV9TblNNU1Fn0gG3AUFVX3lxTE15cVNjRlNLSTJoSkFRQ080TEF2cXM0d3Y1RHByYWhiMmxydzVxd0tLNzVmUEMzbmo0cVpGQmx2OTkxTDhhWkJnTExJVFRqSzJjd3FWaEtjNi1TNnhVZl9PVExFZ2Y0YXhZZ3JkQnNmaVJxU3k2RnJfWHExQUpRM3BXeEpCVkR4U0lpQ1lEZC1QdVFYVXJ6RlRZVlVWU0l5X1ZTMk5VbTJrQm5QT2pNYkhXT25rdVhZRQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

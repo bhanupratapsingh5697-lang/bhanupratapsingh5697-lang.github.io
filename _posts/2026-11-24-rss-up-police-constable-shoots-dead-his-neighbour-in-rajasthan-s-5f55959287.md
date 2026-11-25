@@ -1,0 +1,17 @@
+---
+layout: post
+title: "UP Police constable shoots dead his neighbour in Rajasthan’s Dholpur - ThePrint"
+date: 2026-11-24 17:20:20 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMipAFBVV95cUxQYk0xLVV2Rk4tZ3lFLVVPZTB5T2V6dkhpRkp3M29vTndBdjZxdkpFVXI3M0Y0bEVaRjBoelVxX1FLNmhJR3RQdVUtZHpZZGNMZl9rNV91aW5fVjJtNzVyczAtS3U2b1RuTFpMRW56TXVjMkdSUkxkV1EzX2xCMm5jMXVUTXRzZ25FanJYUlFjSnU5bk42aC1UN2VLMF9TczE4dk12R9IBqgFBVV95cUxON3dhOTNlUUFScFI3N3NhNF8tRUhGeE03QnRwUG4teXVKRl9fTGpyY2VhSlh3Y01PZG5DUmFFcUhFYTBxSW5LY2dPWXRGWVFQWUhMTVJ3MS1ta294RmhXeGI3NWZBVklJcEtBTS1KRmZuVmNobDNNemM3dS00dnlKQzJIUDAyaXllc2ZxQUY5ak83d1hWc1ZuNnZvdGM4cDk1Y0Z3bDdJOTllQQ?oc=5"
+---
+
+UP Police constable shoots dead his neighbour in Rajasthan’s Dholpur ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipAFBVV95cUxQYk0xLVV2Rk4tZ3lFLVVPZTB5T2V6dkhpRkp3M29vTndBdjZxdkpFVXI3M0Y0bEVaRjBoelVxX1FLNmhJR3RQdVUtZHpZZGNMZl9rNV91aW5fVjJtNzVyczAtS3U2b1RuTFpMRW56TXVjMkdSUkxkV1EzX2xCMm5jMXVUTXRzZ25FanJYUlFjSnU5bk42aC1UN2VLMF9TczE4dk12R9IBqgFBVV95cUxON3dhOTNlUUFScFI3N3NhNF8tRUhGeE03QnRwUG4teXVKRl9fTGpyY2VhSlh3Y01PZG5DUmFFcUhFYTBxSW5LY2dPWXRGWVFQWUhMTVJ3MS1ta294RmhXeGI3NWZBVklJcEtBTS1KRmZuVmNobDNNemM3dS00dnlKQzJIUDAyaXllc2ZxQUY5ak83d1hWc1ZuNnZvdGM4cDk1Y0Z3bDdJOTllQQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

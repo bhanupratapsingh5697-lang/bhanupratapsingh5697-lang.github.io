@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan SET Score Card 2026 (OUT): Direct Link to Download Marks PDF at uok.ac.in - Jagran Josh"
+date: 2026-11-24 19:42:14 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxPbFpfRXM3RjVuTGtybTNrRzRTbVhQTmFoMV85anBYd0FLQzlGdGh0Wm5MdDhXaFkzb3ZCYmRKZEtodThnV21BZFZGRUVMWl9Ya3NHZ1pkZHlEUGJ4eXRmTkV1YjRtV2g2NEJvSWpZYkhkM2JObkdQUXhJcWtRVzNSdXhUOWU3NE0zMmFyczNJSDRwejYxbVNzbW1VVzlqVHEzNWhncHhpeVdLT1hrSXluLWM4dlItbW9oYzlablBpekVpeTRiTkRPM9IBzwFBVV95cUxNTXlvS1Y1eGthc2txVE5MY0Q0TnFHdkhZRC1PUUlMcWtkaXJjWFdYR3V1YTBjYkgzUEg5UEhoNUR6STRyX2RmQXRzbXUtUl9rODZjVmdfUERFRFcyVmdPSzlKWDk4cExKOWFvLXNMT0xkOFVMcUxJV2FTUFU3dHZGdFFhNmlSLWowY1VaN0gyOGJsRVdMbDhaMlh4dVdHU3BrMHNBXzE1WmRoVklDRzdKNHN4Wlg1MWJ3dEIwUlRNNS13TGctMjY5TVBYdnAxaU0?oc=5"
+---
+
+Rajasthan SET Score Card 2026 (OUT): Direct Link to Download Marks PDF at uok.ac.in Jagran Josh
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPbFpfRXM3RjVuTGtybTNrRzRTbVhQTmFoMV85anBYd0FLQzlGdGh0Wm5MdDhXaFkzb3ZCYmRKZEtodThnV21BZFZGRUVMWl9Ya3NHZ1pkZHlEUGJ4eXRmTkV1YjRtV2g2NEJvSWpZYkhkM2JObkdQUXhJcWtRVzNSdXhUOWU3NE0zMmFyczNJSDRwejYxbVNzbW1VVzlqVHEzNWhncHhpeVdLT1hrSXluLWM4dlItbW9oYzlablBpekVpeTRiTkRPM9IBzwFBVV95cUxNTXlvS1Y1eGthc2txVE5MY0Q0TnFHdkhZRC1PUUlMcWtkaXJjWFdYR3V1YTBjYkgzUEg5UEhoNUR6STRyX2RmQXRzbXUtUl9rODZjVmdfUERFRFcyVmdPSzlKWDk4cExKOWFvLXNMT0xkOFVMcUxJV2FTUFU3dHZGdFFhNmlSLWowY1VaN0gyOGJsRVdMbDhaMlh4dVdHU3BrMHNBXzE1WmRoVklDRzdKNHN4Wlg1MWJ3dEIwUlRNNS13TGctMjY5TVBYdnAxaU0?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
