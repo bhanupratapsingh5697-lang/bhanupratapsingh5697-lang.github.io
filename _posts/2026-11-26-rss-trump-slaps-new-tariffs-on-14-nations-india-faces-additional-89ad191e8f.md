@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Trump slaps new tariffs on 14 nations; India faces additional 17% - The Times of India"
+date: 2026-11-26 04:15:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxPbE9aYUh4Zkd5REJfZ3ExLTdUNFJjeHVMTE5Fa1EwclZzY3c0ZkFrdjlNMXYzX2lXRzJLY0dydXVSNFgzaS1FSllhckVfWG5aR00tcWhDNkstd0tYTUdzR2JfbDVfMUVnTVNleEpEYUNqUFRfUk1tOEZFX0xNcUxZenVrdWpnbDdkMkxyQWF5VG5maW5ic1c4eVBYQzlYVkVBdnZPMlRpSUVCb2RGRVYwVHFJREtXSHBvaDlMeNIBwgFBVV95cUxOdG9WZDRiSzdtd2VTVldNamJuRVQzbHdXQWYtUmpMWlVMR1ZJd1k5WkhkWVpvWUlYbUhua213ajBjZmZ3d2NiR2lwQVNkc0l4bVV5elg0N1hMbVRNZFk5MGxQekhWdWJfWWpSUFN4Ym5NTThwRERHYWhNTDUtR2F3UXA3ZzZfd1FySHJQbTYwQXNnQkRLMkRsdXYxX1N3RTlnaXlQZmNkQmJWbC1Ma3RuR1B6UHZtdzBIX1htT2hQc2xadw?oc=5"
+---
+
+Trump slaps new tariffs on 14 nations; India faces additional 17% The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxPbE9aYUh4Zkd5REJfZ3ExLTdUNFJjeHVMTE5Fa1EwclZzY3c0ZkFrdjlNMXYzX2lXRzJLY0dydXVSNFgzaS1FSllhckVfWG5aR00tcWhDNkstd0tYTUdzR2JfbDVfMUVnTVNleEpEYUNqUFRfUk1tOEZFX0xNcUxZenVrdWpnbDdkMkxyQWF5VG5maW5ic1c4eVBYQzlYVkVBdnZPMlRpSUVCb2RGRVYwVHFJREtXSHBvaDlMeNIBwgFBVV95cUxOdG9WZDRiSzdtd2VTVldNamJuRVQzbHdXQWYtUmpMWlVMR1ZJd1k5WkhkWVpvWUlYbUhua213ajBjZmZ3d2NiR2lwQVNkc0l4bVV5elg0N1hMbVRNZFk5MGxQekhWdWJfWWpSUFN4Ym5NTThwRERHYWhNTDUtR2F3UXA3ZzZfd1FySHJQbTYwQXNnQkRLMkRsdXYxX1N3RTlnaXlQZmNkQmJWbC1Ma3RuR1B6UHZtdzBIX1htT2hQc2xadw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

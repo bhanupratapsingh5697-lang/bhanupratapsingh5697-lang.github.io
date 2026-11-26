@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Ola scooter shifted to Sports mode by itself, crashed. Owner wins Rs 1.98 lakh - The Indian Express"
+date: 2026-11-26 12:33:45 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMivAFBVV95cUxQNlYwajhadElQellZZk5uZTB3QXFqWHctOFB4aHF5MjlvTHlOQ2stNi1VQXMxc0pSeUFYb3d2RzBCaGU2QXVKcHlEcG4xOWFrdVptYndhS0RTdEFUZ3JWRFYxM1dVYlRFdEhWQV84aUJNNURBZVpGV0ZQNE50aFd3ZEdTRlYxenpNS0tpNEZwa2IyWlpvWGx4NUxkMk0xN3dnRFE3V2doN3lyVE9CUUxnOTEzdjJyaENKWHJrZdIBwwFBVV95cUxNZ1pkeDFxSWpINTdUbEpiTEQwRTdXWmh4d3gyUUNaV29SMGRfNkF5VUtuaGc1ZUdTX1Y2Y3JtSmI5bThOQUN6dFllRDBQV3hHV01vY1BrRVhiM3dxdzE1WXlQMGs2V0NJR01pMG9EbXhOYzVERzE1bGFUS0wzZU1Xc0FBWmtuR0R1OUp2SXdUTEVhS0pxeVBEXzJTdXdZazQ5Qkt3WWNsUy1oazV1dm9hLTdEWjVZM0VUNUJSdkxralhmZEk?oc=5"
+---
+
+Ola scooter shifted to Sports mode by itself, crashed. Owner wins Rs 1.98 lakh The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivAFBVV95cUxQNlYwajhadElQellZZk5uZTB3QXFqWHctOFB4aHF5MjlvTHlOQ2stNi1VQXMxc0pSeUFYb3d2RzBCaGU2QXVKcHlEcG4xOWFrdVptYndhS0RTdEFUZ3JWRFYxM1dVYlRFdEhWQV84aUJNNURBZVpGV0ZQNE50aFd3ZEdTRlYxenpNS0tpNEZwa2IyWlpvWGx4NUxkMk0xN3dnRFE3V2doN3lyVE9CUUxnOTEzdjJyaENKWHJrZdIBwwFBVV95cUxNZ1pkeDFxSWpINTdUbEpiTEQwRTdXWmh4d3gyUUNaV29SMGRfNkF5VUtuaGc1ZUdTX1Y2Y3JtSmI5bThOQUN6dFllRDBQV3hHV01vY1BrRVhiM3dxdzE1WXlQMGs2V0NJR01pMG9EbXhOYzVERzE1bGFUS0wzZU1Xc0FBWmtuR0R1OUp2SXdUTEVhS0pxeVBEXzJTdXdZazQ5Qkt3WWNsUy1oazV1dm9hLTdEWjVZM0VUNUJSdkxralhmZEk?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

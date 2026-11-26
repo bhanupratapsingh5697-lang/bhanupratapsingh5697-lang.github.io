@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Keralam’s new Sports Bill to protect athletes’ rights, ensure welfare: Minister - ThePrint"
+date: 2026-11-26 10:18:09 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxNeXpSOG85WnRfUk9EZjlqWktTb2hyY1ExZkxNUkJSS3EwTHhBYlltOXF5dnNwazQyY1l3ZVRHaFZMd0ZuSk5ZY2l0MWJabkhEcEdEcUhXS29LVHRrSHRiaTJJN2Z1MVVWR09ZVEVuVUFrSVh2NHNhVUpycEVjRmlINE9sWVJWSnlfUGM4Ty0tVDNxZkRBMC10Y3BUejFvYm5SWVgwNDhiRXVSRTNKV2ZR0gG0AUFVX3lxTFBKMm5hWEdtbHkwM3NWUW9EblZQMVNKZndOVTRkUFJaMXNrMnlHMjAwc0MwUlAxNHE3eVJUX0JBQ3RNUmM2cWViUlA5ZC1IN25WVFdaNURHMkw4UXYtaDdPSUZJejNnbXctZGpXMjZKc1FJaTVMWnlFLThEa0IzTjh0cGZlRnh6ZjdCbk1uODFlb0drVVpxWUJ3MlJHMEMtVGtiODlwNXFxcm1BN0FLT3MxZGJvYQ?oc=5"
+---
+
+Keralam’s new Sports Bill to protect athletes’ rights, ensure welfare: Minister ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxNeXpSOG85WnRfUk9EZjlqWktTb2hyY1ExZkxNUkJSS3EwTHhBYlltOXF5dnNwazQyY1l3ZVRHaFZMd0ZuSk5ZY2l0MWJabkhEcEdEcUhXS29LVHRrSHRiaTJJN2Z1MVVWR09ZVEVuVUFrSVh2NHNhVUpycEVjRmlINE9sWVJWSnlfUGM4Ty0tVDNxZkRBMC10Y3BUejFvYm5SWVgwNDhiRXVSRTNKV2ZR0gG0AUFVX3lxTFBKMm5hWEdtbHkwM3NWUW9EblZQMVNKZndOVTRkUFJaMXNrMnlHMjAwc0MwUlAxNHE3eVJUX0JBQ3RNUmM2cWViUlA5ZC1IN25WVFdaNURHMkw4UXYtaDdPSUZJejNnbXctZGpXMjZKc1FJaTVMWnlFLThEa0IzTjh0cGZlRnh6ZjdCbk1uODFlb0drVVpxWUJ3MlJHMEMtVGtiODlwNXFxcm1BN0FLT3MxZGJvYQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

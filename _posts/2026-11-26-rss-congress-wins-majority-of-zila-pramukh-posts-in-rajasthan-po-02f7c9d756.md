@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Congress wins majority of Zila Pramukh posts in Rajasthan polls - The Hindu"
+date: 2026-11-26 04:15:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxNMXltMFl0SnNmYkUzX2RyTk1DWHROVGFhenQ2el9BTldzcUlqWXlXOEhIbHdKQllRTTVIX0E2LW5KMTFzalhLa2htY3lodnd5bk5TSjZjdzdETHIxdUM0ajRZdzdINVhtMjhoTXphYlhobmxRYWRFcGJGWVVOUzFxcWNkVnN3UWwwcUM4LTlVMXR0MHdDZnJoYVJpOGUzdm5NcF9qcldtSDlXRHBzZkFKTkJZclFPZTdMd3JFUERCNGFycEZraUhndjlpTlHSAdMBQVVfeXFMT1ZvUXZGNzFYVmNMZ2lnTkFObWdrS1kyTGljd1dBMDBnTU5WNDRTbFNzYTV5ZmQzQlQwbWFZY1d2Y2Q2NXpELTJKNVVjX0UxY0hTM1hRMHhFTkpYOGtoRDlDWDdrNWRCUDhHemdyakpCS2dxRmd5MjV5WHB1M2lGS192WXZBMm9ORU41WW5ZM09XN0pQeFEtdDAtLThvRnhWR2FGUGt0NVlhMURrN3FjZzQ4UEtlZzhLS1Vqd3FsVWdQbGpMRXRhczQtY2M5S0RTMkZubw?oc=5"
+---
+
+Congress wins majority of Zila Pramukh posts in Rajasthan polls The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxNMXltMFl0SnNmYkUzX2RyTk1DWHROVGFhenQ2el9BTldzcUlqWXlXOEhIbHdKQllRTTVIX0E2LW5KMTFzalhLa2htY3lodnd5bk5TSjZjdzdETHIxdUM0ajRZdzdINVhtMjhoTXphYlhobmxRYWRFcGJGWVVOUzFxcWNkVnN3UWwwcUM4LTlVMXR0MHdDZnJoYVJpOGUzdm5NcF9qcldtSDlXRHBzZkFKTkJZclFPZTdMd3JFUERCNGFycEZraUhndjlpTlHSAdMBQVVfeXFMT1ZvUXZGNzFYVmNMZ2lnTkFObWdrS1kyTGljd1dBMDBnTU5WNDRTbFNzYTV5ZmQzQlQwbWFZY1d2Y2Q2NXpELTJKNVVjX0UxY0hTM1hRMHhFTkpYOGtoRDlDWDdrNWRCUDhHemdyakpCS2dxRmd5MjV5WHB1M2lGS192WXZBMm9ORU41WW5ZM09XN0pQeFEtdDAtLThvRnhWR2FGUGt0NVlhMURrN3FjZzQ4UEtlZzhLS1Vqd3FsVWdQbGpMRXRhczQtY2M5S0RTMkZubw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

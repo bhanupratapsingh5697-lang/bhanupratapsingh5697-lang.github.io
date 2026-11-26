@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Man United denied at Sporting as referee overshadows Fernandes double - Al Jazeera"
+date: 2026-11-26 03:56:18 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXdjdFhIZWp0Q2tDMUdCQ3FqWmZob21ERFpMSDcwUGp6SHVqaURlaGVQN3ZJaU5SVXUxcXFwV0U4UXJXLXVzRVlhUGhTVWpEQy1DVWdOWEdxWHpoSm1UcDhMdjBIU0o1MW9xZTdmNXhTa1RiZ21MNllNcGtWU1c5dVdMMk85c0d4bnJiZDVWQjFVNlY5Nl93YkpxcnB3VGs5dzBHbGY0SGVONmpUMlZKTWRXd9IBuAFBVV95cUxNaWhwMUVXSzlIUWZsbWdpZ19HaWdGcVRvU3JFandqOFJvUE1ZR080RUN0QjVZYmpnaWRqeTVXa3ZidTZUX1MzTmhQNWZYemdFSmtiMUFQTjdoLWJtZjlYbEFmaExDeDNtTl93b0h4QzZudFNUVkxGamxXQWdZTEZEOEM0Wk1xam1qQWhGWUg4NVRna2ExRzYxUlljaWxfNzB6dEozOTYzSnp1U21nYS1LdE9Gclo2cXli?oc=5"
+---
+
+Man United denied at Sporting as referee overshadows Fernandes double Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxOVXdjdFhIZWp0Q2tDMUdCQ3FqWmZob21ERFpMSDcwUGp6SHVqaURlaGVQN3ZJaU5SVXUxcXFwV0U4UXJXLXVzRVlhUGhTVWpEQy1DVWdOWEdxWHpoSm1UcDhMdjBIU0o1MW9xZTdmNXhTa1RiZ21MNllNcGtWU1c5dVdMMk85c0d4bnJiZDVWQjFVNlY5Nl93YkpxcnB3VGs5dzBHbGY0SGVONmpUMlZKTWRXd9IBuAFBVV95cUxNaWhwMUVXSzlIUWZsbWdpZ19HaWdGcVRvU3JFandqOFJvUE1ZR080RUN0QjVZYmpnaWRqeTVXa3ZidTZUX1MzTmhQNWZYemdFSmtiMUFQTjdoLWJtZjlYbEFmaExDeDNtTl93b0h4QzZudFNUVkxGamxXQWdZTEZEOEM0Wk1xam1qQWhGWUg4NVRna2ExRzYxUlljaWxfNzB6dEozOTYzSnp1U21nYS1LdE9Gclo2cXli?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

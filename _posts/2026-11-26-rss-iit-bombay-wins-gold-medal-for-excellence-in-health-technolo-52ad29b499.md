@@ -1,0 +1,17 @@
+---
+layout: post
+title: "IIT Bombay Wins Gold Medal For Excellence In Health Technology Research - NDTV"
+date: 2026-11-26 10:57:23 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMisAFBVV95cUxPcU1ka25RazFzNFA2eEpXcGNuR0xqNzU5Sl9MTTJUdE5TenoycVVtdjhJS2gwNy1hOHVFbnIzVWFPWFpIeDRsMjBwY0Q0ZGEyNXNBeEwweTk1R3NZYmQtT0xBMG02SFdzMVk4TUpjMjJyMkhEd1ltU2hhR21McU4ySV9rbm1zMi14aWQ0Y0FXeWJnblBsSDhmT2ZwTmVDZGM2OEJnSE90b2pDRDdZd1o0Y9IBuAFBVV95cUxQNm5kV3M2U04zVTF2LWx0b3puSnFNMVgtUDB3SE1JVnNUN1JUVnVpMHB1OXYxZzBlUGlHVTV0bS1HMVp1VGwyYWh3RzBQcmx5N09QVWxVc21Ga3lIUzdJaHk5SUFNRUFGWlFwVFVUdDd3YUwtak41bW04dVVsbTRXWVdQUGY0T25kZnZoazJja0ljRFFxOWhfcGp0OHdPbVZic21IUy1NSFUwLW8ydXRsX3pnUmJ4OGRF?oc=5"
+---
+
+IIT Bombay Wins Gold Medal For Excellence In Health Technology Research NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMisAFBVV95cUxPcU1ka25RazFzNFA2eEpXcGNuR0xqNzU5Sl9MTTJUdE5TenoycVVtdjhJS2gwNy1hOHVFbnIzVWFPWFpIeDRsMjBwY0Q0ZGEyNXNBeEwweTk1R3NZYmQtT0xBMG02SFdzMVk4TUpjMjJyMkhEd1ltU2hhR21McU4ySV9rbm1zMi14aWQ0Y0FXeWJnblBsSDhmT2ZwTmVDZGM2OEJnSE90b2pDRDdZd1o0Y9IBuAFBVV95cUxQNm5kV3M2U04zVTF2LWx0b3puSnFNMVgtUDB3SE1JVnNUN1JUVnVpMHB1OXYxZzBlUGlHVTV0bS1HMVp1VGwyYWh3RzBQcmx5N09QVWxVc21Ga3lIUzdJaHk5SUFNRUFGWlFwVFVUdDd3YUwtak41bW04dVVsbTRXWVdQUGY0T25kZnZoazJja0ljRFFxOWhfcGp0OHdPbVZic21IUy1NSFUwLW8ydXRsX3pnUmJ4OGRF?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

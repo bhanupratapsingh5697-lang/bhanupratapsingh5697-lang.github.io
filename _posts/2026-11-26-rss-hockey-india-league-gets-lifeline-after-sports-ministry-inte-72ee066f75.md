@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Hockey India League gets lifeline after Sports Ministry intervention, auction on Dec 7 - India Today"
+date: 2026-11-26 13:39:42 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxNSmxrdEh5ZnJhY0Z0TWdPb1VodmMxOTltUTB3eFZBdjZEb042OVItMmEyZjVMMmZ3aDI3LXhoY2ZXN1AzYVBSNzJ5Y0dET2x5eE82Q0pJdVBPSG5XUXRQdFJrTEZQa1FFNXFVdFdkeEoxZXpSeVl3aVhiR2ZxaEJyUmE3YnAyNnB0N0x5OXc1S0JMRW5pUHhXZWZpVEpTUU9wUndYa2JVWFZOemZvdDE0YlBNSE5JTHRIVFBmbk5qUFVHMFAtYjRUdjNFZ2hTTVNNWG52cVdzc9IB1wFBVV95cUxNSmxrdEh5ZnJhY0Z0TWdPb1VodmMxOTltUTB3eFZBdjZEb042OVItMmEyZjVMMmZ3aDI3LXhoY2ZXN1AzYVBSNzJ5Y0dET2x5eE82Q0pJdVBPSG5XUXRQdFJrTEZQa1FFNXFVdFdkeEoxZXpSeVl3aVhiR2ZxaEJyUmE3YnAyNnB0N0x5OXc1S0JMRW5pUHhXZWZpVEpTUU9wUndYa2JVWFZOemZvdDE0YlBNSE5JTHRIVFBmbk5qUFVHMFAtYjRUdjNFZ2hTTVNNWG52cVdzcw?oc=5"
+---
+
+Hockey India League gets lifeline after Sports Ministry intervention, auction on Dec 7 India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi1wFBVV95cUxNSmxrdEh5ZnJhY0Z0TWdPb1VodmMxOTltUTB3eFZBdjZEb042OVItMmEyZjVMMmZ3aDI3LXhoY2ZXN1AzYVBSNzJ5Y0dET2x5eE82Q0pJdVBPSG5XUXRQdFJrTEZQa1FFNXFVdFdkeEoxZXpSeVl3aVhiR2ZxaEJyUmE3YnAyNnB0N0x5OXc1S0JMRW5pUHhXZWZpVEpTUU9wUndYa2JVWFZOemZvdDE0YlBNSE5JTHRIVFBmbk5qUFVHMFAtYjRUdjNFZ2hTTVNNWG52cVdzc9IB1wFBVV95cUxNSmxrdEh5ZnJhY0Z0TWdPb1VodmMxOTltUTB3eFZBdjZEb042OVItMmEyZjVMMmZ3aDI3LXhoY2ZXN1AzYVBSNzJ5Y0dET2x5eE82Q0pJdVBPSG5XUXRQdFJrTEZQa1FFNXFVdFdkeEoxZXpSeVl3aVhiR2ZxaEJyUmE3YnAyNnB0N0x5OXc1S0JMRW5pUHhXZWZpVEpTUU9wUndYa2JVWFZOemZvdDE0YlBNSE5JTHRIVFBmbk5qUFVHMFAtYjRUdjNFZ2hTTVNNWG52cVdzcw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

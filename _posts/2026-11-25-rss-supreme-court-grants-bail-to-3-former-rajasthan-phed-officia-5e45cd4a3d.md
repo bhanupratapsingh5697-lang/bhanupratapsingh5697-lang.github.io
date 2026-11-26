@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Supreme Court Grants Bail To 3 Former Rajasthan PHED Officials In ₹979 Crore Jal Jeevan Mission Tender... - Live Law"
+date: 2026-11-25 20:10:32 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi5AFBVV95cUxNd3g4a1UtUlRYRkd3UGhRWkExNkJVN3AwZ281eGJLTExIdlRWNTFXOHkteFR5ZXZqVlpuX2VYVkdJTnZZR1BYdXFfbVRncEQwdHd4NU9wSzh0MGQ2RWxaamFTeTVpMlhUbTF3XzNoaW1oZHFvYnBkVjFNUjBVZlRfbVFqaElhNlhjMFoxd0RtNnBpbERKMFFjRUU1bUJOQ1FHTlFHUl9ackxFamdtMnJwUmJyXzF0VlgwQXpqaExSWUtOME1LYUlHS1MzMXRBa3Ixajd6LVRhUFRtSmhIODctSjdWZFPSAeoBQVVfeXFMTUtPRHFFdy1fV1MzOGJlVVVVemItZGF0ajFIMEpaNkY1akNMeUlNWkNlU1ZVTFhnSzB4MjVJaWxhdzFtWWFzZnlQQ3RXdnR6RDU4OE14SW9TYWJCTkVFSkh4WWkzZWtNblQ2NU5tdFRDWWV6Ry1aXzJidUQzLXJjVE5iMThFci1oQTZiZ0pqQURIYVFoNnplamlhZUxNTGF3XzRuVW01X2sxSzYxNGZFVVBqeGoycG82MWR5T05lLVpoc0x0cGt3S09PNTg1UW5LY2c0WVFwUkNocWJYWFJHY2x0bTVlM0JFUm1R?oc=5"
+---
+
+Supreme Court Grants Bail To 3 Former Rajasthan PHED Officials In ₹979 Crore Jal Jeevan Mission Tender... Live Law
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi5AFBVV95cUxNd3g4a1UtUlRYRkd3UGhRWkExNkJVN3AwZ281eGJLTExIdlRWNTFXOHkteFR5ZXZqVlpuX2VYVkdJTnZZR1BYdXFfbVRncEQwdHd4NU9wSzh0MGQ2RWxaamFTeTVpMlhUbTF3XzNoaW1oZHFvYnBkVjFNUjBVZlRfbVFqaElhNlhjMFoxd0RtNnBpbERKMFFjRUU1bUJOQ1FHTlFHUl9ackxFamdtMnJwUmJyXzF0VlgwQXpqaExSWUtOME1LYUlHS1MzMXRBa3Ixajd6LVRhUFRtSmhIODctSjdWZFPSAeoBQVVfeXFMTUtPRHFFdy1fV1MzOGJlVVVVemItZGF0ajFIMEpaNkY1akNMeUlNWkNlU1ZVTFhnSzB4MjVJaWxhdzFtWWFzZnlQQ3RXdnR6RDU4OE14SW9TYWJCTkVFSkh4WWkzZWtNblQ2NU5tdFRDWWV6Ry1aXzJidUQzLXJjVE5iMThFci1oQTZiZ0pqQURIYVFoNnplamlhZUxNTGF3XzRuVW01X2sxSzYxNGZFVVBqeGoycG82MWR5T05lLVpoc0x0cGt3S09PNTg1UW5LY2c0WVFwUkNocWJYWFJHY2x0bTVlM0JFUm1R?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

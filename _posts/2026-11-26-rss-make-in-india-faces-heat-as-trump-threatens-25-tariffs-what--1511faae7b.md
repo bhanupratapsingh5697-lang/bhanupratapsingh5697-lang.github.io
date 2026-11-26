@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Make In India Faces Heat As Trump Threatens 25% Tariffs. What Happens To Exports - NDTV"
+date: 2026-11-26 12:53:35 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi3wFBVV95cUxNN1hZWWVqZ0ZqSi1nanEzOFlGQnN0ZGFQRmFITm44REhUSGJKX0tRTFpmWTNHTXlQdWVQLXJ6a2M0UExDWlJlUERvZTFwMFVXaFE1N2UxTWVSN3V5bzk2ZEgxdGtHTVlqWV9zZ1hNVlF2TXB0WU52VTB5RTRVYTFqci11dWdJcDVPSm84R002WXBpRWlLa3dFMGlXS3pNaHhrZU54ZEdpcTlMVFNGNUJ1bE5nQzBpVVd5UzA3djl1bVhsNk92WUtlVmNZdnZDWUlRck5uamF0RFRBaWoxQ3Y00gHnAUFVX3lxTE5HTlI2OVVVdGFmbXRQbi12cC1lYlM4U21UdWlLYllFMHhfUEVCUVZNYXd3QXlGcUh1X3JsS0NObDhyaU9HWU15Q3E0Q052VjA2aWZfcEE2cE1nVWxZV0ZoSzhCaUg1WFBmdGlibHB1Xzc3WTE1VDN5a3BLZFNnelhjNXBhQ0pvOWRSSDQ1Y2VjbWRRQ0ZwdGVPd0pTdmx4Xzdwb2I5R1ZHbDdxUGxGMG1fUFZIczBJaTlDRVY2OWliYTRTSWw4dUk1c1BHNGJCNUhNRk12d3JQakFpRWdaZmxfZF9MY0NtYw?oc=5"
+---
+
+Make In India Faces Heat As Trump Threatens 25% Tariffs. What Happens To Exports NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3wFBVV95cUxNN1hZWWVqZ0ZqSi1nanEzOFlGQnN0ZGFQRmFITm44REhUSGJKX0tRTFpmWTNHTXlQdWVQLXJ6a2M0UExDWlJlUERvZTFwMFVXaFE1N2UxTWVSN3V5bzk2ZEgxdGtHTVlqWV9zZ1hNVlF2TXB0WU52VTB5RTRVYTFqci11dWdJcDVPSm84R002WXBpRWlLa3dFMGlXS3pNaHhrZU54ZEdpcTlMVFNGNUJ1bE5nQzBpVVd5UzA3djl1bVhsNk92WUtlVmNZdnZDWUlRck5uamF0RFRBaWoxQ3Y00gHnAUFVX3lxTE5HTlI2OVVVdGFmbXRQbi12cC1lYlM4U21UdWlLYllFMHhfUEVCUVZNYXd3QXlGcUh1X3JsS0NObDhyaU9HWU15Q3E0Q052VjA2aWZfcEE2cE1nVWxZV0ZoSzhCaUg1WFBmdGlibHB1Xzc3WTE1VDN5a3BLZFNnelhjNXBhQ0pvOWRSSDQ1Y2VjbWRRQ0ZwdGVPd0pTdmx4Xzdwb2I5R1ZHbDdxUGxGMG1fUFZIczBJaTlDRVY2OWliYTRTSWw4dUk1c1BHNGJCNUhNRk12d3JQakFpRWdaZmxfZF9MY0NtYw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
