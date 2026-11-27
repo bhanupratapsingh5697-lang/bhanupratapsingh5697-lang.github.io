@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Why Zara, H&M, Marks & Spencer are moving garment orders from Bangladesh to India - The Indian Express"
+date: 2026-11-27 22:01:02 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiygFBVV95cUxPcldRbmhoQzJtY3VER1AzOUJBMDJFY3FkUUpiUzhSZDlXcGxnSElCUlJzWmJoM3JFRlB4eUt1SVF2MC1MRkRNSjFxT0FBWEtoMEtFV21oanZ4cHBHOEZkb1dDZExjY0dwWG1aOGpMWmg4WWZ6MDZXeTEtaVRXak8weG1FSEdOREotdzZVaWthS2ZrZDlJWTlxZjdrcG93ZGl0azBlcHQzaXBORjE5N3d1dC1lc2hNMmNPX2oxczAtUUpILVpjWmhrQmNB0gHQAUFVX3lxTE12TkVoX3BWOGxwQXJJeWcwLUR5ZzhVelNIckRvcEdHVzc4Qm54VnpqdDFFcEtkZHFBUUY0RmFfWjQ0UV9KaUdRSVEtMzRNbHFZQnZKd2J0YS00RnhOeTQtZl9uNFpWN3BmWGFDQXlPZGRFWVFpVjl6eVhUTm4xRmdhZ1lYbHYtTk9mRUtndDd0b2IzWUFsSFFSa0loV2JCcHlUYklQcXFSX3BQZlhORWRzTThEaUhKYkhNZUFXdmZUbDRSVkt6em0zdzBsVEkzWnU?oc=5"
+---
+
+Why Zara, H&M, Marks & Spencer are moving garment orders from Bangladesh to India The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiygFBVV95cUxPcldRbmhoQzJtY3VER1AzOUJBMDJFY3FkUUpiUzhSZDlXcGxnSElCUlJzWmJoM3JFRlB4eUt1SVF2MC1MRkRNSjFxT0FBWEtoMEtFV21oanZ4cHBHOEZkb1dDZExjY0dwWG1aOGpMWmg4WWZ6MDZXeTEtaVRXak8weG1FSEdOREotdzZVaWthS2ZrZDlJWTlxZjdrcG93ZGl0azBlcHQzaXBORjE5N3d1dC1lc2hNMmNPX2oxczAtUUpILVpjWmhrQmNB0gHQAUFVX3lxTE12TkVoX3BWOGxwQXJJeWcwLUR5ZzhVelNIckRvcEdHVzc4Qm54VnpqdDFFcEtkZHFBUUY0RmFfWjQ0UV9KaUdRSVEtMzRNbHFZQnZKd2J0YS00RnhOeTQtZl9uNFpWN3BmWGFDQXlPZGRFWVFpVjl6eVhUTm4xRmdhZ1lYbHYtTk9mRUtndDd0b2IzWUFsSFFSa0loV2JCcHlUYklQcXFSX3BQZlhORWRzTThEaUhKYkhNZUFXdmZUbDRSVkt6em0zdzBsVEkzWnU?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

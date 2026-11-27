@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Global fashion brands shift orders from Bangladesh to India amid unrest - The Hindu"
+date: 2026-11-28 00:57:45 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiwwFBVV95cUxOcXg1MUNtWnNMZng4akJfZGlfRkdzM09KZlREUXNOMEhYT21wenFWTmgwUWpVN0JKM05Ub296alZrVDhuQVFERXc0YTJGMERjT2pSbnljVkFTY1FielU3anRGQ1IwX1JFR0U1TmFEcXdxb09MeFRwQ1dhV21VMWRtUHZvT2tmUi1MSDR2Qks5eVlfUmVYeDVhaFlWSWZkQXdNcEVONldIWmd0akxZSVNXYl9fRHNTSmV3c1l4clg4TE1WY0HSAcoBQVVfeXFMTnEwM1NnMWNSLUpuSzBaQXlwbXNQWG9iNkxGZmpTRnNIY3RTcFFFRzNKa3EzU1JWYlZ5SjRnSTludjdxb1dXdlNCVW9TelJHMG1xeXZ5czlDelpsTkdYcXcyR0xHc3RDVDFaWVZnd2JsUm5vaEk3WHJxSl9PcU5tbFl2cGl0WGlKOVdpd1dLSzdfSk5TWDBraFpQZmdPTUlDeGdqNnUyMDctQ1BLWEFrUjc4QTg3TWJtbjlQeUhydG9MS3h3QzJMbktDUQ?oc=5"
+---
+
+Global fashion brands shift orders from Bangladesh to India amid unrest The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwwFBVV95cUxOcXg1MUNtWnNMZng4akJfZGlfRkdzM09KZlREUXNOMEhYT21wenFWTmgwUWpVN0JKM05Ub296alZrVDhuQVFERXc0YTJGMERjT2pSbnljVkFTY1FielU3anRGQ1IwX1JFR0U1TmFEcXdxb09MeFRwQ1dhV21VMWRtUHZvT2tmUi1MSDR2Qks5eVlfUmVYeDVhaFlWSWZkQXdNcEVONldIWmd0akxZSVNXYl9fRHNTSmV3c1l4clg4TE1WY0HSAcoBQVVfeXFMTnEwM1NnMWNSLUpuSzBaQXlwbXNQWG9iNkxGZmpTRnNIY3RTcFFFRzNKa3EzU1JWYlZ5SjRnSTludjdxb1dXdlNCVW9TelJHMG1xeXZ5czlDelpsTkdYcXcyR0xHc3RDVDFaWVZnd2JsUm5vaEk3WHJxSl9PcU5tbFl2cGl0WGlKOVdpd1dLSzdfSk5TWDBraFpQZmdPTUlDeGdqNnUyMDctQ1BLWEFrUjc4QTg3TWJtbjlQeUhydG9MS3h3QzJMbktDUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

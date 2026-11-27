@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rajasthan CET 12th Level Admit Card 2026 Out: Check Exam Details Here - NDTV"
+date: 2026-11-27 12:40:31 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMirAFBVV95cUxQVHBBOW5DQS1sN1NhcnZRSzJ4NmNha2thM0xIald0QUU1dVJfZTVOMk8wMFZuNUJaRE1tc0VlYTFlVFFiOHhXdEpTMVZ4YVdnNzhzek5uQUdKLTZqYnN2T1FTZnNlWC1YSHJKcmR3OHQtZjJsN0x5QktZUndyVEZjWXg4RFh6MWZOQnFLVi0zR0pJaFVIRVZOeDUyM3lvZE1TVEZ0V2JXSXhFR0lB0gG0AUFVX3lxTE9sUVBIWGZZVzRsWjhzVDY0NjNDd3pVMDc4N1hfbzlHOWxuVEpzRVdqNFR5TllkREFHYUxPLVoxVXF0ZWJjRW5tQ293X0FXNjllblJ0cGRDTEpuVzBwYU50ejFrZFJGS1RIcHJZMm9vTTAwaHlKYlZGQV9OVU9uTUh4aFBrT2Z3V054dlVYUFZmbmRwZ3dRZVFuVHhPbE5jb2tTRkpYeXByZGJISGNUOU0yOGoweA?oc=5"
+---
+
+Rajasthan CET 12th Level Admit Card 2026 Out: Check Exam Details Here NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirAFBVV95cUxQVHBBOW5DQS1sN1NhcnZRSzJ4NmNha2thM0xIald0QUU1dVJfZTVOMk8wMFZuNUJaRE1tc0VlYTFlVFFiOHhXdEpTMVZ4YVdnNzhzek5uQUdKLTZqYnN2T1FTZnNlWC1YSHJKcmR3OHQtZjJsN0x5QktZUndyVEZjWXg4RFh6MWZOQnFLVi0zR0pJaFVIRVZOeDUyM3lvZE1TVEZ0V2JXSXhFR0lB0gG0AUFVX3lxTE9sUVBIWGZZVzRsWjhzVDY0NjNDd3pVMDc4N1hfbzlHOWxuVEpzRVdqNFR5TllkREFHYUxPLVoxVXF0ZWJjRW5tQ293X0FXNjllblJ0cGRDTEpuVzBwYU50ejFrZFJGS1RIcHJZMm9vTTAwaHlKYlZGQV9OVU9uTUh4aFBrT2Z3V054dlVYUFZmbmRwZ3dRZVFuVHhPbE5jb2tTRkpYeXByZGJISGNUOU0yOGoweA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

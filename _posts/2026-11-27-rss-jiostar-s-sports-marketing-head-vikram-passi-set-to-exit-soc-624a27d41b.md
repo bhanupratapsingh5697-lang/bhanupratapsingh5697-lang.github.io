@@ -1,0 +1,17 @@
+---
+layout: post
+title: "JioStar’s sports marketing head Vikram Passi set to exit - Social Samosa"
+date: 2026-11-27 17:01:32 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMirwFBVV95cUxQS3JETWU1YzJhc1FTSm12bDh3V1RhaTdhMGN3WXIzaVRPeno5S1hBcFd1OTBhMzdlQTZQTTc1ck9yT3NaNnZXWXBRSHRnQ3hVM2lLTFdYM085aHlEMHY5TEY4VWdHOVBxbGR0WHJiQVFsYUd6U1JiNW9DWUxaaXhPYzdjWktIbWZUSk5jOXVoLW12VW9TenlsQVJNZFFiQXNNZTNFdENlTEJKNzNLeEdB0gGvAUFVX3lxTFBLckRNZTVjMmFzUVNKbXZsOHdXVGFpN2EwY3dZcjNpVE96ejlLWEFwV3U5MGEzN2VBNlBNNzVyT3JPc1o2dldZcFFIdGdDeFUzaUtMV1gzTzloeUQwdjlMRjhVZ0c5UHFsZHRYcmJBUWxhR3pTUmI1b0NZTFppeE9jN2NaS0htZlRKTmM5dWgtbXZVb1N6eWxBUk1kUWJBc01lM0V0Q2VMQko3M0t4R0E?oc=5"
+---
+
+JioStar’s sports marketing head Vikram Passi set to exit Social Samosa
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMirwFBVV95cUxQS3JETWU1YzJhc1FTSm12bDh3V1RhaTdhMGN3WXIzaVRPeno5S1hBcFd1OTBhMzdlQTZQTTc1ck9yT3NaNnZXWXBRSHRnQ3hVM2lLTFdYM085aHlEMHY5TEY4VWdHOVBxbGR0WHJiQVFsYUd6U1JiNW9DWUxaaXhPYzdjWktIbWZUSk5jOXVoLW12VW9TenlsQVJNZFFiQXNNZTNFdENlTEJKNzNLeEdB0gGvAUFVX3lxTFBLckRNZTVjMmFzUVNKbXZsOHdXVGFpN2EwY3dZcjNpVE96ejlLWEFwV3U5MGEzN2VBNlBNNzVyT3JPc1o2dldZcFFIdGdDeFUzaUtMV1gzTzloeUQwdjlMRjhVZ0c5UHFsZHRYcmJBUWxhR3pTUmI1b0NZTFppeE9jN2NaS0htZlRKTmM5dWgtbXZVb1N6eWxBUk1kUWJBc01lM0V0Q2VMQko3M0t4R0E?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

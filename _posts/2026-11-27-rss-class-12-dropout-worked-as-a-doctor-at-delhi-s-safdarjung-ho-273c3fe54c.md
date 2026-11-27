@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Class 12 dropout worked as a 'doctor' at Delhi's Safdarjung Hospital: How Rajasthan SOG busted fake MBBS racket - The Week"
+date: 2026-11-27 10:16:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi7gFBVV95cUxNUFVLZjhpLTVvSzZXQ3Fud0NHN0lJS21lUVBEeEI1UWhQeWxBZG5SbGZaTlVnTGE2TklKUjBiNGR5eS0tRVFLUVVNaW5lWThsZG9TS1pmeFlMUzYtcVZ2ZVNQb2dvbXN5MV9VVWRLamtDcUdZbW9rWTFIbjV5MnRYTm44b01LQU9WUk9LUlJWTVFaV2I3azJfWTBuS1J6S0JXTEZTd2J6T3U2eHBPNDlLS0UzWGRjaTlWeGoxM0JWMHQ0OXRvc3ZaUDJGYmJiUGtHYUk1bGJHLTVsVTJ1dkZ3NXhEUEVSbmtsOFNhSjdB0gHzAUFVX3lxTE1Xb2FiVWpqbmFmaWVQNHdQRnJLTzNSeE1zNEZpNDJPMUgtNmJyWHRmcjZMTkR2Z1JDTFlFU2Y1QzRockpwMjJDZjV5MGc5cnFUZ3BSZEVCRDRkcm1zRncxb1BTaXJIcklubzNnU0czNi0xUENCVGJIN3ZxTlQ2dkhOSktMQWdHd1NJNXBRQ3c5aVZsM0E1UnphcFY5RWtwcTAzcUg1QVRoX2paNnI0VEdOMHh1TDQzY2kyaTg4LVU3VUVTaVVNaWJEN0tRcmk5X0JyanN2TnhvRkN6end6NTBlSGh3OUR6dFozZnNtNU1RVXlIZw?oc=5"
+---
+
+Class 12 dropout worked as a 'doctor' at Delhi's Safdarjung Hospital: How Rajasthan SOG busted fake MBBS racket The Week
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi7gFBVV95cUxNUFVLZjhpLTVvSzZXQ3Fud0NHN0lJS21lUVBEeEI1UWhQeWxBZG5SbGZaTlVnTGE2TklKUjBiNGR5eS0tRVFLUVVNaW5lWThsZG9TS1pmeFlMUzYtcVZ2ZVNQb2dvbXN5MV9VVWRLamtDcUdZbW9rWTFIbjV5MnRYTm44b01LQU9WUk9LUlJWTVFaV2I3azJfWTBuS1J6S0JXTEZTd2J6T3U2eHBPNDlLS0UzWGRjaTlWeGoxM0JWMHQ0OXRvc3ZaUDJGYmJiUGtHYUk1bGJHLTVsVTJ1dkZ3NXhEUEVSbmtsOFNhSjdB0gHzAUFVX3lxTE1Xb2FiVWpqbmFmaWVQNHdQRnJLTzNSeE1zNEZpNDJPMUgtNmJyWHRmcjZMTkR2Z1JDTFlFU2Y1QzRockpwMjJDZjV5MGc5cnFUZ3BSZEVCRDRkcm1zRncxb1BTaXJIcklubzNnU0czNi0xUENCVGJIN3ZxTlQ2dkhOSktMQWdHd1NJNXBRQ3c5aVZsM0E1UnphcFY5RWtwcTAzcUg1QVRoX2paNnI0VEdOMHh1TDQzY2kyaTg4LVU3VUVTaVVNaWJEN0tRcmk5X0JyanN2TnhvRkN6end6NTBlSGh3OUR6dFozZnNtNU1RVXlIZw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Haryana CM Unveils Khel Mahakumbh Mascot, Emphasises Sports Development - Rediff.com"
+date: 2026-11-27 18:23:11 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMipgFBVV95cUxQRl81UUFsaWdkV2dxWHd0Y3owNU1DQkJnbXV1Y09BdkFac1drU2p5cUVKQ0RxUlpPbW1UYlpseUJSb2lMN1JXdkRIcXY0X3htQkloY0todVE1YlJDRVBDT2U5bzJ0STR0cy1yZEduTUozN3doZDlraVFGbWgySmJVM2tqeXFrRy1abE5YR2VPMjN3QkpFVFBKQmZmS29TeS0taUY5clF30gGoAUFVX3lxTE9tTzBPdUJoSnF1NVVPQXY2Z0VXMUl6b1lyY2tJLUhfUG1XRWlpLTRXMld3aWJGRW9GWUtZTS1ZNlM0a2g2VWVTNEhrMDRCVTM4UDVxcTR3ZUkyUUFIelBKVmpGa1ZUMjZyaVdIUWx2eFF5cmpuT09XZ1dLVWJEaFBtYV9hVE1saGpuSFE3b3hoRWVzaWJQSWtMazBZTUJqNkw5RFNBWlMzVA?oc=5"
+---
+
+Haryana CM Unveils Khel Mahakumbh Mascot, Emphasises Sports Development Rediff.com
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMipgFBVV95cUxQRl81UUFsaWdkV2dxWHd0Y3owNU1DQkJnbXV1Y09BdkFac1drU2p5cUVKQ0RxUlpPbW1UYlpseUJSb2lMN1JXdkRIcXY0X3htQkloY0todVE1YlJDRVBDT2U5bzJ0STR0cy1yZEduTUozN3doZDlraVFGbWgySmJVM2tqeXFrRy1abE5YR2VPMjN3QkpFVFBKQmZmS29TeS0taUY5clF30gGoAUFVX3lxTE9tTzBPdUJoSnF1NVVPQXY2Z0VXMUl6b1lyY2tJLUhfUG1XRWlpLTRXMld3aWJGRW9GWUtZTS1ZNlM0a2g2VWVTNEhrMDRCVTM4UDVxcTR3ZUkyUUFIelBKVmpGa1ZUMjZyaVdIUWx2eFF5cmpuT09XZ1dLVWJEaFBtYV9hVE1saGpuSFE3b3hoRWVzaWJQSWtMazBZTUJqNkw5RFNBWlMzVA?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Why is Bangladesh protesting for Sheikh Hasina’s return, and how is India involved? - The Indian Express"
+date: 2026-11-27 20:00:54 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiugFBVV95cUxQb0Y2SmpNeTN0MTFBNEctYVFsWUNjM19QWjdVTVk3ZER2R3dnY1AzdmUwdmdpUF9EcENqVjhtOHd5ZmpXUWItbXhmNVc2eHRYeThEd2NfdDZ4ZWItS05KMExVUDktMGlLNmY4blVCclFmcWFzMldGS293YTl5Q2M4TG1LSEpZTVNPWHA0c051Q0pqOGVScTBjSWpiTFpKS3piVUstRmtPdEpQOWVOampvWnEtaFVmVVpfbmfSAcABQVVfeXFMTjFjVnplazJ6YWh4QzVVa3lrcDhZdzNub3V0ZVZ4ZHYybVVOVWo0MVN6NTY5VUZ1Q3lRVmxubHJVVUJjVFgyaDBPRWtwUWFWNFd5MUlfSVZza0FqbDI5V1RzZFNvQlNQY2VGVFVHMnUyM1FSSzFmUUdDNkZhMm1INjR1Z2RSNGpqV256QVI5NGF5VUptTDFRWW40RWZkeE9oZ05VQWUyVHpESGFoZmk3MzVhalhUVnJwQXk1dFpRYUth?oc=5"
+---
+
+Why is Bangladesh protesting for Sheikh Hasina’s return, and how is India involved? The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiugFBVV95cUxQb0Y2SmpNeTN0MTFBNEctYVFsWUNjM19QWjdVTVk3ZER2R3dnY1AzdmUwdmdpUF9EcENqVjhtOHd5ZmpXUWItbXhmNVc2eHRYeThEd2NfdDZ4ZWItS05KMExVUDktMGlLNmY4blVCclFmcWFzMldGS293YTl5Q2M4TG1LSEpZTVNPWHA0c051Q0pqOGVScTBjSWpiTFpKS3piVUstRmtPdEpQOWVOampvWnEtaFVmVVpfbmfSAcABQVVfeXFMTjFjVnplazJ6YWh4QzVVa3lrcDhZdzNub3V0ZVZ4ZHYybVVOVWo0MVN6NTY5VUZ1Q3lRVmxubHJVVUJjVFgyaDBPRWtwUWFWNFd5MUlfSVZza0FqbDI5V1RzZFNvQlNQY2VGVFVHMnUyM1FSSzFmUUdDNkZhMm1INjR1Z2RSNGpqV256QVI5NGF5VUptTDFRWW40RWZkeE9oZ05VQWUyVHpESGFoZmk3MzVhalhUVnJwQXk1dFpRYUth?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

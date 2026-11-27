@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India’s place in the emerging global energy order - The Hindu"
+date: 2026-11-28 00:48:00 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxOMGhIUnJaaW1ObkFVSmJZQXNPU0hfWkVxRzhwdVNiM3V6eXNwLXhEU3JlNU5LREtpX3dyc2FKY0JOTnNwLVc1S2lBZHI5enRPU3FVblJwM1RYdHo2eW1hMVJ6YnQtQVhuYU42ZEFDTmtjQVhqUGJYOXVmZlE2SWNlX1VJYmk4Ty0yanlxQjJKZ3pKNkdWbldaMElfZU5KbWtmQ2Z4V0ZqSGI3QdIBsAFBVV95cUxOVklaU1hyT3VJa3VsWDFfTGNoaDJlV0FLWjlWb09OQ0libFUzWlR3dU9tY0QweWdVUy1wbnhrRVN1VXdNblpQMkNkUm91OWVPenRHVmhfVHdYZGJ2Z1o3TENZWDI2NmVCRVZENmlxQVZUN192eUUwb1JHc3BITEZDUXZuTmhHZTFidHV2WF8tWW5RQ2tiZF9Vb2hrN2poOHlDaTg0aHFKOHBmd1d4R1hyQg?oc=5"
+---
+
+India’s place in the emerging global energy order The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOMGhIUnJaaW1ObkFVSmJZQXNPU0hfWkVxRzhwdVNiM3V6eXNwLXhEU3JlNU5LREtpX3dyc2FKY0JOTnNwLVc1S2lBZHI5enRPU3FVblJwM1RYdHo2eW1hMVJ6YnQtQVhuYU42ZEFDTmtjQVhqUGJYOXVmZlE2SWNlX1VJYmk4Ty0yanlxQjJKZ3pKNkdWbldaMElfZU5KbWtmQ2Z4V0ZqSGI3QdIBsAFBVV95cUxOVklaU1hyT3VJa3VsWDFfTGNoaDJlV0FLWjlWb09OQ0libFUzWlR3dU9tY0QweWdVUy1wbnhrRVN1VXdNblpQMkNkUm91OWVPenRHVmhfVHdYZGJ2Z1o3TENZWDI2NmVCRVZENmlxQVZUN192eUUwb1JHc3BITEZDUXZuTmhHZTFidHV2WF8tWW5RQ2tiZF9Vb2hrN2poOHlDaTg0aHFKOHBmd1d4R1hyQg?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

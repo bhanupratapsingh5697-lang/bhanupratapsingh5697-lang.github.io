@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Denmark seeks Indian tech talent, looks to expand technology ties with India - Firstpost"
+date: 2026-11-27 21:33:00 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMivgFBVV95cUxNMGdEM19OOWhQRmJSbWZYT09Da0ZPNkxKOU9hVnpCUTBFOXUyT1gyZ2JNaUFSQUl4SUg3MC1fWmVramU5VjM1d2hvSXU3S3NVNFJuSnpYcFctUFF0SHZQd1dUMFdOLVhVU2NRcmoweHpVc1ZIcklUVmNwdDdPalNROEQ0bEs5Mkk2Zm9QWHF2VlVZNjhIdjAwZlhLUHNfMkFWMk9QTDhma2pNeXVJOHF0LUYyUEhWdENTSTRNMFJn0gHDAUFVX3lxTE5OVDlVT3FpYXdCeE0tNFN2T1RQQXctY2lJVjF6UFNiS3gxNmZxSGdKdDZDejhkbzZSQUM5eXVCQ3l0V01wOVF6Wmo1NmJVVUwtQ3RyUkltcjBZLTVHcHFtQkpSanR4TFpQeUZFMWxmZnZ1ZGhWRmVDODN0eXZmN0Z4QmNDTEZockoyc0Nrb2kzc1ZFT3BIXzRvdUxFcjFjV1g2ZlZ3YU5fQjhxSUx4Zi00R2xKVm16aDlCaEh3bnNzRWlJYw?oc=5"
+---
+
+Denmark seeks Indian tech talent, looks to expand technology ties with India Firstpost
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMivgFBVV95cUxNMGdEM19OOWhQRmJSbWZYT09Da0ZPNkxKOU9hVnpCUTBFOXUyT1gyZ2JNaUFSQUl4SUg3MC1fWmVramU5VjM1d2hvSXU3S3NVNFJuSnpYcFctUFF0SHZQd1dUMFdOLVhVU2NRcmoweHpVc1ZIcklUVmNwdDdPalNROEQ0bEs5Mkk2Zm9QWHF2VlVZNjhIdjAwZlhLUHNfMkFWMk9QTDhma2pNeXVJOHF0LUYyUEhWdENTSTRNMFJn0gHDAUFVX3lxTE5OVDlVT3FpYXdCeE0tNFN2T1RQQXctY2lJVjF6UFNiS3gxNmZxSGdKdDZDejhkbzZSQUM5eXVCQ3l0V01wOVF6Wmo1NmJVVUwtQ3RyUkltcjBZLTVHcHFtQkpSanR4TFpQeUZFMWxmZnZ1ZGhWRmVDODN0eXZmN0Z4QmNDTEZockoyc0Nrb2kzc1ZFT3BIXzRvdUxFcjFjV1g2ZlZ3YU5fQjhxSUx4Zi00R2xKVm16aDlCaEh3bnNzRWlJYw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

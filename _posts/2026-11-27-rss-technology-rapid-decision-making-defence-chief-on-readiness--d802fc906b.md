@@ -1,0 +1,17 @@
+---
+layout: post
+title: "\"Technology, Rapid Decision-Making\": Defence Chief On Readiness For Wars - NDTV"
+date: 2026-11-27 21:24:59 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxPalNMYkx6cjM5S3BDeWVZVGY2TTlMb2w1c3ZZYURoZTJfazhfS09UTzhkRGVKc3JhdlFDNlpCTWhuR1AtT1dNS2Jrc3FQZWVsNENlZmpnWV90S1B1YTZmV1lqMDR4LWRvT2FZMEg5Z2txdXl6S0RLX0FDZ05kWkNmXzBDNjl3UG1keVpuOGlEanI1UXFTQ3NscEZOQ3oybmVmZEpHN0RCM1RoVXJRRV9PVDltb1dZRnlmRUctV0d0MDFrQdIBygFBVV95cUxPTVRCd0RneGpRTmpKbG8weUFZNW1Gb0MwdVkxUTFwSGF5dE1OclJtRUdIUnc1SExWQ0F5akM1c0tlb3hxZG5qZ3hMLThEOFFFR0lNdDFKeXI3dzFPdDFrVmNueXJibVJtZUlENWVTZk1LTzljYmZhTTBiZUFsX3puOEN2bFJQY2t6OHdQdFZ6NWtpNjRkT1M1YV83dUdhLTFmQnlOTUtDdGlSLTdHV2kyLW1JdTRHcTRyT1pYeWZzeE9yRFp6ejF4WlBn?oc=5"
+---
+
+"Technology, Rapid Decision-Making": Defence Chief On Readiness For Wars NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiwgFBVV95cUxPalNMYkx6cjM5S3BDeWVZVGY2TTlMb2w1c3ZZYURoZTJfazhfS09UTzhkRGVKc3JhdlFDNlpCTWhuR1AtT1dNS2Jrc3FQZWVsNENlZmpnWV90S1B1YTZmV1lqMDR4LWRvT2FZMEg5Z2txdXl6S0RLX0FDZ05kWkNmXzBDNjl3UG1keVpuOGlEanI1UXFTQ3NscEZOQ3oybmVmZEpHN0RCM1RoVXJRRV9PVDltb1dZRnlmRUctV0d0MDFrQdIBygFBVV95cUxPTVRCd0RneGpRTmpKbG8weUFZNW1Gb0MwdVkxUTFwSGF5dE1OclJtRUdIUnc1SExWQ0F5akM1c0tlb3hxZG5qZ3hMLThEOFFFR0lNdDFKeXI3dzFPdDFrVmNueXJibVJtZUlENWVTZk1LTzljYmZhTTBiZUFsX3puOEN2bFJQY2t6OHdQdFZ6NWtpNjRkT1M1YV83dUdhLTFmQnlOTUtDdGlSLTdHV2kyLW1JdTRHcTRyT1pYeWZzeE9yRFp6ejF4WlBn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

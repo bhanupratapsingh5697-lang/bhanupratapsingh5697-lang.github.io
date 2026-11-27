@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Law students should harness benefits of modern technology, says judge - The Hindu"
+date: 2026-11-27 19:33:03 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxPQVpSMnE2LUdOQzE4N2w2elh4VlB6QjFrRVRWdjJGVVl5enJ3cGdIWXZSWUNUVW1xWWx2ZFFsSC11LXI4dDJIcnZfTEt4UWwxenR4WHllTUtCVE5jQnBsZmxxY2EwRUhNVVZfLTl2MW1LVE5QX05vRHVoWDBlSFZpcDlic1ZCUjhlZF9Kd29fQW1ZaVRTLTJWbE53TU5vUEFMcHBDclZBZzdnYkZ2MlJiUzJ6aXhoXzhyZk9RVWNmYW1KcGhCWklzNlZsNllPc1h3aFhZ0gHaAUFVX3lxTE5pWm95eG14S3dwbHl3aXoxNEMtMExnUS02a01ZNnE3aFp6TmY4Qy05Rzk3MW9DMmx2Y0Jxc3JNUEdyNnNDQ0RzNWRnM3RBTGdyUmJMNHV5dHY1bzZDQWdWcG1BM25iNldOTFZOdVczRWpyUnluU0VNZFhEdGg2bGpsZW1OazBUNFNPR0FMMm13WkRaYS1lUEhyNVlTS0JZTERsYU5nbkJZc3V3a3F3bHlYdWYyVHVEbDhGQ3l4X3JBbEpaQ0gydjJDWmMwNEhPcE9WVmpNTVU5VzB3?oc=5"
+---
+
+Law students should harness benefits of modern technology, says judge The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxPQVpSMnE2LUdOQzE4N2w2elh4VlB6QjFrRVRWdjJGVVl5enJ3cGdIWXZSWUNUVW1xWWx2ZFFsSC11LXI4dDJIcnZfTEt4UWwxenR4WHllTUtCVE5jQnBsZmxxY2EwRUhNVVZfLTl2MW1LVE5QX05vRHVoWDBlSFZpcDlic1ZCUjhlZF9Kd29fQW1ZaVRTLTJWbE53TU5vUEFMcHBDclZBZzdnYkZ2MlJiUzJ6aXhoXzhyZk9RVWNmYW1KcGhCWklzNlZsNllPc1h3aFhZ0gHaAUFVX3lxTE5pWm95eG14S3dwbHl3aXoxNEMtMExnUS02a01ZNnE3aFp6TmY4Qy05Rzk3MW9DMmx2Y0Jxc3JNUEdyNnNDQ0RzNWRnM3RBTGdyUmJMNHV5dHY1bzZDQWdWcG1BM25iNldOTFZOdVczRWpyUnluU0VNZFhEdGg2bGpsZW1OazBUNFNPR0FMMm13WkRaYS1lUEhyNVlTS0JZTERsYU5nbkJZc3V3a3F3bHlYdWYyVHVEbDhGQ3l4X3JBbEpaQ0gydjJDWmMwNEhPcE9WVmpNTVU5VzB3?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

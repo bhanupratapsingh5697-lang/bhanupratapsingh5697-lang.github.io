@@ -1,0 +1,17 @@
+---
+layout: post
+title: "‘India needs to develop its own intellectual property’ - The Hindu"
+date: 2026-11-28 00:57:49 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiuAFBVV95cUxQLXNBVnMwQmIwa1N0bHdUWXBwakZLV0RlVVYyNEE1TFItU2VCVHlKbzNaU3hBTzhPSkMtWTFnTjRCOWNkSEkwN1NlLU0yZHluMzhIUVhaRlVNdlBEX1BKOWpvLS1SUzJka0RhMU53cUN6LVBwTnl2RXlHR1BMUHRkZzc2SzJNVFRZRXM2RmU4czF6N2RLTjgyMnpGaEJVX0tqRll6aW9ZRkRrRlFTRE4xNC1xTWdVcVl20gG_AUFVX3lxTE9JSlJCMjFvLXdfWjlYU1czeTViMlk4NnJobThZZFNXYzNpc0FkUU8zRVMzTEFJQlhFTmxVUFlCVjhzdHlnNUtzS096R1dMNDg3UHV4QVVVZ1pmX2l0ay1WaVpwbXBlWktwT2toYm1WalM1dV9xRHloVFowS3h1dmRPbml5OV93cUEzUXBiYUlrNWtrMU1CdU9Rd1U4LXg1aDdtTURxRmFyUEI5Ui1uMkVLQXp2bnlyYlNnNkZHaWdr?oc=5"
+---
+
+‘India needs to develop its own intellectual property’ The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiuAFBVV95cUxQLXNBVnMwQmIwa1N0bHdUWXBwakZLV0RlVVYyNEE1TFItU2VCVHlKbzNaU3hBTzhPSkMtWTFnTjRCOWNkSEkwN1NlLU0yZHluMzhIUVhaRlVNdlBEX1BKOWpvLS1SUzJka0RhMU53cUN6LVBwTnl2RXlHR1BMUHRkZzc2SzJNVFRZRXM2RmU4czF6N2RLTjgyMnpGaEJVX0tqRll6aW9ZRkRrRlFTRE4xNC1xTWdVcVl20gG_AUFVX3lxTE9JSlJCMjFvLXdfWjlYU1czeTViMlk4NnJobThZZFNXYzNpc0FkUU8zRVMzTEFJQlhFTmxVUFlCVjhzdHlnNUtzS096R1dMNDg3UHV4QVVVZ1pmX2l0ay1WaVpwbXBlWktwT2toYm1WalM1dV9xRHloVFowS3h1dmRPbml5OV93cUEzUXBiYUlrNWtrMU1CdU9Rd1U4LXg1aDdtTURxRmFyUEI5Ui1uMkVLQXp2bnlyYlNnNkZHaWdr?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
