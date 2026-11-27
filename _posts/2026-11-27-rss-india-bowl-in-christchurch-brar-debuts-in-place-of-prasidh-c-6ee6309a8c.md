@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India bowl in Christchurch; Brar debuts in place of Prasidh - Cricinfo"
+date: 2026-11-27 03:49:26 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMizAFBVV95cUxQQ3JQT090UnQwNTFZVGhOM2d2RERqTUIwX2tscVFaZWptUEs4SUg0bnRlSDdiTUZhcG9GRW5ZMk4xdFNDcWJyUmpORlN3azcxVi0wX3lOV0dSSGtlNmdXVGhDSVZ2WlZIQzlGNWlkWUJMUTlhUkFNQVYzc1ZmZWdCV0w5NHBLN1hJbzVRdmRiUDZUUmtBcmEtLVhQVDBvc1lEa3VGU3dIUHpieDh1TmV1R1pwb3RiQno5V2UweHhlWXYxemFpREtGQTdpeUfSAd4BQVVfeXFMTmMzUUI1S1k4VFRJRFdDSjhCVWRzRW9vLTJSUFRCVDE4RktRdmVGdlBKUWZ2Zi01dVhYb3ViaUw2YUY4Y2pNcVRiNElsaFgzUVBpMkhfcXVFSk5KZVNTbGpsZkt2Sm5Sd2ItZDRFd1Qxd3dRVmV6RjZaMzRLOVZscy1HZ3gtRnpDc0c0cFoyR0hjSlBnT1M3QmdXLWg2UWtBNDc2ek5EZzZtemVtcl94Q3JPZ1d0TVVLWVJsYXZuZ2xpVy03cWl4dUR0bUxzYWpsbTlRZGpyb1pEcnVLc0dn?oc=5"
+---
+
+India bowl in Christchurch; Brar debuts in place of Prasidh Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMizAFBVV95cUxQQ3JQT090UnQwNTFZVGhOM2d2RERqTUIwX2tscVFaZWptUEs4SUg0bnRlSDdiTUZhcG9GRW5ZMk4xdFNDcWJyUmpORlN3azcxVi0wX3lOV0dSSGtlNmdXVGhDSVZ2WlZIQzlGNWlkWUJMUTlhUkFNQVYzc1ZmZWdCV0w5NHBLN1hJbzVRdmRiUDZUUmtBcmEtLVhQVDBvc1lEa3VGU3dIUHpieDh1TmV1R1pwb3RiQno5V2UweHhlWXYxemFpREtGQTdpeUfSAd4BQVVfeXFMTmMzUUI1S1k4VFRJRFdDSjhCVWRzRW9vLTJSUFRCVDE4RktRdmVGdlBKUWZ2Zi01dVhYb3ViaUw2YUY4Y2pNcVRiNElsaFgzUVBpMkhfcXVFSk5KZVNTbGpsZkt2Sm5Sd2ItZDRFd1Qxd3dRVmV6RjZaMzRLOVZscy1HZ3gtRnpDc0c0cFoyR0hjSlBnT1M3QmdXLWg2UWtBNDc2ek5EZzZtemVtcl94Q3JPZ1d0TVVLWVJsYXZuZ2xpVy03cWl4dUR0bUxzYWpsbTlRZGpyb1pEcnVLc0dn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Cold wave in Rajasthan, dense fog across North India on Friday. Read forecast - India Today"
+date: 2026-11-26 19:30:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi3gFBVV95cUxONnV4QmVWQnNuRzNrNl9XSDRkSlNTa0JfcEFuMEdpdUJIWG14V0Q0a1E3b2pwdklBV1VXb0Z4RGRrOEhhLUlsWm96T3kwb2ZyZXc5ZnNGZ1FCNTdXeXNsU2R1eVc1UXVJak5zYlZFVm15WXlNNExnaFhtS0pROU5GZ2hsYW5uUFEzazBQZEU5Q1V4MDZmNHpyYVdLX3Uzb2xDbGdnUFRGUDFtalhpTnk0UWlJZi04ZW1QVjM1ZUlBaDVnRUl4ZUpoQTR3ZEpBcWhkeXBFTjlDTFFZYnhVZXfSAeMBQVVfeXFMUGpIdTlUVlhrNy1NcHFwM3c2RFhVZ2o5ZnUzOHNlemMtMGlPTkw0Q2laMDNZcG9xVGphSTNUWGQwV3BVQ0tLMWxlWWZBaGFvQkp0VkFkZXEwU0RRZEY2US1nUG8wWmh6MEk1Vm5YOFV6LU9fODVZTlY4cjllamZyM0tkWnZJMkVFdmVTZ2RKNjRCdDJQZUgtUktXNVJDbmQ5SXdCTENQejNuOTBTM3k3TGdTUmZDX05pTEFOWmFRWlRRTzc3TDRhblpMdkYybzdQNHBvNkJxTVFjanZKYk1CYzBwM00?oc=5"
+---
+
+Cold wave in Rajasthan, dense fog across North India on Friday. Read forecast India Today
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi3gFBVV95cUxONnV4QmVWQnNuRzNrNl9XSDRkSlNTa0JfcEFuMEdpdUJIWG14V0Q0a1E3b2pwdklBV1VXb0Z4RGRrOEhhLUlsWm96T3kwb2ZyZXc5ZnNGZ1FCNTdXeXNsU2R1eVc1UXVJak5zYlZFVm15WXlNNExnaFhtS0pROU5GZ2hsYW5uUFEzazBQZEU5Q1V4MDZmNHpyYVdLX3Uzb2xDbGdnUFRGUDFtalhpTnk0UWlJZi04ZW1QVjM1ZUlBaDVnRUl4ZUpoQTR3ZEpBcWhkeXBFTjlDTFFZYnhVZXfSAeMBQVVfeXFMUGpIdTlUVlhrNy1NcHFwM3c2RFhVZ2o5ZnUzOHNlemMtMGlPTkw0Q2laMDNZcG9xVGphSTNUWGQwV3BVQ0tLMWxlWWZBaGFvQkp0VkFkZXEwU0RRZEY2US1nUG8wWmh6MEk1Vm5YOFV6LU9fODVZTlY4cjllamZyM0tkWnZJMkVFdmVTZ2RKNjRCdDJQZUgtUktXNVJDbmQ5SXdCTENQejNuOTBTM3k3TGdTUmZDX05pTEFOWmFRWlRRTzc3TDRhblpMdkYybzdQNHBvNkJxTVFjanZKYk1CYzBwM00?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

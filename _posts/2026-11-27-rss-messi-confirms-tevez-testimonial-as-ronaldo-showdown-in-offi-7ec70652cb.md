@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Messi confirms Tevez testimonial as Ronaldo showdown in offing - Al Jazeera"
+date: 2026-11-27 12:26:11 +0530
+category: "Sports"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Sports"
+source_url: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxOOHBaTW1PZlQ4MURwMW9QRHg5bDRyUkJ4ZkRNZW04Q3lFakVMYU83SVNzME5lYmVJOXRwck5BcFI1NEFrdTYwb0tySHIzXzVseGI5cWcwWGFiaWRpbWMyNTV2VEZfa2ZqOGhyMXhlRlpueHdIR244LVc0US1MZExJZnBnX0lxT2x4Z2xZUVdUdklWaF9nVjNxX0ZLazBFODZCR00yTnVremRSZ9IBrwFBVV95cUxPYU5xNE9kaWRQUFh0RVVSeF9kZVdFTDA2SnB6VVFtOFdVYWxfRFhLb0VTNzE3VWY1X1BMME5EMUdYMDR0X3BhaTJqSzVpZFlydVRmNEd5WHBFeVdJVnZ3MjdySXFlZ1g5X1RFRnhaYmNwd0dDRDVRZTE4ZWQ4VFVkbGF0VG56Y2Q5SnZEUkhUVzBOOEV4N1VyYzQzLUJ6N254Vl9leXdoS2ZncHV6cXJZ?oc=5"
+---
+
+Messi confirms Tevez testimonial as Ronaldo showdown in offing Al Jazeera
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiqgFBVV95cUxOOHBaTW1PZlQ4MURwMW9QRHg5bDRyUkJ4ZkRNZW04Q3lFakVMYU83SVNzME5lYmVJOXRwck5BcFI1NEFrdTYwb0tySHIzXzVseGI5cWcwWGFiaWRpbWMyNTV2VEZfa2ZqOGhyMXhlRlpueHdIR244LVc0US1MZExJZnBnX0lxT2x4Z2xZUVdUdklWaF9nVjNxX0ZLazBFODZCR00yTnVremRSZ9IBrwFBVV95cUxPYU5xNE9kaWRQUFh0RVVSeF9kZVdFTDA2SnB6VVFtOFdVYWxfRFhLb0VTNzE3VWY1X1BMME5EMUdYMDR0X3BhaTJqSzVpZFlydVRmNEd5WHBFeVdJVnZ3MjdySXFlZ1g5X1RFRnhaYmNwd0dDRDVRZTE4ZWQ4VFVkbGF0VG56Y2Q5SnZEUkhUVzBOOEV4N1VyYzQzLUJ6N254Vl9leXdoS2ZncHV6cXJZ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

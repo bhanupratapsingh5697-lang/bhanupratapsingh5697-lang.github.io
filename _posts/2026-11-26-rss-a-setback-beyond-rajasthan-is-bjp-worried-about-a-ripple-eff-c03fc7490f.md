@@ -1,0 +1,17 @@
+---
+layout: post
+title: "A setback beyond Rajasthan: Is BJP worried about a ripple effect in UP, other states? - The Indian Express"
+date: 2026-11-26 11:59:26 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi4gFBVV95cUxQWGhILUNjbkFWXzVLLVRuVVZTc29yUHIxc04tLVZ3aFVweFhaeXNiY291eVgtU0ZSeGViaUFEMTJ0QThNZWZocmFldEttM3h5SmVpTm1NTzJTMExsNll5eXpiR2lra1Q2SDRsVHhBdnFEV2lfeVhVR1QyZV9NTDBRWE1wWHdld1Bqal9SNl85UGNrbkhCM3c0YXo1UnR3V015YkxnTEZza3ZLX1RkcmlZclRMaGZzdmZrZzhLSk05YTUyVVUtMFVta182QXZ2SFg1S1prV0tWSTdfNm9XMXBjdVBn0gHoAUFVX3lxTE1oV0NZc1V6ZkNxTV92eFNEdEY4RklTb19SOHdKN0xqNVdhQUdhdUhQT210ejctM042THBJMXA2cW52TGJIS1UwRW1HOTE0aHFyWDhWbTdGYkNUVDRKQnlINEdxZkRxcXpYVG4wUzNyYUY5ZGY1dzZvWm1yc0ZNNXBRU1RCa2ViRTV4dzhXa1h5bDhMSk1RaDlTWmZNTWJ5enRJSmJwTmNuczVOREJOWExjUV9FczBXU2NxcTRKcmdpYlhIS0xFRUNtdjFmTVVMYXdzWFNDODE2UV9XN1RhRnVBYzhHSFFHbEI?oc=5"
+---
+
+A setback beyond Rajasthan: Is BJP worried about a ripple effect in UP, other states? The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi4gFBVV95cUxQWGhILUNjbkFWXzVLLVRuVVZTc29yUHIxc04tLVZ3aFVweFhaeXNiY291eVgtU0ZSeGViaUFEMTJ0QThNZWZocmFldEttM3h5SmVpTm1NTzJTMExsNll5eXpiR2lra1Q2SDRsVHhBdnFEV2lfeVhVR1QyZV9NTDBRWE1wWHdld1Bqal9SNl85UGNrbkhCM3c0YXo1UnR3V015YkxnTEZza3ZLX1RkcmlZclRMaGZzdmZrZzhLSk05YTUyVVUtMFVta182QXZ2SFg1S1prV0tWSTdfNm9XMXBjdVBn0gHoAUFVX3lxTE1oV0NZc1V6ZkNxTV92eFNEdEY4RklTb19SOHdKN0xqNVdhQUdhdUhQT210ejctM042THBJMXA2cW52TGJIS1UwRW1HOTE0aHFyWDhWbTdGYkNUVDRKQnlINEdxZkRxcXpYVG4wUzNyYUY5ZGY1dzZvWm1yc0ZNNXBRU1RCa2ViRTV4dzhXa1h5bDhMSk1RaDlTWmZNTWJ5enRJSmJwTmNuczVOREJOWExjUV9FczBXU2NxcTRKcmdpYlhIS0xFRUNtdjFmTVVMYXdzWFNDODE2UV9XN1RhRnVBYzhHSFFHbEI?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

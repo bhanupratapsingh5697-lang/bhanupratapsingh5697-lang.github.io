@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Cold wave likely in parts of Rajasthan from Friday, temperatures dip below normal - ThePrint"
+date: 2026-11-26 14:20:54 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxPaDk1MXJjSnN1RDk4WGYtWklUb2VFWFJqejBJR1hjS19BbjRzTmNuSjRWbi11TVBXYWFZQlFqLTJleVBOT243T2l5aE9BaGwxWGZHaXRNYXhqTC02VFFIaEtZNDBUT3FyZkFWSnVQcVRZSmlmRWsxMGczblBldUN4STdVdUhQdDlVbEd0MWNTNE5lMFY2Y19PTE1fQU9KekI3cE1mSFd6eVl5RmJabUZrTjRUQzFHUdIBuwFBVV95cUxONnVWd2o3RkVsdUNGczZvZnA1dzlSMDNrN0tRVFB0ekJ6UVVpWkVCSGpkVXF6YlViUlU5VDhLMGxQTWstMkx1bFo5UTExUHNYRHVyc1pVNE9KVHJoWVpLUVBCXzMwZWVTUHNpaXh5MU5VRG5SaUtrVDFaU3RzTE5TY0hibm82aXJrbU9ER1JLZWFrMFg1VVlBcGMxMlhzR2xiWTVFZ0hWaUJKdURabFE5cEJJdURNd0x1dE9J?oc=5"
+---
+
+Cold wave likely in parts of Rajasthan from Friday, temperatures dip below normal ThePrint
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxPaDk1MXJjSnN1RDk4WGYtWklUb2VFWFJqejBJR1hjS19BbjRzTmNuSjRWbi11TVBXYWFZQlFqLTJleVBOT243T2l5aE9BaGwxWGZHaXRNYXhqTC02VFFIaEtZNDBUT3FyZkFWSnVQcVRZSmlmRWsxMGczblBldUN4STdVdUhQdDlVbEd0MWNTNE5lMFY2Y19PTE1fQU9KekI3cE1mSFd6eVl5RmJabUZrTjRUQzFHUdIBuwFBVV95cUxONnVWd2o3RkVsdUNGczZvZnA1dzlSMDNrN0tRVFB0ekJ6UVVpWkVCSGpkVXF6YlViUlU5VDhLMGxQTWstMkx1bFo5UTExUHNYRHVyc1pVNE9KVHJoWVpLUVBCXzMwZWVTUHNpaXh5MU5VRG5SaUtrVDFaU3RzTE5TY0hibm82aXJrbU9ER1JLZWFrMFg1VVlBcGMxMlhzR2xiWTVFZ0hWaUJKdURabFE5cEJJdURNd0x1dE9J?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
