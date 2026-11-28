@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'Hope it's not the end' - Lyon given path to India, if he wants it - Cricinfo"
+date: 2026-11-28 09:24:45 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRjJDS3NOSUFsZjhqRmpZQkZzNFdGSXdhekd0eGlXZDFvZGh4Y2RHZWVMZUpyd0FUSWpLTmZxWmd4UnY3ejIwb1NZck55VF9CU1RsbTV5NGJyNkgycUJkWVZkRG9rN19LdWpVc2dhQUpUdU90OTJqVW5ocWlvcDRIV3NsXzRWaEFubURQakFQQWFsZC1DTXdDY1lvNG82TFNvOWZMczlTUTdwUm9rUnlnUjRjZXlGeFFWRmVkclZDUDFZeU9nOUVpZtIB2gFBVV95cUxQQkt3ZmhOMFg1VDRNQWFldmtqOUNHTmFUN2d6TnJ4NjM1NzBFZXVhTGktZUNLOU1GUmhUNk1ObUdlM2k2TTk3bTlDS3MxWjZSeFZGUHdQZ2wyTV9ZNm96R2l1ODFuU040aEhJclcwTFFmMGxQUURkd2RGa3BBRXR4SVE4ZWlXZ1c0SXhhZmZsT1VmTVdLUGxZNkJhaURXWFVZQ0Z4OXZmNnlibngwT0JjR0Nzb0VFMldvcjloVUdpWXVoWXB0Z1dMY1MzZ0NvWVhkTUdLaUxmem4zUQ?oc=5"
+---
+
+'Hope it's not the end' - Lyon given path to India, if he wants it Cricinfo
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiyAFBVV95cUxPRjJDS3NOSUFsZjhqRmpZQkZzNFdGSXdhekd0eGlXZDFvZGh4Y2RHZWVMZUpyd0FUSWpLTmZxWmd4UnY3ejIwb1NZck55VF9CU1RsbTV5NGJyNkgycUJkWVZkRG9rN19LdWpVc2dhQUpUdU90OTJqVW5ocWlvcDRIV3NsXzRWaEFubURQakFQQWFsZC1DTXdDY1lvNG82TFNvOWZMczlTUTdwUm9rUnlnUjRjZXlGeFFWRmVkclZDUDFZeU9nOUVpZtIB2gFBVV95cUxQQkt3ZmhOMFg1VDRNQWFldmtqOUNHTmFUN2d6TnJ4NjM1NzBFZXVhTGktZUNLOU1GUmhUNk1ObUdlM2k2TTk3bTlDS3MxWjZSeFZGUHdQZ2wyTV9ZNm96R2l1ODFuU040aEhJclcwTFFmMGxQUURkd2RGa3BBRXR4SVE4ZWlXZ1c0SXhhZmZsT1VmTVdLUGxZNkJhaURXWFVZQ0Z4OXZmNnlibngwT0JjR0Nzb0VFMldvcjloVUdpWXVoWXB0Z1dMY1MzZ0NvWVhkTUdLaUxmem4zUQ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "OpenAI countersues Apple, accuses iPhone maker of stealing trade secrets - The Indian Express"
+date: 2026-11-28 11:12:05 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMixAFBVV95cUxNNTRuNEdJekVZUk9IV1hTbXpRT3lFcE51MlFTeGE0NWZaWXlQZEJvOFBPQ1NmQjBBX0lackZZR1dRR2xINXpIaGZHenF4Z3dpZWRFNlNicmRFRmd5OERHZGRXZzFTdzA5Z01ZSUFTdnN4aWRLcDktaG41cF9URkI4NzRYZktMNTl4UUJ6Nmw2SnZJcU1VTWZGQjdGbjJPeUtRbkpRSXB6bGUwbjRuVnd6Z05RVF9hVkdvSnJabW5vSGRveW840gHLAUFVX3lxTFA0N05pcWpWZmJZdW5SZ3NxaG5yWHdtSE9ZZUFlelhZM2JEZmVYb0h6ZUlEejlpNnBvOFhOOW1FUHU0aGNCX1pXajg2VTF3ektxbUJSa25EUGFXdF8ta1cwdVBveTNZUzZuRmFtUFBhQU9obEU1OXNKTk1GT0tqcXlUS2tTVXlPZml0c0U2WkxCSEduX25fN1o4dkJra2cwdGhIeHd2Q2NfSmhUeVROZm9yQUg2NlpCM2hRMHZSUHAwanMtQ0RiSU0tZ1BZ?oc=5"
+---
+
+OpenAI countersues Apple, accuses iPhone maker of stealing trade secrets The Indian Express
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMixAFBVV95cUxNNTRuNEdJekVZUk9IV1hTbXpRT3lFcE51MlFTeGE0NWZaWXlQZEJvOFBPQ1NmQjBBX0lackZZR1dRR2xINXpIaGZHenF4Z3dpZWRFNlNicmRFRmd5OERHZGRXZzFTdzA5Z01ZSUFTdnN4aWRLcDktaG41cF9URkI4NzRYZktMNTl4UUJ6Nmw2SnZJcU1VTWZGQjdGbjJPeUtRbkpRSXB6bGUwbjRuVnd6Z05RVF9hVkdvSnJabW5vSGRveW840gHLAUFVX3lxTFA0N05pcWpWZmJZdW5SZ3NxaG5yWHdtSE9ZZUFlelhZM2JEZmVYb0h6ZUlEejlpNnBvOFhOOW1FUHU0aGNCX1pXajg2VTF3ektxbUJSa25EUGFXdF8ta1cwdVBveTNZUzZuRmFtUFBhQU9obEU1OXNKTk1GT0tqcXlUS2tTVXlPZml0c0U2WkxCSEduX25fN1o4dkJra2cwdGhIeHd2Q2NfSmhUeVROZm9yQUg2NlpCM2hRMHZSUHAwanMtQ0RiSU0tZ1BZ?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

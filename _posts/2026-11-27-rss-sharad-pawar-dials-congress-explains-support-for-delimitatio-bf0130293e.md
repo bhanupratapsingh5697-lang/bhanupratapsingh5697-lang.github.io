@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sharad Pawar Dials Congress, Explains Support For Delimitation: Inside Scoop - NDTV"
+date: 2026-11-27 21:38:29 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMitgFBVV95cUxOU3N3T3ZNSHRjc21PampnVHFjMmlOMmFhcHNmQmVLQ1ZKX0xCSjJxS01nY0FPRDFJdlU3Wks2THNxQmREbDBYNW1Fd0g5OGRIeVgyZW1MQ2M5YVJGaUZyaThxV2FqMzN4MkhsbTNuZDJhZWV3Zk5lMlAtTm5lY3ZWWGNxbS11YjAzMHhEOWZmenJlX3NsUUk2bG54cWFYRHllekNaSEJGbzg4SXgyX01nTXU0Q19PQdIBvgFBVV95cUxNM3BFMnFYa2c1UnBDZ0xycDlLdnZ3SXdJRFBtWnNuOElYUXprVHpoSmdKaGVGM1B3bjRXcTVXbkxQeV8tb2ROdHVZUWdWT3I2SktnUFM5NDlpUTRleXlQejhLX3llcEJ4VWtncHVHazNuZVNaa0JsTV9RLUhWbHd1aENucGhnSXc4Um9TMEJHUjRkVEJmZGVVUkdqNHltTkNYU0tiZE90NEo1SndDS1Vyc1FJRDZnazNfYW1rZlpn?oc=5"
+---
+
+Sharad Pawar Dials Congress, Explains Support For Delimitation: Inside Scoop NDTV
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMitgFBVV95cUxOU3N3T3ZNSHRjc21PampnVHFjMmlOMmFhcHNmQmVLQ1ZKX0xCSjJxS01nY0FPRDFJdlU3Wks2THNxQmREbDBYNW1Fd0g5OGRIeVgyZW1MQ2M5YVJGaUZyaThxV2FqMzN4MkhsbTNuZDJhZWV3Zk5lMlAtTm5lY3ZWWGNxbS11YjAzMHhEOWZmenJlX3NsUUk2bG54cWFYRHllekNaSEJGbzg4SXgyX01nTXU0Q19PQdIBvgFBVV95cUxNM3BFMnFYa2c1UnBDZ0xycDlLdnZ3SXdJRFBtWnNuOElYUXprVHpoSmdKaGVGM1B3bjRXcTVXbkxQeV8tb2ROdHVZUWdWT3I2SktnUFM5NDlpUTRleXlQejhLX3llcEJ4VWtncHVHazNuZVNaa0JsTV9RLUhWbHd1aENucGhnSXc4Um9TMEJHUjRkVEJmZGVVUkdqNHltTkNYU0tiZE90NEo1SndDS1Vyc1FJRDZnazNfYW1rZlpn?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "INDIA bloc leaders meet at Kharge’s residence to discuss joint strategy ahead of Parliament’s special sitting - The Hindu"
+date: 2026-11-28 13:01:39 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxQdU1aWGQwQ0pkXzRPTk9SWWR4TVptejd4cjVlUzRSb0E1Skxwb004M0U5clJCVzR2Yk5wREF4dElET19ZZlBOX1h3S3dqSlZXSlItdi1McF9vSU5CUTBmNXVfUFE4ZkRJdUsySlZqQlJFbEZWX1QyY2JWa0pZVjRsLVdBb21HWk5aWER2OFY4Z3FaaWpXaTlncEdpTnlabF9WR3BFempIQXJIdHpPbnNpVXNKM3I5WHZrRFVYa011TzBKM2Z4LTZtY3pzZ3Y0ZE9LcDJr0gHaAUFVX3lxTFBDclJFV2JBaXdFUVpkLXVJdlh0a1FNYk9XUjd1Wldjb1FzTnppVzNFQnVzaWplUzJNWjYtakJxZmwwMWNWWVI0NElJQ3ZzeUFCQ1VGaTRkOXFCUElGaS1fREJBSFFIa3pYbGg5S2ZMREwwRkg2bmxoT2lCQVFCREhHT1VWQlM3cWJuUGFBRG9ma3dWRlpUblRoMW9zdUZtUHVxLU5hOG5wTEM1a29SVWxyMTFjdVE1ekZRdElKOGZsMWhod0dLQ2dSb3piZGFJcng2T3k4NVZEeTNB?oc=5"
+---
+
+INDIA bloc leaders meet at Kharge’s residence to discuss joint strategy ahead of Parliament’s special sitting The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxQdU1aWGQwQ0pkXzRPTk9SWWR4TVptejd4cjVlUzRSb0E1Skxwb004M0U5clJCVzR2Yk5wREF4dElET19ZZlBOX1h3S3dqSlZXSlItdi1McF9vSU5CUTBmNXVfUFE4ZkRJdUsySlZqQlJFbEZWX1QyY2JWa0pZVjRsLVdBb21HWk5aWER2OFY4Z3FaaWpXaTlncEdpTnlabF9WR3BFempIQXJIdHpPbnNpVXNKM3I5WHZrRFVYa011TzBKM2Z4LTZtY3pzZ3Y0ZE9LcDJr0gHaAUFVX3lxTFBDclJFV2JBaXdFUVpkLXVJdlh0a1FNYk9XUjd1Wldjb1FzTnppVzNFQnVzaWplUzJNWjYtakJxZmwwMWNWWVI0NElJQ3ZzeUFCQ1VGaTRkOXFCUElGaS1fREJBSFFIa3pYbGg5S2ZMREwwRkg2bmxoT2lCQVFCREhHT1VWQlM3cWJuUGFBRG9ma3dWRlpUblRoMW9zdUZtUHVxLU5hOG5wTEM1a29SVWxyMTFjdVE1ekZRdElKOGZsMWhod0dLQ2dSb3piZGFJcng2T3k4NVZEeTNB?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

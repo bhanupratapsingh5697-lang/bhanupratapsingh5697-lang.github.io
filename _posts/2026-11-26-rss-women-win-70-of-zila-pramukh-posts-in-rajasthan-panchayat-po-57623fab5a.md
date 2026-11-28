@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Women win 70% of zila pramukh posts in Rajasthan panchayat polls - The Times of India"
+date: 2026-11-26 13:55:00 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxON2Y1Mm8yYlZxQnZ2aHJUV1RhRFRuN3hyRF9Ccy1oLU5nYTAxR00yeG5POWQyTGtpdGJJTlprRGRycG5IMDlDNTFQN0ZiUHBnLTlEVVNCbGVIVnN5N3BPNk5JblJZbU1rYkZYSTBXQ2pETERlc0lHdWhIRUhQNUl2NWRQTEhqdnhud2sxZEg1NVVuS1RwVlhNNXY2Y2VjQzJXamJIUTFZaGpyaU5CdUpoa3hwMVFERUE3ZDQ1MkRYZUg0R19ZWVlFUzZ6eVVfdW9hc0Rr0gHYAUFVX3lxTE9aaUpBVUdwcWtETkxKNWFiQzd1YTFHWXdWc2FBTkJHbGlRa1lMS2c1UEU2eDBZZ1JPS0lPNXFKRUhsV3ZjNEtMOFJCS1l0bkJaX2h1QVZzaDg1bUlvZW50OGFsZTJfRFJuRUdQS3A5blFqbE5SVll1dldYSzJVY1ZvNEpJZ2c3OWFTRWgtazYzVmtNcU5BSFV5ZEhob3NTaFVBWXNjeGpGSVJXUkNzUzdYSFQ4dHV6MUo2NXl4ZmxYVklHM1JWeGx5VW9VMFpWMGNlUDdvLWJUXw?oc=5"
+---
+
+Women win 70% of zila pramukh posts in Rajasthan panchayat polls The Times of India
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi0wFBVV95cUxON2Y1Mm8yYlZxQnZ2aHJUV1RhRFRuN3hyRF9Ccy1oLU5nYTAxR00yeG5POWQyTGtpdGJJTlprRGRycG5IMDlDNTFQN0ZiUHBnLTlEVVNCbGVIVnN5N3BPNk5JblJZbU1rYkZYSTBXQ2pETERlc0lHdWhIRUhQNUl2NWRQTEhqdnhud2sxZEg1NVVuS1RwVlhNNXY2Y2VjQzJXamJIUTFZaGpyaU5CdUpoa3hwMVFERUE3ZDQ1MkRYZUg0R19ZWVlFUzZ6eVVfdW9hc0Rr0gHYAUFVX3lxTE9aaUpBVUdwcWtETkxKNWFiQzd1YTFHWXdWc2FBTkJHbGlRa1lMS2c1UEU2eDBZZ1JPS0lPNXFKRUhsV3ZjNEtMOFJCS1l0bkJaX2h1QVZzaDg1bUlvZW50OGFsZTJfRFJuRUdQS3A5blFqbE5SVll1dldYSzJVY1ZvNEpJZ2c3OWFTRWgtazYzVmtNcU5BSFV5ZEhob3NTaFVBWXNjeGpGSVJXUkNzUzdYSFQ4dHV6MUo2NXl4ZmxYVklHM1JWeGx5VW9VMFpWMGNlUDdvLWJUXw?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

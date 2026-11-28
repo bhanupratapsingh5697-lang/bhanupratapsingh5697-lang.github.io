@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Indigenous Broadband Technology Platform Launched - Deccan Chronicle"
+date: 2026-11-28 09:17:51 +0530
+category: "Technology"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Technology"
+source_url: "https://news.google.com/rss/articles/CBMiogFBVV95cUxQTGwzeFNJcEc2OHQ4ay1ENC1EU25KOW1LclFYQkNORUhxYmotcWFwUEpjdkNnbEh5M1BmdmZLZS1yVXFWeFh0TERwTnhBcWN2QXFkVEk5ZEM5bFlvNHl5SUZrY3R5elJlQU44R2JHWEVhYkxUczRDS042TklPQXpvUlplaGZpLXVsaWZZNVR1N01uNjFpTDlmV2EwMURyUTE3MkHSAacBQVVfeXFMUEJwYktfRHdXZG1jaVNBQjJUbXVpdC1GZUJzRy1JNWI3UU9TZGFTWGVVdm9WMzQ1WnpmaGxWN0FzVDdialZ5WVBqNU93clhqM3VJSUFlQmZOSWpLazR1eG5fOTF5UFZrZ2FCMXJ0dkdJSmNsdXNZTkZmQ2V0ME5UQUhqTzN0VTFNZERzaU9VMzN5U3RSTHMyYUR1cE5wVmYzSHJJa0dRSk0?oc=5"
+---
+
+Indigenous Broadband Technology Platform Launched Deccan Chronicle
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiogFBVV95cUxQTGwzeFNJcEc2OHQ4ay1ENC1EU25KOW1LclFYQkNORUhxYmotcWFwUEpjdkNnbEh5M1BmdmZLZS1yVXFWeFh0TERwTnhBcWN2QXFkVEk5ZEM5bFlvNHl5SUZrY3R5elJlQU44R2JHWEVhYkxUczRDS042TklPQXpvUlplaGZpLXVsaWZZNVR1N01uNjFpTDlmV2EwMURyUTE3MkHSAacBQVVfeXFMUEJwYktfRHdXZG1jaVNBQjJUbXVpdC1GZUJzRy1JNWI3UU9TZGFTWGVVdm9WMzQ1WnpmaGxWN0FzVDdialZ5WVBqNU93clhqM3VJSUFlQmZOSWpLazR1eG5fOTF5UFZrZ2FCMXJ0dkdJSmNsdXNZTkZmQ2V0ME5UQUhqTzN0VTFNZERzaU9VMzN5U3RSTHMyYUR1cE5wVmYzSHJJa0dRSk0?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

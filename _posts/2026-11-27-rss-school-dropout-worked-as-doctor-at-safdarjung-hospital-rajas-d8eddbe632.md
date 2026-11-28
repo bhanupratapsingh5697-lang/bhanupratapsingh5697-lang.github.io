@@ -1,0 +1,17 @@
+---
+layout: post
+title: "School Dropout Worked As 'Doctor' At Safdarjung Hospital, Rajasthan SOG Busts Fake Degree Racket - News18"
+date: 2026-11-27 09:04:13 +0530
+category: "Rajasthan"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News Rajasthan"
+source_url: "https://news.google.com/rss/articles/CBMi2wFBVV95cUxQMml6YkNVNlVUQmk3YmtjbzVYcUN5SGJuRTBmaFhTNDNxNkFENFFvVENfTGtHYTgxdlc0NEFRZDNTYjhPSEZBelViWERuNmJGOFhBWm1vcEpEMGJlVWVwT1I2LU1GMWJxNmRZdjA3LWh2dEFqaUtiUktEaDRxNndtRzlQcXY1NWV4N3M4WE5zekUzdERjUmhmVVl0MTB6ak11TUlEVExIempUOURxbWYwd3ZzZjd2dXNkOTVud2dpYmxIaFRBcE85NnVNdDE1Rnk5Z3JGYnFqTi1sOFHSAeABQVVfeXFMTkQzYjJIMndlU3FnZEotcmluU1J6NHUyUUpMMEpmNl9YdU1QdTg0TGZrWGFZTThjZGZCV0RNRUQxTDZXWWotTFV4SkMxckpXT0FNX0Vya2t6MjJTRnYtdENKUUc0MVcwQUlYMjd5SUtURXhHdENvWFMtd0xZVnc0M2xRSlNxeXZuOWlpN1ZYbkE3VUpXeXRLQVpteG9KaWlGMkdKMnVxVTVNbFpYcDY3VENsZWtxdHhRTno0bV94ZDk0R2F1d0NVb3pUTjRDTVZfMUJKc0RJZm5EM2taZGZzUHM?oc=5"
+---
+
+School Dropout Worked As 'Doctor' At Safdarjung Hospital, Rajasthan SOG Busts Fake Degree Racket News18
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMi2wFBVV95cUxQMml6YkNVNlVUQmk3YmtjbzVYcUN5SGJuRTBmaFhTNDNxNkFENFFvVENfTGtHYTgxdlc0NEFRZDNTYjhPSEZBelViWERuNmJGOFhBWm1vcEpEMGJlVWVwT1I2LU1GMWJxNmRZdjA3LWh2dEFqaUtiUktEaDRxNndtRzlQcXY1NWV4N3M4WE5zekUzdERjUmhmVVl0MTB6ak11TUlEVExIempUOURxbWYwd3ZzZjd2dXNkOTVud2dpYmxIaFRBcE85NnVNdDE1Rnk5Z3JGYnFqTi1sOFHSAeABQVVfeXFMTkQzYjJIMndlU3FnZEotcmluU1J6NHUyUUpMMEpmNl9YdU1QdTg0TGZrWGFZTThjZGZCV0RNRUQxTDZXWWotTFV4SkMxckpXT0FNX0Vya2t6MjJTRnYtdENKUUc0MVcwQUlYMjd5SUtURXhHdENvWFMtd0xZVnc0M2xRSlNxeXZuOWlpN1ZYbkE3VUpXeXRLQVpteG9KaWlGMkdKMnVxVTVNbFpYcDY3VENsZWtxdHhRTno0bV94ZDk0R2F1d0NVb3pUTjRDTVZfMUJKc0RJZm5EM2taZGZzUHM?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.

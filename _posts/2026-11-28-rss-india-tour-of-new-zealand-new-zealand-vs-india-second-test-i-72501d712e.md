@@ -1,0 +1,17 @@
+---
+layout: post
+title: "India tour of New Zealand: New Zealand vs India second Test in Christchurch - The Hindu"
+date: 2026-11-28 06:00:26 +0530
+category: "India"
+lang: "en"
+author: "Today News Desk (RSS summary)"
+image: "/assets/images/news-default.svg"
+source_name: "Google News India"
+source_url: "https://news.google.com/rss/articles/CBMiswFBVV95cUxNaDNLQWYxNGlKc2x3aDE1SGtETXlRdi1vOWV5VzNSckFqaDZleW1pWjhyLUcyT0VHRHpSSVFwOXFQZWR5T1d0ajJydnYycFgyVnQtc3lqVC1IaE9iVGd5WXBJdWtnemw5MmozSUVBWXp5ZUtkUllkbU1BcjByQjd1VXZzQm9LdjFENk5mNEM0WTNRTHFyQW9rWjNSZDVrd1VUNXIzZ2x5cGFpclJjcWxNUWhCd9IBugFBVV95cUxOUkFTem9Xd3dQaUh2UkpERTJpUTdIYU90a3FqeFMwUW14dTktd3luWmlZVkk2a0o1ZG5QbDVRUHhHYkk2ZHBwS2JwcGUxZDY4akYtbXJmNmpkNGVOekd5dk54WkZQZEF0Nm5oYzhUWVUzQVBkQ190cUI0UjZhZ0JFVEEzdzNiLURiUFZkdk9oYVI0c1phd3gwQjFKWHAtcVFmZEYxWjl1WjNaSlloQkNRUDJhRnFSQ0d3RVE?oc=5"
+---
+
+India tour of New Zealand: New Zealand vs India second Test in Christchurch The Hindu
+
+**Original report:** [news.google.com](https://news.google.com/rss/articles/CBMiswFBVV95cUxNaDNLQWYxNGlKc2x3aDE1SGtETXlRdi1vOWV5VzNSckFqaDZleW1pWjhyLUcyT0VHRHpSSVFwOXFQZWR5T1d0ajJydnYycFgyVnQtc3lqVC1IaE9iVGd5WXBJdWtnemw5MmozSUVBWXp5ZUtkUllkbU1BcjByQjd1VXZzQm9LdjFENk5mNEM0WTNRTHFyQW9rWjNSZDVrd1VUNXIzZ2x5cGFpclJjcWxNUWhCd9IBugFBVV95cUxOUkFTem9Xd3dQaUh2UkpERTJpUTdIYU90a3FqeFMwUW14dTktd3luWmlZVkk2a0o1ZG5QbDVRUHhHYkk2ZHBwS2JwcGUxZDY4akYtbXJmNmpkNGVOekd5dk54WkZQZEF0Nm5oYzhUWVUzQVBkQ190cUI0UjZhZ0JFVEEzdzNiLURiUFZkdk9oYVI0c1phd3gwQjFKWHAtcVFmZEYxWjl1WjNaSlloQkNRUDJhRnFSQ0d3RVE?oc=5)
+
+> Short automatically generated RSS summary. The original publisher owns the source reporting. Visit the source for full context and updates.
